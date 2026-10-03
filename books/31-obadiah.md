@@ -10,13 +10,13 @@
 
 **4** You can go up high like an eagle. You can put your nest among the stars. But I will bring you down from there," says the LORD.
 
-**5** "If thieves came to you at night, they would take only what they wanted. If people came to collect your grapes, they would leave some grapes. But your enemies will destroy you completely!
+**5** "If thieves came to you at night, they took only what they wanted. If people came to collect your grapes, they left some grapes. But your enemies will destroy you completely!
 
 **6** The enemies will search all the property of Esau. They will find all his hidden valuable things.
 
 **7** All your allies will push you out to the border. The men who were your friends will trick you and defeat you. The men who eat your bread will set a trap for you. Edom will not understand it.
 
-**8** On that day I will destroy the wise men of Edom," says the LORD. "I will remove understanding from the mountain of Esau.
+**8** On that day I will destroy the wise men of Edom," says the LORD. "I will remove wisdom from the mountain of Esau.
 
 **9** Teman, your strong soldiers will be very afraid. Thus the enemies will kill all the people of the mountain of Esau.
 
@@ -24,7 +24,7 @@
 
 **11** On that day you stood and watched. Strangers took away the army of Jacob as prisoners. Foreigners went into the gates of Jerusalem. The foreigners threw lots for the city. You were like one of these foreigners.
 
-**12** You must not look with pleasure at the bad day of your brother. You must not be happy when the people of Judah are destroyed. You must not speak proudly on their day of trouble.
+**12** You must not look with pleasure at the bad day of your brother. You must not be happy when enemies destroy the people of Judah. You must not speak proudly on their day of trouble.
 
 **13** You must not go into the gate of my people on the day of their disaster. You must not look with pleasure at their trouble on that day. You must not take their property on the day of their disaster.
 

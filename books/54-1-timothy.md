@@ -6,7 +6,7 @@
 
 **2** I write to Timothy. You are my true son in the faith. I ask that God our Father and Jesus Christ our Lord give you grace, mercy, and peace.
 
-**3** When I went into Macedonia, I asked you to stay in Ephesus. Stay there now. Tell some people to stop their false teaching.
+**3** When I went into Macedonia, I asked you to stay in Ephesus. Stay there now. Tell some people to stop their false lessons.
 
 **4** Tell them not to give attention to stories and to long lists of ancestors. These things cause arguments. They do not help God's work, which comes through faith.
 
@@ -20,9 +20,9 @@
 
 **9** We know that God did not give the law for good people. He gave it for people who do not obey the law and who rebel. He gave it for people who do not respect God and for sinners. He gave it for people who are not holy and who insult holy things. He gave it for people who kill their fathers or mothers, and for all murderers.
 
-**10** He gave the law for people who commit sexual sin and for men who have sex with men. He gave it for people who steal people and sell them as slaves. He gave it for liars and for people who lie under oath. He gave it for all other actions that are against the true teaching.
+**10** He gave the law for people who commit sexual sin and for men who have sex with men. He gave it for people who steal people and sell them as slaves. He gave it for liars and for people who lie under oath. He gave it for all other actions that are against the true lessons.
 
-**11** This teaching agrees with the gospel about the glory of the blessed God. God gave this gospel to me as a trust.
+**11** This message agrees with the gospel about the glory of the blessed God. God gave this gospel to me as a trust.
 
 **12** I thank Christ Jesus our Lord, who gives me strength. He thought that I was faithful. Thus he put me into his service.
 
@@ -50,7 +50,7 @@
 
 **3** This is good, and it pleases God our Savior.
 
-**4** God wants all people to be saved. He wants them to know the truth.
+**4** God wants to save all people. He wants them to know the truth.
 
 **5** There is one God. There is also one person who brings God and men together. He is the man Christ Jesus.
 
@@ -104,7 +104,7 @@
 
 **14** I write these things to you. I hope to come to you soon.
 
-**15** But possibly I will be late. Then you will know how people must behave in the family of God. This family is the church of the living God. The church supports the truth and makes it strong.
+**15** But possibly I will be late. Then you will know how people must behave in the family of God. This family is the church of the God who lives. The church supports the truth and makes it strong.
 
 **16** All people agree that the secret truth about God is great: Christ appeared in a human body. The Spirit showed that he was right. The angels saw him. People told the Gentiles about him. People in the world believed in him. God took him up into glory.
 
@@ -120,7 +120,7 @@
 
 **5** The word of God and prayer make it holy.
 
-**6** Tell these things to the brothers. Then you will be a good servant of Christ Jesus. The words of the faith and the good teaching that you followed will make you strong.
+**6** Tell these things to the brothers. Then you will be a good servant of Christ Jesus. The words of the faith and the good lessons that you followed will make you strong.
 
 **7** Do not listen to foolish stories that are not holy. Train yourself to obey God.
 
@@ -128,7 +128,7 @@
 
 **9** This statement is true, and all people must accept it.
 
-**10** For this reason, we work hard and struggle. We trust in the living God. He is the Savior of all people, and especially of the people who believe.
+**10** For this reason, we work hard and struggle. We trust in the God who lives. He is the Savior of all people, and especially of the people who believe.
 
 **11** Command and teach these things.
 
@@ -196,11 +196,11 @@
 
 ## Chapter 6
 
-**1** All slaves must think that their masters are worthy of all honor. Then no one will speak against the name of God and our teaching.
+**1** All slaves must think that their masters are worthy of all honor. Then no one will speak against the name of God and our message.
 
 **2** Some slaves have masters who are believers. These slaves must not think less of their masters because the masters are brothers. They must serve them better, because the masters are believers and loved. The masters get the advantage of their good work. Teach these things and tell the people to do them.
 
-**3** A person can teach a different teaching. He can refuse the true words of our Lord Jesus Christ. He can refuse the teaching that agrees with a life that obeys God.
+**3** A person can teach a different message. He can refuse the true words of our Lord Jesus Christ. He can refuse the lessons that agree with a life that obeys God.
 
 **4** Such a person is proud and knows nothing. He likes arguments about questions and words. These arguments cause jealousy, fights, insults, and evil suspicions.
 
@@ -210,7 +210,7 @@
 
 **7** We brought nothing into the world. We surely cannot take anything out of the world.
 
-**8** If we have food and clothes, we must be satisfied with these things.
+**8** If we have food and clothes, we must be happy with these things.
 
 **9** But people who want to become rich fall into temptation and into a trap. They get many foolish and harmful desires. These desires pull people down into ruin and destruction.
 

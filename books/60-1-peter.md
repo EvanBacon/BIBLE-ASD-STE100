@@ -4,9 +4,9 @@
 
 **1** I, Peter, am an apostle of Jesus Christ. I write to the people of God who live as foreigners in many countries. They live in Pontus, Galatia, Cappadocia, Asia, and Bithynia.
 
-**2** God the Father knew you and chose you before the start. The Spirit makes you holy. God chose you to obey Jesus Christ and to be made clean by his blood. I pray that God will give you much grace and peace.
+**2** God the Father knew you and chose you before the start. The Spirit makes you holy. God chose you to obey Jesus Christ. He chose you so that the blood of Jesus makes you clean. I pray that God will give you much grace and peace.
 
-**3** Praise the God and Father of our Lord Jesus Christ! Because of his great mercy, he gave us new life. He raised Jesus Christ from death. Thus we have a living hope.
+**3** Praise the God and Father of our Lord Jesus Christ! Because of his great mercy, he gave us new life. He raised Jesus Christ from death. Thus we have a hope that lives.
 
 **4** God will give us an inheritance that nothing can destroy, make dirty, or cause to fade. God keeps this inheritance for you in heaven.
 
@@ -60,11 +60,11 @@
 
 **3** You tasted the goodness of the Lord.
 
-**4** Come to the Lord. He is the living stone. People rejected him, but God chose him. God thinks that he is of great value.
+**4** Come to the Lord. He is the stone that lives. People rejected him, but God chose him. God thinks that he is of great value.
 
-**5** You also are living stones. God uses you to build a spiritual house. You are holy priests. You offer spiritual sacrifices that God accepts through Jesus Christ.
+**5** You also are stones that live. God uses you to build a spiritual house. You are holy priests. You offer spiritual sacrifices that God accepts through Jesus Christ.
 
-**6** The Scriptures say, "Look, I put a stone in Zion. It is the main cornerstone. I chose it, and it is of great value. The person who believes in him will never be ashamed."
+**6** The Scriptures say, "Look, I put a stone in Zion. It is the main cornerstone. I chose it, and it is of great value. The person who believes in him will never have shame."
 
 **7** Thus for you who believe, this stone is of great value. But for the people who do not believe, the Scriptures say, "The builders rejected the stone. But the stone became the main cornerstone."
 
@@ -90,9 +90,9 @@
 
 **18** Slaves, obey your masters with all respect. Obey the masters who are good and kind. Also obey the masters who are cruel.
 
-**19** Sometimes a person suffers when he did nothing wrong. If he continues firm in pain because he knows God, God is pleased.
+**19** Sometimes a person suffers when he did nothing wrong. If he continues firm in pain because he knows God, God is happy.
 
-**20** If people beat you because you do wrong, you get no praise when you accept it with patience. But if you do good and you suffer for it, you must accept it with patience. Then God is pleased.
+**20** If people beat you because you do wrong, you get no praise when you accept it with patience. But if you do good and you suffer for it, you must accept it with patience. Then God is happy.
 
 **21** God called you to do this. Christ also suffered for you. He gave you an example. You must follow his steps.
 
@@ -118,7 +118,7 @@
 
 **6** For example, Sarah obeyed Abraham and called him her master. You are her daughters if you do what is right. Do not let anything make you afraid.
 
-**7** In the same way, husbands, live with your wives with understanding. Respect your wife, because she is weaker than you. Also, God gives the gift of life to her and to you together. Do this so that nothing will stop your prayers.
+**7** In the same way, husbands, live with your wives with knowledge. Respect your wife, because she is weaker than you. Also, God gives the gift of life to her and to you together. Do this so that nothing will stop your prayers.
 
 **8** Finally, all of you must agree with each other. Care for each other. Love each other as brothers. Be kind and humble.
 
@@ -132,11 +132,11 @@
 
 **13** If you want to do good, nobody can really harm you.
 
-**14** But if you suffer because you do what is right, God will bless you. Do not be afraid of what people fear. Do not be troubled.
+**14** But if you suffer because you do what is right, God will bless you. Do not be afraid of what people fear. Do not worry.
 
 **15** In your hearts, respect Christ as Lord. Always be ready to give an answer to each person who asks you about your hope. But be gentle and respectful.
 
-**16** Keep your conscience clear. Then people who say evil things about your good life in Christ will be ashamed.
+**16** Keep your conscience clear. Then people who say evil things about your good life in Christ will feel shame.
 
 **17** If God wants you to suffer, it is better to suffer for good actions than for evil actions.
 
@@ -156,11 +156,11 @@
 
 **2** Thus he does not live the rest of his life on earth for wrong human desires. He lives to do what God wants.
 
-**3** In the past, you spent enough time to do what the pagans like to do. You lived in sexual sin and in wrong desires. You got drunk. You went to wild parties and drinking parties. You worshipped idols, which God hates.
+**3** In the past, you spent enough time to do what the pagans like to do. You lived in sexual sin and in wrong desires. You got drunk. You went to wild parties where people drank too much. You worshipped idols, which God hates.
 
-**4** Now the pagans are surprised that you do not join them in their wild life. Thus they say evil things about you.
+**4** Now the pagans think it is strange that you do not join them in their wild life. Thus they say evil things about you.
 
-**5** But they must give an account to God. He is ready to judge the living and the dead.
+**5** But they must give an account to God. He is ready to judge the people who live and the people who are dead.
 
 **6** Thus people also told the gospel to people who are now dead. People judged them in their bodies, as people judge all humans. But now they can live in the spirit, as God lives.
 
@@ -174,7 +174,7 @@
 
 **11** If a person speaks, he must speak as if he speaks the words of God. If a person serves, he must serve with the strength that God gives. Then people will give glory to God in all things through Jesus Christ. Glory and power belong to Jesus Christ for all time. Amen.
 
-**12** Dear friends, do not be surprised at the painful troubles that test you. Do not think that something strange happens to you.
+**12** Dear friends, do not think it is strange that painful troubles test you. Do not think that something strange happens to you.
 
 **13** But be glad, because you share in the sufferings of Christ. Then you will be very glad when Christ shows his glory.
 
@@ -182,11 +182,11 @@
 
 **15** None of you must suffer because you killed a person, stole, or did evil. None of you must suffer because you interfered in the business of other people.
 
-**16** But if you suffer because you are a Christian, do not be ashamed. Give glory to God because you have that name.
+**16** But if you suffer because you are a Christian, do not feel shame. Give glory to God because you have that name.
 
 **17** It is time for God to start his judgment with his own people. If he starts with us, the end will be terrible for the people who do not obey the gospel of God.
 
-**18** The Scriptures say, "It is hard for righteous people to be saved. Thus the end will be much worse for people who do not respect God and for sinners."
+**18** The Scriptures say, "It is hard for God to save righteous people. Thus the end will be much worse for people who do not respect God and for sinners."
 
 **19** Thus the people who suffer because God wants it must trust their souls to God. God made them, and he is faithful. They must continue to do good.
 

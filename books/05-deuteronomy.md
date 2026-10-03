@@ -192,11 +192,11 @@
 
 **10** We took all the cities of the plateau, all Gilead and all Bashan as far as Salecah and Edrei. These were cities of the kingdom of Og in Bashan.
 
-**11** Og the king of Bashan was the last of the giants. His bed was made of iron. It is in Rabbah of the Ammonites. The bed is 9 cubits long and 4 cubits wide, by the usual cubit.
+**11** Og the king of Bashan was the last of the giants. His bed was of iron. It is in Rabbah of the Ammonites. The bed is 9 cubits long and 4 cubits wide, by the usual cubit.
 
 **12** "At that time we took this land as our property. I gave to the Reubenites and the Gadites the land from Aroer, near the Arnon Valley. I also gave them half of the hill country of Gilead with its cities.
 
-**13** I gave the remaining part of Gilead and all Bashan, the kingdom of Og, to the half tribe of Manasseh. I gave them all the area of Argob. People call all of Bashan the land of the giants.
+**13** I gave the rest of Gilead and all Bashan, the kingdom of Og, to the half tribe of Manasseh. I gave them all the area of Argob. People call all of Bashan the land of the giants.
 
 **14** Jair, a descendant of Manasseh, took all the area of Argob as far as the border of the Geshurites and the Maacathites. He gave the villages of Bashan his name, Havvoth-jair. They have this name to this day.
 
@@ -242,7 +242,7 @@
 
 **5** Look, I taught you laws and rules, as the LORD my God commanded me. Obey them in the land that you go into to take as your property.
 
-**6** Keep them and obey them. This will show your wisdom and your understanding to the nations. The nations will hear about all these laws. They will say, 'This great nation is a wise people who understand.'
+**6** Keep them and obey them. This will show your wisdom and your knowledge to the nations. The nations will hear about all these laws. They will say, 'This great nation is a wise people who understand.'
 
 **7** No other great nation has gods that are as near to them as the LORD our God is to us. He is near each time that we call to him.
 
@@ -280,7 +280,7 @@
 
 **24** The LORD your God is a fire that burns everything. He is a jealous God.
 
-**25** "You will have children and grandchildren. You will live in the land for a long time. If you then do evil things and make an idol in the shape of any thing, you do what is evil to the LORD your God. Thus you make him angry.
+**25** "You will have children and grandchildren. You will live in the land for a long time. Then you can do evil things and make an idol in the shape of any thing. If you do this, you do what is evil to the LORD your God. Thus you make him angry.
 
 **26** If you do this, I tell heaven and earth to be witnesses against you today. You will quickly die and go out of the land that you go across the Jordan to take. You will not live there for long. You will be completely destroyed.
 
@@ -294,7 +294,7 @@
 
 **31** The LORD your God is a merciful God. He will not leave you or destroy you. He will not forget the covenant that he promised to your fathers.
 
-**32** "Ask about the past, before you were born. Ask from the day that God made man on the earth. Ask from one end of the sky to the other end. Did a thing as great as this ever occur? Did anyone ever hear about a thing like this?
+**32** "Ask about the past, before your time. Ask from the day that God made man on the earth. Ask from one end of the sky to the other end. Did a thing as great as this ever occur? Did anyone ever hear about a thing like this?
 
 **33** Did any other people ever hear the voice of God speak from a fire, as you did, and stay alive?
 
@@ -316,7 +316,7 @@
 
 **42** A person who killed another person by accident can run to one of these cities. If that person did not hate the dead person before, then he can go to one of these cities and stay alive.
 
-**43** These are the cities: Bezer in the wilderness on the plateau, for the Reubenites; Ramoth in Gilead, for the Gadites; and Golan in Bashan, for the tribe of Manasseh.
+**43** These are the cities. Bezer in the wilderness on the plateau is for the Reubenites. Ramoth in Gilead is for the Gadites. Golan in Bashan is for the tribe of Manasseh.
 
 **44** This is the law that Moses gave to the people of Israel.
 
@@ -372,7 +372,7 @@
 
 **20** Do not tell lies about your neighbor in court.
 
-**21** Do not want to have your neighbor's wife. Do not want to have your neighbor's house, his field, his male servant, his female servant, his ox, his donkey or any thing that is your neighbor's.'
+**21** Do not want to have your neighbor's wife. Do not want to have your neighbor's house or his field. Do not want his male servant, his female servant, his ox, his donkey or any thing that is your neighbor's.'
 
 **22** "The LORD spoke these words with a loud voice to all of you at the mountain. He spoke from the fire, the cloud and the thick darkness. He did not add any other words. He wrote them on 2 tablets of stone and gave them to me.
 
@@ -382,13 +382,13 @@
 
 **25** But why must we die now? This great fire will burn us up. If we hear the voice of the LORD our God again, we will die.
 
-**26** No other human ever heard the voice of the living God speak from the fire, as we did, and stayed alive.
+**26** No other human ever heard the voice of the God who lives, as he spoke from the fire. We heard it, and we stayed alive.
 
 **27** You go near and hear all that the LORD our God says. Then tell us all that the LORD our God tells you. We will listen and obey.'
 
 **28** "The LORD heard your words when you spoke to me. The LORD said to me, 'I heard the words that these people said to you. All that they said is good.
 
-**29** I wish that they always had a heart that fears me and obeys all my commands. Then all would be well for them and for their children for all time.
+**29** I wish that they always had a heart that fears me and obeys all my commands. Then all will be well for them and for their children for all time.
 
 **30** Go and tell them to go back to their tents.
 
@@ -420,7 +420,7 @@
 
 **10** "The LORD your God will bring you into the land that he promised to your fathers, Abraham, Isaac and Jacob. He will give you large and good cities that you did not build.
 
-**11** He will give you houses full of good things that you did not put there. He will give you wells that you did not dig, and vineyards and olive trees that you did not plant. You will eat and you will be satisfied.
+**11** He will give you houses full of good things that you did not put there. He will give you wells that you did not dig, and vineyards and olive trees that you did not plant. You will eat and you will be full.
 
 **12** Then be careful. Do not forget the LORD, who brought you out of the land of Egypt, where you were slaves.
 
@@ -438,7 +438,7 @@
 
 **19** He will push out all your enemies in front of you, as the LORD said.
 
-**20** "In the future your son will ask you, 'What is the purpose of the rules, the laws and the decisions that the LORD our God gave you?'
+**20** "In the future your son will ask you a question. He will ask, 'What is the purpose of the rules, the laws and the decisions that the LORD our God gave you?'
 
 **21** Then tell your son, 'We were slaves of Pharaoh in Egypt. But the LORD brought us out of Egypt with a strong hand.
 
@@ -458,7 +458,7 @@
 
 **3** Do not marry them. Do not give your daughters to their sons. Do not take their daughters for your sons.
 
-**4** If you do this, they will cause your sons to stop obeying me. Your sons will serve other gods. Then the LORD will become angry with you, and he will quickly destroy you.
+**4** If you do this, they will cause your sons to turn away from me. Your sons will serve other gods. Then the LORD will become angry with you, and he will quickly destroy you.
 
 **5** Do these things to them: Destroy their altars. Break their stone pillars. Cut down their Asherah poles. Burn their idols with fire.
 
@@ -496,13 +496,13 @@
 
 **22** The LORD your God will push out those nations in front of you a little at a time. You cannot destroy them all quickly. If you do, the wild animals will become too many for you.
 
-**23** But the LORD your God will give the nations to you. He will cause great confusion among them until they are destroyed.
+**23** But the LORD your God will give the nations to you. He will cause great confusion among them until he destroys them.
 
 **24** He will give their kings to you. You will remove their names from the earth. No one will be able to fight against you. You will destroy all of them.
 
 **25** Burn the idols of their gods with fire. Do not want the silver or the gold on them. Do not take it for yourself. If you do, it will be a trap for you. The LORD your God hates idols.
 
-**26** Do not bring a hated thing into your house. If you do, you will be destroyed, as that thing must be destroyed. Hate it completely, because it must be destroyed.
+**26** Do not bring a hated thing into your house. If you do, God will destroy you, as he will destroy that thing. Hate it completely, because it is under a curse.
 
 ## Chapter 8
 
@@ -524,11 +524,11 @@
 
 **9** In that land you will always have food to eat. You will have all that you need. Its rocks contain iron, and you can dig copper from its hills.
 
-**10** You will eat and be satisfied. Then praise the LORD your God for the good land that he gave you.
+**10** You will eat and be full. Then praise the LORD your God for the good land that he gave you.
 
 **11** "Be careful. Do not forget the LORD your God. Do not fail to obey his commands, his rules and his laws that I give you today.
 
-**12** You will eat and be satisfied. You will build good houses and live in them.
+**12** You will eat and be full. You will build good houses and live in them.
 
 **13** Your cattle and your sheep will become many. You will have much silver and gold. All that you have will increase.
 
@@ -544,7 +544,7 @@
 
 **19** If you forget the LORD your God and worship and serve other gods, you will surely die. I tell you this today.
 
-**20** The LORD destroys other nations in front of you. If you do not obey the LORD your God, you will also be destroyed, as those nations are.
+**20** The LORD destroys other nations in front of you. If you do not obey the LORD your God, you will also die, as those nations die.
 
 ## Chapter 9
 
@@ -682,7 +682,7 @@
 
 **14** If you do this, then I will send rain on your land at the correct time. I will send the autumn rain and the spring rain. Then you will gather your grain, your new wine and your olive oil.
 
-**15** I will put grass in your fields for your animals. You will eat and you will be satisfied.
+**15** I will put grass in your fields for your animals. You will eat and you will be full.
 
 **16** Be careful. Do not let anything tempt your heart to turn away and worship other gods.
 
@@ -708,7 +708,7 @@
 
 **27** You will get the blessing if you obey the commands of the LORD your God that I give you today.
 
-**28** You will get the curse if you do not obey the commands of the LORD your God. You will get the curse if you turn away from the way that I command you today and worship other gods that you did not know.
+**28** You will get the curse if you do not obey the commands of the LORD your God. You will get the curse if you turn away from the way that I command you today. You will get it if you worship other gods that you did not know.
 
 **29** The LORD your God will bring you into the land that you go into to take. Then announce the blessing on Mount Gerizim and the curse on Mount Ebal.
 
@@ -798,7 +798,7 @@
 
 **6** "Your brother, your son, your daughter, your wife or your closest friend can secretly try to tempt you. He can say, 'We will go and worship other gods.' These are gods that you and your fathers did not know.
 
-**7** They can be the gods of the peoples around you, near you or far from you, from one end of the earth to the other end.
+**7** They can be the gods of the peoples around you, near you or far from you. They can be from one end of the earth to the other end.
 
 **8** Do not agree with him and do not listen to him. Do not feel pity for him. Do not protect him or hide him.
 
@@ -812,13 +812,13 @@
 
 **13** The report can say that worthless men went out from among you. They tempted the people of their city. They said, 'We will go and worship other gods,' gods that you did not know.
 
-**14** Then ask questions, examine and find the facts carefully. The report can be true and certain. Such a hated thing can have occurred among you.
+**14** Then ask questions, examine and find the facts carefully. The report can be true and certain. Possibly such a hated thing occurred among you.
 
 **15** If so, kill the people of that city with the sword. Destroy the city completely, with all the people in it and its animals.
 
 **16** Gather all the valuable things from the city into the middle of its public square. Burn the city and all its valuable things with fire as an offering to the LORD your God. The city must stay a pile of ruins for all time. Do not build it again.
 
-**17** Do not keep any of the things that must be destroyed. Then the LORD will stop his anger. He will show you mercy and kindness. He will make you many, as he promised to your fathers.
+**17** Do not keep any of the things that are under a curse. Then the LORD will stop his anger. He will show you mercy and kindness. He will make you many, as he promised to your fathers.
 
 **18** He will do this if you obey the LORD your God. Keep all his commands that I give you today. Do what is right in the eyes of the LORD your God.
 
@@ -880,7 +880,7 @@
 
 **28** "At the end of each 3rd year, bring all the tithe of your crops of that year. Keep it in your towns.
 
-**29** Then the Levites, who do not have their own part of the land, can come and eat. The foreigners, the orphans and the widows in your towns can also come and eat. They will be satisfied. Then the LORD your God will bless you in all the work that you do.
+**29** Then the Levites, who do not have their own part of the land, can come and eat. The foreigners, the orphans and the widows in your towns can also come and eat. They will eat until they are full. Then the LORD your God will bless you in all the work that you do.
 
 ## Chapter 15
 
@@ -946,7 +946,7 @@
 
 **7** Cook it and eat it in the place that the LORD your God will choose. In the morning, go back to your tents.
 
-**8** For 6 days eat bread without yeast. On the 7th day, gather for a special meeting to the LORD your God. Do not do any work on that day.
+**8** For 6 days eat bread without yeast. On the 7th day, gather for a special assembly to the LORD your God. Do not do any work on that day.
 
 **9** "Count 7 weeks. Start to count from the day when you start to cut the grain.
 
@@ -956,7 +956,7 @@
 
 **12** Remember that you were slaves in Egypt. Be careful to obey these laws.
 
-**13** "Keep the Festival of Shelters for 7 days. Do this after you gather the crops from your threshing floor and your winepress.
+**13** "Keep the Festival of Shelters for 7 days. Do this after you gather the grain from your fields and the wine from your winepress.
 
 **14** Be happy at your festival. You, your sons, your daughters and your servants must be happy. The Levites, the foreigners, the orphans and the widows in your towns must also be happy.
 
@@ -980,11 +980,11 @@
 
 **1** "Do not sacrifice to the LORD your God an ox or a sheep that has a defect or any bad problem. The LORD your God hates such sacrifices.
 
-**2** A man or a woman in one of the towns that the LORD your God gives you can do evil in the sight of the LORD your God. That person can break his covenant.
+**2** The LORD your God gives you towns. In one of these towns, a man or a woman can do evil in the sight of the LORD your God. That person can break his covenant.
 
 **3** That person can worship and serve other gods. He can worship the sun, the moon or the stars, which I did not command.
 
-**4** Someone can tell you about it. When you hear about it, examine the report carefully. The report can be true and certain. Such a hated thing can have occurred in Israel.
+**4** Someone can tell you about it. When you hear about it, examine the report carefully. The report can be true and certain. Possibly such a hated thing occurred in Israel.
 
 **5** If so, take the man or the woman who did this evil thing to the gate of your town. Throw stones at that person until he dies.
 
@@ -1072,7 +1072,7 @@
 
 **3** Make roads to these cities. Divide into 3 parts the land that the LORD your God gives you as your property. Then any person who kills another person can run to one of these cities.
 
-**4** "This is the rule for a person who kills another person and runs to one of these cities to stay alive: He killed his neighbor by accident. He did not hate his neighbor before.
+**4** "This is the rule for a person who kills another person and runs to one of these cities to stay alive. He killed his neighbor by accident. He did not hate his neighbor before.
 
 **5** For example, a man goes into the forest with his neighbor to cut wood. He swings his axe to cut down a tree. The head of the axe comes off the handle and hits his neighbor. The neighbor dies. Then the man can run to one of these cities and stay alive.
 
@@ -1106,7 +1106,7 @@
 
 **20** The other people will hear and be afraid. They will not do such an evil thing among you again.
 
-**21** Do not feel pity. Use this rule: a life for a life, an eye for an eye, a tooth for a tooth, a hand for a hand and a foot for a foot.
+**21** Do not feel pity. Use this rule. Take a life for a life and an eye for an eye. Take a tooth for a tooth, a hand for a hand and a foot for a foot.
 
 ## Chapter 20
 
@@ -1126,7 +1126,7 @@
 
 **8** The officers must also say, 'Is any man afraid or without courage? He must go back to his house. If he does not, he will cause his brothers to lose courage too.'
 
-**9** When the officers stop speaking to the army, they must appoint commanders to lead the army.
+**9** When the officers stop their words to the army, they must appoint commanders to lead the army.
 
 **10** "When you come near a city to attack it, first offer peace to its people.
 
@@ -1148,7 +1148,7 @@
 
 **19** "You can attack a city for a long time to capture it. Do not cut down its fruit trees with an axe. You can eat their fruit. Do not cut them down. The trees are not your enemies. Do not attack them as you attack the city.
 
-**20** But you can cut down trees that you know do not give fruit. Use them to build attack structures against the city that fights you. Use them until the city is defeated.
+**20** But you can cut down trees that you know do not give fruit. Use them to build attack structures against the city that fights you. Use them until you defeat the city.
 
 ## Chapter 21
 
@@ -1156,9 +1156,9 @@
 
 **2** Then your elders and your judges must go out. They must measure the distance from the body to the cities around it.
 
-**3** The elders of the city that is nearest to the body must take a young cow. The cow must not have worked or pulled a yoke.
+**3** The elders of the city that is nearest to the body must take a young cow. Nobody used the cow for work. It did not pull a yoke.
 
-**4** The elders of that city must take the young cow down to a valley with a stream. No one must have plowed or planted the valley. There in the valley they must break the neck of the young cow.
+**4** The elders of that city must take the young cow down to a valley with a stream. Nobody plowed or planted the valley. There in the valley they must break the neck of the young cow.
 
 **5** Then the priests, the sons of Levi, must come forward. The LORD your God chose them to serve him and to bless the people in the name of the LORD. They decide each dispute and each case of an attack.
 
@@ -1178,7 +1178,7 @@
 
 **13** She must remove the clothes that she wore when you captured her. She must stay in your house and cry for her father and her mother for 1 full month. After that, you can go to her and be her husband, and she will be your wife.
 
-**14** But if you are not pleased with her, let her go where she wants. Do not sell her for money. Do not treat her as a slave, because you dishonored her.
+**14** But if you are not happy with her, let her go where she wants. Do not sell her for money. Do not treat her as a slave, because you dishonored her.
 
 **15** "A man can have 2 wives. He can love one wife and not love the other. Both wives can have sons for him. The firstborn son can be the son of the wife that he does not love.
 
@@ -1244,7 +1244,7 @@
 
 **22** "A man can have sex with the wife of another man. If someone finds them, both of them must die. The man and the woman must die. Thus remove the evil from Israel.
 
-**23** "A young woman who is a virgin can be engaged to a man. Another man can meet her in a town and have sex with her.
+**23** "A young woman who is a virgin can have a promise of marriage to a man. Another man can meet her in a town and have sex with her.
 
 **24** Then take both of them to the gate of that town. Throw stones at them until they die. The young woman must die because she did not shout for help in the town. The man must die because he dishonored the wife of his neighbor. Thus remove the evil from among you.
 
@@ -1254,7 +1254,7 @@
 
 **27** The man met her in the field. The engaged young woman shouted for help, but no one was there to save her.
 
-**28** "A man can meet a young woman who is a virgin and who is not engaged. He can take her and have sex with her. Then someone can find them.
+**28** "A man can meet a young woman who is a virgin and who has no promise of marriage to a man. He can take her and have sex with her. Then someone can find them.
 
 **29** If so, the man must pay 50 shekels of silver to the father of the young woman. She must become his wife, because he dishonored her. He must not divorce her for all his life.
 
@@ -1262,7 +1262,7 @@
 
 ## Chapter 23
 
-**1** "A man whose sexual organs are crushed or cut off must not come into the assembly of the LORD.
+**1** "A man whose sexual organs have damage or whose sexual organs someone cut off must not come into the assembly of the LORD.
 
 **2** A person born from a forbidden marriage must not come into the assembly of the LORD. His descendants must not come into the assembly of the LORD, even to the 10th generation.
 
@@ -1286,7 +1286,7 @@
 
 **12** "Have a place outside the camp where you can go to be a toilet.
 
-**13** Have a digging tool with your equipment. When you go outside the camp to empty your body, dig a hole with the tool. Then cover your waste.
+**13** Have a tool for holes with your equipment. When you go outside the camp to empty your body, dig a hole with the tool. Then cover your waste.
 
 **14** The LORD your God walks in your camp to protect you and to defeat your enemies in front of you. Thus your camp must be holy. The LORD must not see anything unclean among you. If he does, he will turn away from you.
 
@@ -1314,7 +1314,7 @@
 
 ## Chapter 24
 
-**1** "A man can marry a woman, and then he is not pleased with her because he finds something shameful in her. Then he must write a document of divorce. He must give it to her and send her away from his house.
+**1** "A man can marry a woman, and then he is not happy with her because he finds something shameful in her. Then he must write a document of divorce. He must give it to her and send her away from his house.
 
 **2** After she goes away from his house, she can marry another man.
 
@@ -1352,9 +1352,9 @@
 
 **19** "When you cut the grain in your field, you can forget a bundle of grain. Do not go back to get it. Leave it for the foreigner, the orphan and the widow. Then the LORD your God will bless you in all your work.
 
-**20** When you hit your olive trees to get the olives, do not go over the branches a second time. Leave the remaining olives for the foreigner, the orphan and the widow.
+**20** When you hit your olive trees to get the olives, do not go over the branches a second time. Leave the other olives for the foreigner, the orphan and the widow.
 
-**21** When you gather the grapes in your vineyard, do not go over the vines a second time. Leave the remaining grapes for the foreigner, the orphan and the widow.
+**21** When you gather the grapes in your vineyard, do not go over the vines a second time. Leave the other grapes for the foreigner, the orphan and the widow.
 
 **22** Remember that you were a slave in the land of Egypt. Thus I command you to do this.
 
@@ -1364,7 +1364,7 @@
 
 **2** The guilty man can deserve punishment with a whip. If so, the judge must make him lie down. Then someone must hit him in front of the judge. The number of hits must agree with his crime.
 
-**3** The judge can give him a maximum of 40 hits. He must not give more hits. If someone hits your brother more, he will be dishonored in front of you.
+**3** The judge can give him a maximum of 40 hits. He must not give more hits. If someone hits your brother more, your brother will have shame in front of you.
 
 **4** "Do not put a cover on the mouth of an ox while it walks on the grain to separate it.
 
@@ -1378,7 +1378,7 @@
 
 **9** Then the widow of his brother must go to him in front of the elders. She must pull his sandal off his foot and spit in his face. She must say, 'This is what we do to a man who refuses to give his brother a family.'
 
-**10** In Israel people will call his family 'The family of the man whose sandal was pulled off.'
+**10** In Israel people will call his family 'The family of the man who lost his sandal.'
 
 **11** "2 men can fight together. The wife of one man can come near to save her husband from the man who attacks him. She can put out her hand and take hold of the sexual organs of the other man.
 
@@ -1394,7 +1394,7 @@
 
 **17** "Remember what the Amalekites did to you on the road when you came out of Egypt.
 
-**18** They met you on the road when you were tired and weak. They attacked all the weak people at the rear of your group. They did not fear God.
+**18** They met you on the road when you were weak and had no strength. They attacked all the weak people at the rear of your group. They did not fear God.
 
 **19** The LORD your God will give you rest from all your enemies around you in the land that he gives you as your property. Then destroy the Amalekites completely, so that no one on earth remembers them. Do not forget!
 
@@ -1404,15 +1404,15 @@
 
 **2** Then take some of the first crops that you grow in the land that the LORD your God gives you. Put them in a basket. Go to the place that the LORD your God will choose for his name.
 
-**3** Go to the priest who serves at that time. Say to him, 'Today I tell the LORD your God that I came into the land that the LORD promised to our fathers to give us.'
+**3** Go to the priest who serves at that time. Say to him, 'Today I tell the LORD your God that I came into the land. The LORD promised this land to our fathers to give to us.'
 
 **4** Then the priest must take the basket from you. He must put it down in front of the altar of the LORD your God.
 
-**5** Then say in front of the LORD your God, 'My father was a wandering Aramean. He went down into Egypt with a few people and lived there as a foreigner. There his family became a large, strong nation with many people.
+**5** Then say in front of the LORD your God, 'My father was an Aramean who went from place to place. He went down into Egypt with a few people and lived there as a foreigner. There his family became a large, strong nation with many people.
 
 **6** But the Egyptians treated us badly and caused us to suffer. They made us work hard as slaves.
 
-**7** Then we cried to the LORD, the God of our fathers. The LORD heard us. He saw our suffering, our hard work and our trouble.
+**7** Then we cried to the LORD, the God of our fathers. The LORD heard us. He saw our pain, our hard work and our trouble.
 
 **8** The LORD brought us out of Egypt with a strong hand and a powerful arm. He did great and terrible things. He used signs and wonders.
 
@@ -1422,7 +1422,7 @@
 
 **11** Be happy about all the good things that the LORD your God gave to you and your family. You, the Levites and the foreigners among you must be happy.
 
-**12** "In the 3rd year, the year of the tithe, give the tithe of all your crops. Give it to the Levites, the foreigners, the orphans and the widows. Then they can eat in your towns and be satisfied.
+**12** "In the 3rd year, the year of the tithe, give the tithe of all your crops. Give it to the Levites, the foreigners, the orphans and the widows. Then they can eat in your towns until they are full.
 
 **13** Then say in front of the LORD your God, 'I removed the holy part from my house. I gave it to the Levites, the foreigners, the orphans and the widows, as you commanded me. I did not disobey your commands or forget them.
 
@@ -1450,7 +1450,7 @@
 
 **5** Build an altar of stones there to the LORD your God. Do not use any iron tool on the stones.
 
-**6** Build the altar of the LORD your God with stones that are not cut. Offer burnt offerings on it to the LORD your God.
+**6** Build the altar of the LORD your God with whole stones. Do not cut them with a tool. Offer burnt offerings on it to the LORD your God.
 
 **7** Offer peace offerings and eat them there. Be happy in front of the LORD your God.
 
@@ -1532,17 +1532,17 @@
 
 **19** He will curse you when you come in. He will curse you when you go out.
 
-**20** "The LORD will send on you curses, confusion and trouble in all that you do. He will do this until you are destroyed and die quickly, because you did evil things and left him.
+**20** "The LORD will send on you curses, confusion and trouble in all that you do. He will do this until he destroys you and you die quickly. This will occur because you did evil things and left him.
 
 **21** The LORD will make you sick with terrible diseases until he removes you from the land that you go into to take.
 
-**22** The LORD will attack you with sickness, fever, swelling and burning heat. He will attack you with war, with hot winds and with disease in your plants. These things will chase you until you die.
+**22** The LORD will attack you with sickness, fever and pain. He will attack you with very hot heat, with war, with hot winds and with disease in your plants. These things will chase you until you die.
 
 **23** The sky above you will be hard like bronze. The ground below you will be hard like iron.
 
-**24** The LORD will change the rain of your land into dust. Dust will come down on you from the sky until you are destroyed.
+**24** The LORD will change the rain of your land into dust. Dust will come down on you from the sky until it destroys you.
 
-**25** "The LORD will let your enemies defeat you. You will go against them from 1 direction, but you will run away from them in 7 directions. All the kingdoms of the earth will be terrified when they see you.
+**25** "The LORD will let your enemies defeat you. You will go against them from 1 direction, but you will run away from them in 7 directions. All the kingdoms of the earth will have fear when they see you.
 
 **26** Your dead bodies will be food for all the birds and the wild animals. No one will chase them away.
 
@@ -1566,7 +1566,7 @@
 
 **36** "The LORD will send you and the king that you choose to a nation that you and your fathers did not know. There you will serve other gods, gods of wood and stone.
 
-**37** In all the nations where the LORD sends you, the people will be shocked when they see you. They will laugh at you and make jokes about you.
+**37** In all the nations where the LORD sends you, the people will have shock when they see you. They will laugh at you and make jokes about you.
 
 **38** You will plant much seed in the field, but you will gather only a little crop. Locusts will eat it.
 
@@ -1582,7 +1582,7 @@
 
 **44** They will lend to you, but you will not lend to them. They will be the leaders, and you will be the followers.
 
-**45** "All these curses will come to you. They will chase you and catch you until you are destroyed. This will occur because you did not obey the LORD your God. You did not keep his commands and laws that he gave you.
+**45** "All these curses will come to you. They will chase you and catch you until they destroy you. This will occur because you did not obey the LORD your God. You did not keep his commands and laws that he gave you.
 
 **46** These curses will be a sign and a wonder against you and your descendants for all time.
 
@@ -1594,27 +1594,27 @@
 
 **50** The people of that nation will look cruel. They will not respect old people or show mercy to young people.
 
-**51** They will eat the young of your animals and the crops of your land until you are destroyed. They will not leave you any grain, new wine or olive oil. They will not leave you any young cattle or sheep. They will do this until they destroy you.
+**51** They will eat the young of your animals and the crops of your land until they destroy you. They will not leave you any grain, new wine or olive oil. They will not leave you any young cattle or sheep. They will do this until they destroy you.
 
 **52** They will attack all the towns in your land. They will attack until your high, strong walls fall down. You trusted these walls. They will attack all the towns in the land that the LORD your God gave you.
 
 **53** "Your enemies will put their army around your towns, and you will suffer greatly. Then you will eat your own children. You will eat the bodies of the sons and daughters that the LORD your God gave you.
 
-**54** Even the most gentle and kind man among you will become selfish. He will refuse to share food with his brother, his loved wife and his remaining children.
+**54** Even the most gentle and kind man among you will become selfish. He will refuse to share food with his brother, his loved wife and the children that he still has.
 
-**55** He will not give them any of the meat of his children that he eats. He will have nothing else to eat, because of the suffering that your enemies cause in all your towns.
+**55** He will not give them any of the meat of his children that he eats. He will have nothing else to eat, because of the pain that your enemies cause in all your towns.
 
 **56** Even the most gentle and kind woman among you will become selfish. Before, she was too gentle to put her foot on the ground. But she will refuse to share food with her loved husband, her son and her daughter.
 
-**57** She will secretly eat the baby that she gives birth to. She will eat her children because she has nothing else to eat. This will occur because of the suffering that your enemies cause in your towns.
+**57** She will secretly eat the baby that she gives birth to. She will eat her children because she has nothing else to eat. This will occur because of the pain that your enemies cause in your towns.
 
-**58** "Be careful to obey all the words of this law that are written in this book. Fear this glorious and terrible name, the LORD your God.
+**58** "Be careful to obey all the words of this law that Moses wrote in this book. Fear this glorious and terrible name, the LORD your God.
 
 **59** If you do not, the LORD will send terrible disasters on you and your descendants. He will send great disasters that continue for a long time. He will send bad sicknesses that continue for a long time.
 
 **60** He will send on you all the diseases of Egypt that you were afraid of. These diseases will stay with you.
 
-**61** The LORD will also send each sickness and each disaster that is not written in this book of the law. He will send them until you are destroyed.
+**61** The LORD will also send each sickness and each disaster that this book of the law does not name. He will send them until he destroys you.
 
 **62** You were as many as the stars in the sky. But only a few of you will stay alive, because you did not obey the LORD your God.
 
@@ -1634,7 +1634,7 @@
 
 **1** These are the words of the covenant that the LORD commanded Moses to make with the people of Israel in the land of Moab. This covenant is in addition to the covenant that the LORD made with them at Horeb.
 
-**2** Moses called all Israel together. He said to them, "You saw all that the LORD did in the land of Egypt to Pharaoh, to all his officials and to all his land.
+**2** Moses called all Israel together. He said to them, "You saw all that the LORD did in the land of Egypt. You saw what he did to Pharaoh, to all his officials and to all his land.
 
 **3** You saw the great tests, the signs and the great wonders.
 
@@ -1670,9 +1670,9 @@
 
 **19** That person can hear the words of this curse but think that he is safe. He can say, 'All will be well for me, even if I do what I want.' This person will cause destruction to the good and the bad alike.
 
-**20** The LORD will not forgive that person. The anger and the jealousy of the LORD will burn against him. All the curses that are written in this book will come to him. The LORD will remove his name from the earth.
+**20** The LORD will not forgive that person. The anger and the jealousy of the LORD will burn against him. All the curses in this book will come to him. The LORD will remove his name from the earth.
 
-**21** The LORD will choose him from all the tribes of Israel for disaster. He will do to him all the curses of the covenant that are written in this book of the law.
+**21** The LORD will choose him from all the tribes of Israel for disaster. He will do to him all the curses of the covenant in this book of the law.
 
 **22** "Your children in future generations will see the disasters and the sicknesses that the LORD sends on that land. Foreigners from far away will also see them.
 
@@ -1684,7 +1684,7 @@
 
 **26** They went and served and worshipped other gods. They did not know these gods, and the LORD did not give these gods to them.
 
-**27** So the LORD became angry with this land. He brought on it all the curses that are written in this book.
+**27** So the LORD became angry with this land. He brought on it all the curses in this book.
 
 **28** The LORD was very angry, and he removed them from their land. He sent them into another land, as it is today.'
 
@@ -1710,7 +1710,7 @@
 
 **9** The LORD your God will make you very successful in all your work. He will give you many children, many young animals and many crops. The LORD will again be happy to do good things for you, as he was happy with your fathers.
 
-**10** He will do this if you obey the LORD your God. Keep his commands and his laws that are written in this book of the law. Come back to the LORD your God with all your heart and with all your soul.
+**10** He will do this if you obey the LORD your God. Keep his commands and his laws in this book of the law. Come back to the LORD your God with all your heart and with all your soul.
 
 **11** "The command that I give you today is not too difficult for you. It is not too far away from you.
 
@@ -1726,7 +1726,7 @@
 
 **17** But your heart can turn away, and you can refuse to obey. Something can tempt you to bow down to other gods and worship them.
 
-**18** If so, I tell you today that you will surely be destroyed. You will not live for a long time in the land that you go across the Jordan to take.
+**18** If so, I tell you today that you will surely die. You will not live for a long time in the land that you go across the Jordan to take.
 
 **19** Today I tell heaven and earth to be witnesses against you. I give you a choice between life and death, between blessings and curses. Choose life, so that you and your descendants will live.
 
@@ -1772,7 +1772,7 @@
 
 **19** "So write this song for yourselves. Teach it to the people of Israel and help them sing it. Then this song will be my witness against the people of Israel.
 
-**20** I will bring them into the land that I promised to their fathers. It is a land that has much milk and honey. They will eat until they are satisfied and fat. Then they will turn to other gods and worship them. They will reject me and break my covenant.
+**20** I will bring them into the land that I promised to their fathers. It is a land that has much milk and honey. They will eat until they are full and fat. Then they will turn to other gods and worship them. They will reject me and break my covenant.
 
 **21** Then many disasters and troubles will come to them. This song will be a witness against them, because their descendants will not forget it. I know what they plan to do now, before I bring them into the land that I promised."
 
@@ -1798,7 +1798,7 @@
 
 **1** "Heavens, listen, and I will speak. Earth, hear the words of my mouth.
 
-**2** Let my teaching fall like rain. Let my words come down like dew, like light rain on new grass, like showers on plants.
+**2** My words will fall like rain. My message will come down like dew. It will be like light rain on new grass and like showers on plants.
 
 **3** I will announce the name of the LORD. Praise the greatness of our God!
 
@@ -1866,7 +1866,7 @@
 
 **35** I will punish them and pay them back. At the correct time, their feet will slip. The day of their disaster is near. Their destruction will come quickly.'
 
-**36** The LORD will judge his people and show mercy to his servants. He will see that their strength is gone. He will see that no one is left, slave or free.
+**36** The LORD will judge his people and show mercy to his servants. He will see that their strength is gone. He will see that no one remains, slave or free.
 
 **37** Then he will say, 'Where are their gods now? Where is the rock that they trusted?
 
@@ -1876,9 +1876,9 @@
 
 **40** I lift up my hand to heaven and make a solemn promise. As surely as I live for all time,
 
-**41** I will sharpen my shining sword. I will take hold of it to judge. I will punish my enemies. I will pay back the people who hate me.
+**41** I will sharpen my bright sword. I will take hold of it to judge. I will punish my enemies. I will pay back the people who hate me.
 
-**42** My arrows will be covered with their blood. My sword will kill many people. I will kill the wounded and the prisoners. I will kill the leaders of the enemy.'
+**42** Their blood will cover my arrows. My sword will kill many people. I will kill the wounded and the prisoners. I will kill the leaders of the enemy.'
 
 **43** Nations, be happy with his people. He will punish the people who kill his servants. He will punish his enemies. He will make his land and his people clean from sin."
 
@@ -1886,7 +1886,7 @@
 
 **45** Moses completed all these words to all Israel.
 
-**46** Then he said to them, "Think carefully about all the words that I tell you today as a warning. Command your children to carefully obey all the words of this law.
+**46** Then he said to them, "Think carefully about all the words that I tell you today to warn you. Command your children to carefully obey all the words of this law.
 
 **47** These words are not useless for you. They are your life. If you obey them, you will live for a long time in the land that you go across the Jordan to take."
 
@@ -1932,7 +1932,7 @@
 
 **15** Let him bless it with the best things of the old mountains and the hills that last for all time.
 
-**16** Let him bless it with the best gifts of the earth and all that it contains. Let him bless it with the kindness of the LORD, who lived in the burning bush. Let these blessings come on the head of Joseph. He was the prince among his brothers.
+**16** Let him bless it with the best gifts of the earth and all that it contains. Let him bless it with the kindness of the LORD, who lived in the bush that burned. Let these blessings come on the head of Joseph. He was the prince among his brothers.
 
 **17** He is strong like a firstborn bull. His horns are like the horns of a wild ox. With them he will push back the nations, all the way to the ends of the earth. These horns are the 10,000s of Ephraim and the 1,000s of Manasseh."
 
@@ -1942,7 +1942,7 @@
 
 **20** About Gad he said, "Praise the LORD, who makes the land of Gad larger. Gad lives there like a lion. He tears off the arm and the head of his enemies.
 
-**21** He chose the best land for himself. The part of a leader was kept for him. He came with the leaders of the people. He did what the LORD said was right. He obeyed the rules of the LORD with Israel."
+**21** He chose the best land for himself. He received the part of a leader. He came with the leaders of the people. He did what the LORD said was right. He obeyed the rules of the LORD with Israel."
 
 **22** About Dan he said, "Dan is a young lion. He jumps out from Bashan."
 
@@ -1976,7 +1976,7 @@
 
 **7** Moses was 120 years old when he died. His eyes were still good, and he was still strong.
 
-**8** The people of Israel cried for Moses in the plains of Moab for 30 days. Then the time of mourning for Moses ended.
+**8** The people of Israel cried for Moses in the plains of Moab for 30 days. Then the time when they mourned for Moses ended.
 
 **9** Joshua the son of Nun was full of the spirit of wisdom, because Moses put his hands on him. So the people of Israel obeyed Joshua. They did as the LORD commanded Moses.
 

@@ -36,7 +36,7 @@
 
 **17** So Ahaziah died, as the LORD said through Elijah. Ahaziah had no son. Thus Jehoram became king after him. This occurred in the second year of Jehoram son of Jehoshaphat, the king of Judah.
 
-**18** The other things that Ahaziah did are written in the book of the history of the kings of Israel.
+**18** The book of the history of the kings of Israel tells the other things that Ahaziah did.
 
 ## Chapter 2
 
@@ -118,7 +118,7 @@
 
 **13** Elisha said to the king of Israel, "I have nothing to do with you. Go to the prophets of your father and of your mother." The king of Israel said, "No. The LORD called us 3 kings together to give us to Moab."
 
-**14** Elisha said, "As surely as the LORD of armies lives, whom I serve, I respect Jehoshaphat the king of Judah. If he was not here, I would not look at you or see you.
+**14** Elisha said, "As surely as the LORD of armies lives, whom I serve, I respect Jehoshaphat the king of Judah. If he is not here, I will not look at you or see you.
 
 **15** But now bring me a man who plays the harp." While the man played, the power of the LORD came on Elisha.
 
@@ -142,7 +142,7 @@
 
 **25** They destroyed the cities. Each man threw a stone on every good field until the fields were full of stones. They blocked all the springs of water. They cut down all the good trees. Only the city of Kir-haraseth stayed with its stone walls. But the men with slings surrounded it and attacked it.
 
-**26** The king of Moab saw that he was losing the battle. So he took 700 men with swords. They tried to break through to the king of Edom, but they could not.
+**26** The king of Moab saw that the battle was too strong for him. So he took 700 men with swords. They tried to break through to the king of Edom, but they could not.
 
 **27** Then the king of Moab took his oldest son, who was to become king after him. He sacrificed his son as a burnt offering on the city wall. Then there was great anger against Israel. So the Israelites went away from the king of Moab and went back to their land.
 
@@ -214,7 +214,7 @@
 
 **33** Elisha went in and closed the door behind the 2 of them. Then he prayed to the LORD.
 
-**34** He went up on the bed and lay on the child. He put his mouth on the mouth of the child, his eyes on the eyes of the child, and his hands on the hands of the child. He stretched out on the child, and the body of the child became warm.
+**34** He went up on the bed and lay on the child. He put his mouth on the mouth of the child and his eyes on the eyes of the child. He put his hands on the hands of the child. He stretched out on the child, and the body of the child became warm.
 
 **35** Elisha got up and walked back and forth in the house. Then he went up and stretched out on the child again. The child sneezed 7 times and opened his eyes.
 
@@ -242,7 +242,7 @@
 
 **2** Groups of Syrian soldiers went out and attacked Israel. They took a young girl from the land of Israel as a prisoner. She became the servant of the wife of Naaman.
 
-**3** The girl said to her mistress, "I wish that my master was with the prophet who is in Samaria! That prophet would cure him of his leprosy."
+**3** The girl said to her mistress, "I wish that my master was with the prophet who is in Samaria! That prophet can cure him of his leprosy."
 
 **4** Naaman went in and told his master, "The girl from the land of Israel said these things."
 
@@ -258,11 +258,11 @@
 
 **10** Elisha sent a messenger to him. The messenger said, "Go and wash in the Jordan River 7 times. Then your skin will become healthy again, and you will be clean."
 
-**11** But Naaman became angry and went away. He said, "I thought that he would surely come out to me. I thought that he would stand and call on the name of the LORD his God. Then he would move his hand over the area and cure the leprosy.
+**11** But Naaman became angry and went away. He said, "I thought that he will surely come out to me. I thought that he will stand and call on the name of the LORD his God. I thought that he will move his hand over the area and cure the leprosy.
 
 **12** The Abana and the Pharpar, the rivers of Damascus, are better than all the water in Israel. Can I not wash in them and be clean?" So he turned and went away very angry.
 
-**13** His servants came near and spoke to him. They said, "My father, if the prophet told you to do a difficult thing, you would do it. Thus you must surely obey when he tells you only, 'Wash and be clean.'"
+**13** His servants came near and spoke to him. They said, "My father, if the prophet told you to do a difficult thing, you were ready to do it. He only told you, 'Wash and be clean.' Thus you must surely obey him."
 
 **14** So Naaman went down and went under the water of the Jordan 7 times, as the man of God told him. His skin became healthy again, as the skin of a little child. He was clean.
 
@@ -276,7 +276,7 @@
 
 **19** Elisha said to him, "Go in peace." So Naaman went a short distance away from him.
 
-**20** Gehazi was the servant of Elisha the man of God. He said to himself, "My master let this Syrian Naaman go without accepting the gifts that Naaman brought. As surely as the LORD lives, I will run after him and get something from him."
+**20** Gehazi was the servant of Elisha the man of God. He said to himself, "My master let this Syrian Naaman go. He did not accept the gifts that Naaman brought. As surely as the LORD lives, I will run after him and get something from him."
 
 **21** So Gehazi followed Naaman. Naaman saw him run after him. So he got down from the chariot to meet him. He asked, "Is all well?"
 
@@ -346,7 +346,7 @@
 
 **26** The king of Israel walked on the wall of the city. A woman cried out to him, "Help me, my lord the king!"
 
-**27** The king said, "If the LORD does not help you, how can I help you? I have no grain from the threshing floor. I have no wine from the winepress."
+**27** The king said, "If the LORD does not help you, how can I help you? I have no grain from the grain floor. I have no wine from the winepress."
 
 **28** Then the king asked her, "What is your problem?" She answered, "This woman said to me, 'Give me your son. We will eat him today. Tomorrow we will eat my son.'
 
@@ -448,7 +448,7 @@
 
 **22** So Edom continued in rebellion against Judah to this day. At the same time, the city of Libnah also started a rebellion.
 
-**23** The other things that Jehoram did are written in the book of the history of the kings of Judah.
+**23** The book of the history of the kings of Judah tells the other things that Jehoram did.
 
 **24** Jehoram died, and the people buried him with his ancestors in the City of David. Then his son Ahaziah became king after him.
 
@@ -456,11 +456,11 @@
 
 **26** Ahaziah was 22 years old when he became king. He ruled in Jerusalem for 1 year. His mother was Athaliah, a granddaughter of Omri the king of Israel.
 
-**27** Ahaziah lived as the family of Ahab lived. He did evil in the sight of the LORD, as the family of Ahab did. He was related to the family of Ahab through marriage.
+**27** Ahaziah lived as the family of Ahab lived. He did evil in the sight of the LORD, as the family of Ahab did. He was a relative of the family of Ahab through marriage.
 
 **28** Ahaziah went with Joram son of Ahab to fight against Hazael the king of Syria at Ramoth-gilead. The Syrians wounded Joram.
 
-**29** So King Joram went back to Jezreel to become well from the wounds. The Syrians gave him these wounds at Ramah when he fought against Hazael the king of Syria. Ahaziah son of Jehoram, the king of Judah, went down to Jezreel. He went to visit Joram son of Ahab, because Joram was wounded.
+**29** So King Joram went back to Jezreel to become well from the wounds. The Syrians gave him these wounds at Ramah when he fought against Hazael the king of Syria. Ahaziah son of Jehoram, the king of Judah, went down to Jezreel. He went to visit Joram son of Ahab, because Joram had wounds.
 
 ## Chapter 9
 
@@ -578,7 +578,7 @@
 
 **19** Now call all the prophets of Baal, all his servants, and all his priests to me. Do not let one of them stay away. I will make a large sacrifice to Baal. Any person who does not come will die." But Jehu tricked them. He wanted to destroy the worshippers of Baal.
 
-**20** Jehu said, "Announce a holy meeting for Baal." So they announced it.
+**20** Jehu said, "Announce a holy assembly for Baal." So they announced it.
 
 **21** Jehu sent messages through all Israel. All the worshippers of Baal came. Not one man stayed away. They went into the temple of Baal. The temple was full from one end to the other.
 
@@ -606,7 +606,7 @@
 
 **33** He took the land east of the Jordan. He took all the land of Gilead, the land of Gad, Reuben, and Manasseh. He took the land from Aroer by the Arnon River, through Gilead and Bashan.
 
-**34** The other things that Jehu did, and all his power, are written in the book of the history of the kings of Israel.
+**34** The book of the history of the kings of Israel tells the other things that Jehu did, and all his power.
 
 **35** Jehu died, and the people buried him in Samaria. Then his son Jehoahaz became king after him.
 
@@ -666,7 +666,7 @@
 
 **4** Jehoash said to the priests, "Collect all the money that people bring as holy gifts to the temple of the LORD. Collect the money from the census tax. Collect the money that people must pay for their vows. Collect the money that people give freely to the temple of the LORD.
 
-**5** Let each priest take the money from the people that he knows. Then let the priests use the money to repair the temple where it is damaged."
+**5** Let each priest take the money from the people that he knows. Then let the priests use the money to repair the temple where it has damage."
 
 **6** But by the 23rd year of King Jehoash, the priests did not repair the temple.
 
@@ -682,7 +682,7 @@
 
 **12** They also paid the stone workers and the stone cutters. They bought wood and cut stone to repair the temple of the LORD. They paid for all the other costs of the repairs.
 
-**13** But they did not use the money to make silver bowls, wick cutters, basins, trumpets, or other objects of gold or silver for the temple of the LORD.
+**13** But they did not use the money to make silver bowls, wick cutters, basins, or trumpets for the temple of the LORD. They did not make other objects of gold or silver with it.
 
 **14** They gave the money to the workers, who used it to repair the temple of the LORD.
 
@@ -694,7 +694,7 @@
 
 **18** Jehoash the king of Judah took all the holy objects that his ancestors Jehoshaphat, Jehoram, and Ahaziah, the kings of Judah, gave to the LORD. He took his own holy objects too. He also took all the gold in the treasuries of the temple of the LORD and of the palace. He sent all of it to Hazael the king of Syria. Then Hazael went away from Jerusalem.
 
-**19** The other things that Joash did are written in the book of the history of the kings of Judah.
+**19** The book of the history of the kings of Judah tells the other things that Joash did.
 
 **20** His officers made a secret plan against him. They killed Joash at Beth-millo, on the road that goes down to Silla.
 
@@ -714,9 +714,9 @@
 
 **6** But they did not stop the sins of the family of Jeroboam, who caused Israel to sin. They continued in these sins. The Asherah pole also stayed in Samaria.
 
-**7** The army of Jehoahaz had only 50 horsemen, 10 chariots, and 10,000 foot soldiers. The king of Syria destroyed the others. He made them as dust at the threshing floor.
+**7** The army of Jehoahaz had only 50 horsemen, 10 chariots, and 10,000 foot soldiers. The king of Syria destroyed the others. He made them as dust that people beat on the grain floor.
 
-**8** The other things that Jehoahaz did, and his power, are written in the book of the history of the kings of Israel.
+**8** The book of the history of the kings of Israel tells the other things that Jehoahaz did, and his power.
 
 **9** Jehoahaz died, and the people buried him in Samaria. Then his son Joash became king after him.
 
@@ -724,7 +724,7 @@
 
 **11** He did evil in the sight of the LORD. He did not stop all the sins of Jeroboam son of Nebat, who caused Israel to sin. He continued in them.
 
-**12** The other things that Joash did, and his power in the war against Amaziah the king of Judah, are written in the book of the history of the kings of Israel.
+**12** The book of the history of the kings of Israel tells the other things that Joash did. It tells about his power in the war against Amaziah the king of Judah.
 
 **13** Joash died, and Jeroboam sat on his throne. The people buried Joash in Samaria with the kings of Israel.
 
@@ -738,7 +738,7 @@
 
 **18** Elisha said, "Take the arrows." So the king took them. Elisha said to the king of Israel, "Hit the ground with them." The king hit the ground 3 times and stopped.
 
-**19** The man of God was angry with him. He said, "You must hit the ground 5 or 6 times. Then you would defeat Syria completely. But now you will defeat Syria only 3 times."
+**19** The man of God was angry with him. He said, "You must hit the ground 5 or 6 times. Then you will defeat Syria completely. But now you will defeat Syria only 3 times."
 
 **20** Elisha died, and the people buried him. Groups of Moabite soldiers attacked the land each spring.
 
@@ -746,7 +746,7 @@
 
 **22** Hazael the king of Syria made Israel suffer during all the rule of Jehoahaz.
 
-**23** But the LORD was kind to the Israelites and had pity on them. He was concerned about them because of his covenant with Abraham, Isaac, and Jacob. He did not want to destroy them. He did not send them away from him at that time.
+**23** But the LORD was kind to the Israelites and had pity on them. He cared about them because of his covenant with Abraham, Isaac, and Jacob. He did not want to destroy them. He did not send them away from him at that time.
 
 **24** Hazael the king of Syria died. Then his son Ben-hadad became king after him.
 
@@ -770,7 +770,7 @@
 
 **8** Then Amaziah sent messengers to Jehoash son of Jehoahaz, son of Jehu, the king of Israel. He said, "Come, let us meet face to face in battle."
 
-**9** But Jehoash the king of Israel sent this answer to Amaziah the king of Judah: "A thistle in Lebanon sent a message to a cedar in Lebanon. It said, 'Give your daughter to my son as his wife.' Then a wild animal in Lebanon went by and walked on the thistle.
+**9** But Jehoash the king of Israel sent this answer to Amaziah the king of Judah. He said, "A thistle in Lebanon sent a message to a cedar in Lebanon. It said, 'Give your daughter to my son as his wife.' Then a wild animal in Lebanon went by and walked on the thistle.
 
 **10** You defeated Edom, and now you are proud. Be happy with your victory, but stay at home. Why do you cause trouble for yourself? You and Judah will both fall."
 
@@ -782,13 +782,13 @@
 
 **14** He took all the gold, the silver, and all the objects in the temple of the LORD and in the treasuries of the palace. He also took prisoners. Then he went back to Samaria.
 
-**15** The other things that Jehoash did, his power, and his war against Amaziah the king of Judah are written in the book of the history of the kings of Israel.
+**15** The book of the history of the kings of Israel tells the other things that Jehoash did, and his power. It tells about his war against Amaziah the king of Judah.
 
 **16** Jehoash died, and the people buried him in Samaria with the kings of Israel. Then his son Jeroboam became king after him.
 
 **17** Amaziah son of Joash, the king of Judah, lived 15 years after the death of Jehoash son of Jehoahaz, the king of Israel.
 
-**18** The other things that Amaziah did are written in the book of the history of the kings of Judah.
+**18** The book of the history of the kings of Judah tells the other things that Amaziah did.
 
 **19** Some people in Jerusalem made a secret plan against Amaziah. He ran away to Lachish. But they sent men after him to Lachish, and these men killed him there.
 
@@ -802,15 +802,15 @@
 
 **24** He did evil in the sight of the LORD. He did not stop all the sins of Jeroboam son of Nebat, who caused Israel to sin.
 
-**25** Jeroboam took back the land of Israel from Lebo-hamath to the Dead Sea. The LORD, the God of Israel, said that this would occur. He said it through his servant Jonah son of Amittai, the prophet from Gath-hepher.
+**25** Jeroboam took back the land of Israel from Lebo-hamath to the Dead Sea. The LORD, the God of Israel, said that this will occur. He said it through his servant Jonah son of Amittai, the prophet from Gath-hepher.
 
 **26** The LORD saw that the Israelites suffered very much. There was no person to help Israel, slave or free.
 
-**27** The LORD did not say that he would remove the name of Israel from the earth. So he saved them through Jeroboam son of Joash.
+**27** The LORD did not say that he will remove the name of Israel from the earth. So he saved them through Jeroboam son of Joash.
 
-**28** The other things that Jeroboam did, and his power, are written in the book of the history of the kings of Israel. The book tells how he fought. It tells how he got back Damascus and Hamath for Israel. These cities were part of Judah before.
+**28** The book of the history of the kings of Israel tells the other things that Jeroboam did, and his power. The book tells how he fought. It tells how he got back Damascus and Hamath for Israel. These cities were part of Judah before.
 
-**29** Jeroboam died and was buried with the kings of Israel. Then his son Zechariah became king after him.
+**29** Jeroboam died, and the people buried him with the kings of Israel. Then his son Zechariah became king after him.
 
 ## Chapter 15
 
@@ -824,7 +824,7 @@
 
 **5** The LORD gave the king leprosy, and he had it until the day of his death. He lived in a separate house. Jotham, the son of the king, was in charge of the palace. Jotham governed the people of the land.
 
-**6** The other things that Azariah did are written in the book of the history of the kings of Judah.
+**6** The book of the history of the kings of Judah tells the other things that Azariah did.
 
 **7** Azariah died, and the people buried him with his ancestors in the City of David. Then his son Jotham became king after him.
 
@@ -834,7 +834,7 @@
 
 **10** Shallum son of Jabesh made a secret plan against Zechariah. He attacked him in front of the people and killed him. Then Shallum became king after him.
 
-**11** The other things that Zechariah did are written in the book of the history of the kings of Israel.
+**11** The book of the history of the kings of Israel tells the other things that Zechariah did.
 
 **12** Thus the word of the LORD to Jehu came true. The LORD told him, "Your descendants will sit on the throne of Israel for 4 generations." And that occurred.
 
@@ -842,7 +842,7 @@
 
 **14** Then Menahem son of Gadi went up from Tirzah to Samaria. He attacked Shallum son of Jabesh in Samaria and killed him. Then Menahem became king after him.
 
-**15** The other things that Shallum did, and his secret plan, are written in the book of the history of the kings of Israel.
+**15** The book of the history of the kings of Israel tells the other things that Shallum did, and his secret plan.
 
 **16** At that time Menahem attacked Tiphsah and all the people in it. He also attacked the area around it, from Tirzah. He attacked the city because the people did not open the gates to him. He cut open all the pregnant women there.
 
@@ -854,7 +854,7 @@
 
 **20** Menahem got this money from Israel. He made each rich man pay 50 shekels of silver. He gave the money to the king of Assyria. So the king of Assyria went back and did not stay in the land.
 
-**21** The other things that Menahem did are written in the book of the history of the kings of Israel.
+**21** The book of the history of the kings of Israel tells the other things that Menahem did.
 
 **22** Menahem died. Then his son Pekahiah became king after him.
 
@@ -864,7 +864,7 @@
 
 **25** Pekah son of Remaliah, one of his officers, made a secret plan against him. Pekah took 50 men from Gilead with him. He attacked Pekahiah in the strong part of the palace in Samaria. He also killed Argob and Arieh. Thus Pekah killed Pekahiah and became king after him.
 
-**26** The other things that Pekahiah did are written in the book of the history of the kings of Israel.
+**26** The book of the history of the kings of Israel tells the other things that Pekahiah did.
 
 **27** Pekah son of Remaliah became king of Israel in Samaria in the 52nd year of Azariah, the king of Judah. Pekah ruled for 20 years.
 
@@ -874,7 +874,7 @@
 
 **30** Then Hoshea son of Elah made a secret plan against Pekah son of Remaliah. He attacked and killed Pekah. Then Hoshea became king after him. This occurred in the 20th year of Jotham son of Uzziah.
 
-**31** The other things that Pekah did are written in the book of the history of the kings of Israel.
+**31** The book of the history of the kings of Israel tells the other things that Pekah did.
 
 **32** Jotham son of Uzziah became king of Judah in the 2nd year of Pekah son of Remaliah, the king of Israel.
 
@@ -884,7 +884,7 @@
 
 **35** But the people did not remove the high places of worship. The people continued to make sacrifices and burn incense at the high places. Jotham built the Upper Gate of the temple of the LORD.
 
-**36** The other things that Jotham did are written in the book of the history of the kings of Judah.
+**36** The book of the history of the kings of Judah tells the other things that Jotham did.
 
 **37** At that time the LORD started to send Rezin the king of Syria and Pekah son of Remaliah against Judah.
 
@@ -910,7 +910,7 @@
 
 **9** The king of Assyria agreed. He attacked Damascus and captured it. He took the people of Damascus as prisoners to Kir. He killed Rezin.
 
-**10** King Ahaz went to Damascus to meet Tiglath-pileser the king of Assyria. He saw an altar at Damascus. King Ahaz sent a drawing of the altar to Urijah the priest. The drawing showed all the details of how to make the altar.
+**10** King Ahaz went to Damascus to meet Tiglath-pileser the king of Assyria. He saw an altar at Damascus. King Ahaz sent a plan of the altar to Urijah the priest. The plan showed all the details of how to make the altar.
 
 **11** Urijah the priest built an altar as King Ahaz told him in the message from Damascus. Urijah finished it before King Ahaz came back from Damascus.
 
@@ -926,9 +926,9 @@
 
 **17** King Ahaz cut off the side panels of the stands. He removed the basins from them. He took down the large bronze water tank, called the Sea, from the bronze bulls under it. He put it on a stone base.
 
-**18** He removed the covered area for the Sabbath that was built at the temple. He also removed the outside entrance of the king from the temple of the LORD. He did these things to please the king of Assyria.
+**18** He removed the covered area for the Sabbath that the people built at the temple. He also removed the outside entrance of the king from the temple of the LORD. He did these things to please the king of Assyria.
 
-**19** The other things that Ahaz did are written in the book of the history of the kings of Judah.
+**19** The book of the history of the kings of Judah tells the other things that Ahaz did.
 
 **20** Ahaz died, and the people buried him with his ancestors in the City of David. Then his son Hezekiah became king after him.
 
@@ -974,11 +974,11 @@
 
 **20** So the LORD rejected all the descendants of Israel. He punished them. He gave them to enemies who took their possessions. At last he sent them away from his presence.
 
-**21** The LORD took Israel away from the family of David. The Israelites made Jeroboam son of Nebat king. Jeroboam caused Israel to stop following the LORD. He caused them to do a great sin.
+**21** The LORD took Israel away from the family of David. The Israelites made Jeroboam son of Nebat king. Jeroboam caused Israel to stop. They did not follow the LORD. He caused them to do a great sin.
 
 **22** The Israelites continued in all the sins of Jeroboam. They did not stop these sins.
 
-**23** At last the LORD removed Israel from his presence. He said that he would do this through all his servants the prophets. So the Assyrians took the Israelites from their land to Assyria. They are there to this day.
+**23** At last the LORD removed Israel from his presence. He told all his servants the prophets that he will do this. So the Assyrians took the Israelites from their land to Assyria. They are there to this day.
 
 **24** The king of Assyria brought people from Babylon, Cuthah, Avva, Hamath, and Sepharvaim. He put them in the cities of Samaria in place of the Israelites. These people took control of Samaria and lived in its cities.
 
@@ -1028,7 +1028,7 @@
 
 **5** Hezekiah trusted the LORD, the God of Israel. There was no king of Judah as Hezekiah, before him or after him.
 
-**6** He stayed loyal to the LORD. He did not stop following him. He obeyed the commands that the LORD gave to Moses.
+**6** He stayed loyal to the LORD. He did not stop. He continued to follow him. He obeyed the commands that the LORD gave to Moses.
 
 **7** The LORD was with Hezekiah. Hezekiah was successful in all that he did. He started a rebellion against the king of Assyria and did not serve him.
 
@@ -1058,7 +1058,7 @@
 
 **20** You say that you have good plans and power for war. But your words are empty. On whom do you depend? Who gives you the courage to start a rebellion against me?
 
-**21** Look, you depend on Egypt. Egypt is as a broken reed. If a man leans on it as a walking stick, it will cut his hand. Pharaoh the king of Egypt is as that reed to all who depend on him.
+**21** Look, you depend on Egypt. Egypt is as a broken reed. If a man leans on it as a stick, it will cut his hand. Pharaoh the king of Egypt is as that reed to all who depend on him.
 
 **22** Maybe you will tell me, "We depend on the LORD our God." But Hezekiah removed the high places and altars of the LORD. Hezekiah told Judah and Jerusalem, "You must worship at this altar in Jerusalem."'
 
@@ -1090,7 +1090,7 @@
 
 **36** But the people were silent. They did not answer him with one word, because the king commanded, "Do not answer him."
 
-**37** Then Eliakim son of Hilkiah, the manager of the palace, Shebna the secretary, and Joah son of Asaph, the recorder, went to Hezekiah. Their clothes were torn. They told him the words of Rab-shakeh.
+**37** Then Eliakim son of Hilkiah, the manager of the palace, Shebna the secretary, and Joah son of Asaph, the recorder, went to Hezekiah. Their clothes had tears in them. They told him the words of Rab-shakeh.
 
 ## Chapter 19
 
@@ -1100,7 +1100,7 @@
 
 **3** They said to Isaiah, "Hezekiah says this: 'Today is a day of trouble, of punishment, and of shame. We are as a woman who is ready to give birth, but she does not have the strength to give birth.
 
-**4** Maybe the LORD your God will hear all the words of Rab-shakeh. His master the king of Assyria sent him to insult the living God. Maybe the LORD your God will punish him for the words that the LORD heard. Thus pray for the people who remain alive.'"
+**4** Possibly the LORD your God will hear all the words of Rab-shakeh. His master the king of Assyria sent him to insult the God who lives. Possibly the LORD your God will punish him for the words that the LORD heard. Thus pray for the people who remain alive.'"
 
 **5** So the officers of King Hezekiah came to Isaiah.
 
@@ -1124,7 +1124,7 @@
 
 **15** Hezekiah prayed to the LORD. He said, "LORD, God of Israel, you sit on your throne above the cherubim. You alone are God of all the kingdoms of the earth. You made the heavens and the earth.
 
-**16** LORD, listen and hear. LORD, open your eyes and see. Hear the words that Sennacherib sent to insult the living God.
+**16** LORD, listen and hear. LORD, open your eyes and see. Hear the words that Sennacherib sent to insult the God who lives.
 
 **17** LORD, it is true that the kings of Assyria destroyed the nations and their lands.
 
@@ -1208,7 +1208,7 @@
 
 **19** Hezekiah said to Isaiah, "The word of the LORD that you spoke is good." He thought, "Peace and safety will continue during my life. So that is good."
 
-**20** The other things that Hezekiah did, and all his power, are written in the book of the history of the kings of Judah. The book tells how he made the pool and the tunnel that brought water into the city.
+**20** The book of the history of the kings of Judah tells the other things that Hezekiah did, and all his power. The book tells how he made the pool and the tunnel that brought water into the city.
 
 **21** Hezekiah died. Then his son Manasseh became king after him.
 
@@ -1236,9 +1236,9 @@
 
 **11** "Manasseh the king of Judah did these terrible things. He did more evil than the Amorites who lived here before him. He also caused Judah to sin with his idols.
 
-**12** Thus the LORD, the God of Israel, says this: 'I will bring such disaster on Jerusalem and Judah that the ears of all who hear about it will ring.
+**12** Thus the LORD, the God of Israel, says this: 'I will bring such disaster on Jerusalem and Judah. The ears of all who hear about it will ring.
 
-**13** I will measure Jerusalem with the measuring line that I used for Samaria. I will use the plumb line that I used for the family of Ahab. I will clean Jerusalem as a man cleans a dish. He cleans it and turns it upside down.
+**13** I will measure Jerusalem with the line that I used for Samaria. I will use the plumb line that I used for the family of Ahab. I will clean Jerusalem as a man cleans a dish. He cleans it and turns it upside down.
 
 **14** I will leave the people of mine who remain. I will give them to their enemies. All their enemies will take them and their possessions.
 
@@ -1246,7 +1246,7 @@
 
 **16** Manasseh also killed very many innocent people. Their blood filled Jerusalem from one end to the other. He did this in addition to the sin that he caused Judah to do. He caused them to do evil in the sight of the LORD.
 
-**17** The other things that Manasseh did, and the sin that he did, are written in the book of the history of the kings of Judah.
+**17** The book of the history of the kings of Judah tells the other things that Manasseh did, and the sin that he did.
 
 **18** Manasseh died, and the people buried him in the garden of his palace, the garden of Uzza. Then his son Amon became king after him.
 
@@ -1262,7 +1262,7 @@
 
 **24** Then the people of the land killed all the men who made the plan against King Amon. The people of the land made his son Josiah king after him.
 
-**25** The other things that Amon did are written in the book of the history of the kings of Judah.
+**25** The book of the history of the kings of Judah tells the other things that Amon did.
 
 **26** The people buried Amon in his tomb in the garden of Uzza. Then his son Josiah became king after him.
 
@@ -1290,9 +1290,9 @@
 
 **11** The king heard the words of the book of the law. Then he tore his clothes.
 
-**12** The king gave orders to Hilkiah the priest, Ahikam son of Shaphan, Achbor son of Micaiah, Shaphan the secretary, and Asaiah, the servant of the king. He said,
+**12** The king gave orders to Hilkiah the priest, Ahikam son of Shaphan, and Achbor son of Micaiah. He also gave orders to Shaphan the secretary and Asaiah, the servant of the king. He said,
 
-**13** "Go and ask the LORD for me, for the people, and for all Judah. Ask about the words of this book that we found. The LORD is very angry with us. Our ancestors did not obey the words of this book. They did not do all that is written in it for us."
+**13** "Go and ask the LORD for me, for the people, and for all Judah. Ask about the words of this book that we found. The LORD is very angry with us. Our ancestors did not obey the words of this book. They did not do all that this book tells us to do."
 
 **14** So Hilkiah the priest, Ahikam, Achbor, Shaphan, and Asaiah went to Huldah the prophetess. She was the wife of Shallum son of Tikvah, son of Harhas. Shallum was in charge of the clothes. Huldah lived in the Second District of Jerusalem. The men spoke with her.
 
@@ -1314,11 +1314,11 @@
 
 **2** The king went up to the temple of the LORD. All the men of Judah and all the people of Jerusalem went with him. The priests, the prophets, and all the people, unimportant and important, went with him. He read to them all the words of the book of the covenant. The priest found this book in the temple of the LORD.
 
-**3** The king stood by the pillar. He made a covenant in front of the LORD. He promised to follow the LORD and to obey his commands, his rules, and his laws with all his heart and soul. He promised to do the words of the covenant that were written in this book. All the people agreed to the covenant.
+**3** The king stood by the pillar. He made a covenant in front of the LORD. He promised to follow the LORD and to obey his commands, his rules, and his laws with all his heart and soul. He promised to do the words of the covenant that this book contains. All the people agreed to the covenant.
 
-**4** The king gave orders to Hilkiah the high priest, the priests of the second rank, and the gatekeepers. He told them to remove from the temple of the LORD all the objects made for Baal, for Asherah, and for all the stars of the sky. He burned these objects outside Jerusalem in the fields of the Kidron Valley. He took their ashes to Bethel.
+**4** The king gave orders to Hilkiah the high priest, the priests of the second rank, and the gatekeepers. He told them to remove all the objects for Baal, for Asherah, and for all the stars of the sky. They removed these objects from the temple of the LORD. He burned these objects outside Jerusalem in the fields of the Kidron Valley. He took their ashes to Bethel.
 
-**5** The kings of Judah chose pagan priests to burn incense at the high places in the towns of Judah and around Jerusalem. Josiah removed these priests. He also removed the priests who burned incense to Baal, to the sun, to the moon, to the planets, and to all the stars of the sky.
+**5** The kings of Judah chose pagan priests to burn incense at the high places in the towns of Judah and around Jerusalem. Josiah removed these priests. He also removed the priests who burned incense to Baal, to the sun, and to the moon. They also burned incense to the planets and to all the stars of the sky.
 
 **6** He took the Asherah pole from the temple of the LORD to the Kidron Valley outside Jerusalem. He burned it there and crushed it into powder. He threw the powder on the graves of the common people.
 
@@ -1350,13 +1350,13 @@
 
 **20** He killed all the priests of the high places on the altars there. He burned human bones on the altars. Then he went back to Jerusalem.
 
-**21** The king gave an order to all the people. He said, "Celebrate the Passover to the LORD your God, as it is written in this book of the covenant."
+**21** The king gave an order to all the people. He said, "Celebrate the Passover to the LORD your God, as this book of the covenant tells you."
 
 **22** The people did not celebrate a Passover as this one since the time of the judges who led Israel. They did not celebrate one as this during all the time of the kings of Israel and the kings of Judah.
 
 **23** In the 18th year of King Josiah, the people celebrated this Passover to the LORD in Jerusalem.
 
-**24** Josiah also removed the mediums, the spiritists, the household gods, the idols, and all the other terrible things in Judah and Jerusalem. He did this to obey the words of the law. These words were written in the book that Hilkiah the priest found in the temple of the LORD.
+**24** Josiah also removed the mediums, the spiritists, the household gods, the idols, and all the other terrible things in Judah and Jerusalem. He did this to obey the words of the law. These words were in the book that Hilkiah the priest found in the temple of the LORD.
 
 **25** There was no king before Josiah who turned to the LORD as he did. He turned to the LORD with all his heart, all his soul, and all his strength. He obeyed all the law of Moses. After him, there was no king as Josiah.
 
@@ -1364,7 +1364,7 @@
 
 **27** The LORD said, "I will remove Judah from my presence, as I removed Israel. I will reject this city Jerusalem, which I chose. I will reject the temple about which I said, 'My name will be there.'"
 
-**28** The other things that Josiah did are written in the book of the history of the kings of Judah.
+**28** The book of the history of the kings of Judah tells the other things that Josiah did.
 
 **29** During the rule of Josiah, Pharaoh Neco the king of Egypt went to the Euphrates River to meet the king of Assyria. King Josiah went to fight against Neco. When Neco saw Josiah at Megiddo, Neco killed him.
 
@@ -1394,7 +1394,7 @@
 
 **4** The LORD also punished them for the innocent blood that Manasseh shed. Manasseh filled Jerusalem with innocent blood. The LORD did not want to forgive this.
 
-**5** The other things that Jehoiakim did are written in the book of the history of the kings of Judah.
+**5** The book of the history of the kings of Judah tells the other things that Jehoiakim did.
 
 **6** Jehoiakim died. Then his son Jehoiachin became king after him.
 

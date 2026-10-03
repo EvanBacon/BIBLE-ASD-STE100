@@ -4,7 +4,7 @@
 
 **1** Saul died. David came back after he killed the Amalekites. David stayed in Ziklag for 2 days.
 
-**2** On the third day, a man came from the camp of Saul. His clothes were torn, and he had dirt on his head. He came to David and bowed down to the ground to show respect.
+**2** On the third day, a man came from the camp of Saul. He had tears in his clothes, and he had dirt on his head. He came to David and bowed down to the ground to show respect.
 
 **3** David asked him, "Where do you come from?" The man said, "I escaped from the camp of Israel."
 
@@ -36,7 +36,7 @@
 
 **17** David sang this sad song about Saul and his son Jonathan.
 
-**18** He told the people to teach the men of Judah this song, "The Bow." It is written in the Book of Jashar.
+**18** He told the people to teach the men of Judah this song, "The Bow." You can read it in the Book of Jashar.
 
 **19** "Israel, your glory lies dead on your high hills. The strong men fell!
 
@@ -46,7 +46,7 @@
 
 **22** The bow of Jonathan did not go back without blood from the enemy. The sword of Saul did not come back empty. They killed the strong men of the enemy.
 
-**23** Saul and Jonathan were loved and kind in their lives. They did not separate in their death. They were faster than eagles. They were stronger than lions.
+**23** People loved Saul and Jonathan, and they were kind in their lives. They did not separate in their death. They were faster than eagles. They were stronger than lions.
 
 **24** Daughters of Israel, cry for Saul! He gave you fine red clothes. He put gold decorations on your clothes.
 
@@ -68,7 +68,7 @@
 
 **5** David sent messengers to the men of Jabesh Gilead. The messengers said to them, "May the LORD bless you. You showed kindness to your lord Saul when you buried him.
 
-**6** Now may the LORD show kindness and truth to you. I also will be good to you because you did this.
+**6** Now I pray that the LORD will show kindness and truth to you. I also will be good to you because you did this.
 
 **7** Now be strong and brave. Your master Saul is dead. The people of Judah anointed me as their king."
 
@@ -110,13 +110,13 @@
 
 **26** Abner called to Joab, "Must the sword kill forever? You know that the end will be bitter. When will you tell your men to stop the attack on their brothers?"
 
-**27** Joab said, "As surely as God lives, if you did not speak, my men would follow their brothers until the morning."
+**27** Joab said, "As surely as God lives, if you did not speak, my men will follow their brothers until the morning."
 
 **28** So Joab blew a trumpet. All his men stopped. They did not follow the men of Israel again, and they did not fight again.
 
 **29** Abner and his men went through the Jordan Valley all that night. They went across the Jordan River and through all of Bithron. Then they came to Mahanaim.
 
-**30** Joab stopped and came back from his attack on Abner. He brought all his men together. 19 of the men of David were missing. Asahel was also missing.
+**30** Joab stopped and came back from his attack on Abner. He brought all his men together. 19 of the men of David were not there. Asahel also was not there.
 
 **31** But the men of David killed 360 men from Benjamin who were with Abner.
 
@@ -126,13 +126,13 @@
 
 **1** The war between the family of Saul and the family of David continued for a long time. David became stronger and stronger. The family of Saul became weaker and weaker.
 
-**2** Sons were born to David in Hebron. His first son was Amnon. Amnon's mother was Ahinoam from Jezreel.
+**2** David had sons in Hebron. His first son was Amnon. Amnon's mother was Ahinoam from Jezreel.
 
 **3** His second son was Chileab. Chileab's mother was Abigail, the widow of Nabal from Carmel. The third son was Absalom. Absalom's mother was Maacah, the daughter of Talmai, the king of Geshur.
 
 **4** The fourth son was Adonijah, the son of Haggith. The fifth son was Shephatiah, the son of Abital.
 
-**5** The sixth son was Ithream. His mother was Eglah, the wife of David. These sons were born to David in Hebron.
+**5** The sixth son was Ithream. His mother was Eglah, the wife of David. David had these sons in Hebron.
 
 **6** During the war between the family of Saul and the family of David, Abner made his own power large in the family of Saul.
 
@@ -140,7 +140,7 @@
 
 **8** Abner became very angry because of the words of Ish-bosheth. He said, "Do you think that I am a dog of Judah? Today I am loyal to the family of your father Saul, to his brothers, and to his friends. I did not give you to David. But today you accuse me of a wrong act with this woman!
 
-**9** The LORD made a promise to David. Now I will help to make that promise come true. If I do not do this, may God punish me very severely.
+**9** The LORD made a promise to David. Now I will help to make that promise come true. If I do not do this, I ask God to punish me very severely.
 
 **10** I will take the kingdom from the family of Saul. I will make David king over Israel and Judah, from Dan to Beersheba."
 
@@ -180,7 +180,7 @@
 
 **28** Later, David heard about it. He said, "I and my kingdom are not guilty of the blood of Abner, the son of Ner. The LORD knows this forever.
 
-**29** May the guilt fall on Joab and on all his family. May the family of Joab always have a man with a sore, or a man with a skin disease. May it always have a man who needs a stick to walk, or a man who dies by the sword, or a man who has no food."
+**29** Let the guilt fall on Joab and on all his family. Let the family of Joab always have a man with a sore, or a man with a skin disease. Let it always have a man who needs a stick to walk. Let it have a man who dies by the sword, or a man who has no food."
 
 **30** Joab and his brother Abishai killed Abner because Abner killed their brother Asahel in the battle at Gibeon.
 
@@ -194,7 +194,7 @@
 
 **35** All the people came to David to make him eat food during the day. But David made a promise. He said, "May God punish me very severely if I eat bread or other food before the sun goes down."
 
-**36** All the people saw this, and they were pleased. All that the king did pleased the people.
+**36** All the people saw this, and they were happy. All that the king did made the people happy.
 
 **37** That day all the people and all Israel knew that the king did not cause the death of Abner, the son of Ner.
 
@@ -254,7 +254,7 @@
 
 **12** Then David knew that the LORD made him king over Israel. He knew that the LORD made his kingdom great for the people of Israel.
 
-**13** After David came from Hebron, he took more concubines and wives in Jerusalem. More sons and daughters were born to him.
+**13** After David came from Hebron, he took more concubines and wives in Jerusalem. He had more sons and daughters.
 
 **14** These are the names of the sons born to him in Jerusalem: Shammua, Shobab, Nathan, Solomon,
 
@@ -292,7 +292,7 @@
 
 **5** David and all the people of Israel celebrated in front of the LORD. They played all types of instruments made of pine wood. They played lyres, harps, tambourines, rattles, and cymbals.
 
-**6** They came to the threshing floor of Nacon. There the oxen stumbled. So Uzzah put out his hand and took hold of the ark of God.
+**6** They came to the floor of Nacon where people beat grain. There the oxen stumbled. So Uzzah put out his hand and took hold of the ark of God.
 
 **7** The LORD became angry with Uzzah. God killed him there because of his mistake. Uzzah died there near the ark of God.
 
@@ -352,7 +352,7 @@
 
 **11** In the past I put judges over my people Israel. But I will give you peace from all your enemies. The LORD tells you that he will make a family of kings from you.
 
-**12** Your life will end, and you will die and be buried with your ancestors. Then I will make one of your own sons king after you. I will make his kingdom strong.
+**12** Your life will end, and you will die. People will bury you with your ancestors. Then I will make one of your own sons king after you. I will make his kingdom strong.
 
 **13** He will build a house for my name. I will make the throne of his kingdom strong forever.
 
@@ -460,7 +460,7 @@
 
 **2** David said, "I will be kind to Hanun, the son of Nahash, because his father was kind to me." So David sent some of his officers to comfort Hanun about the death of his father. The officers of David came into the land of the Ammonites.
 
-**3** But the leaders of the Ammonites said to their lord Hanun, "Do you think that David honors your father because he sent men to comfort you? No! David sent his officers to look at the city. They will spy on it and then destroy it."
+**3** But the leaders of the Ammonites said to their lord Hanun, "Do you think that David honors your father? Do you think that this is why he sent men to comfort you? No! David sent his officers to look at the city. They will spy on it and then destroy it."
 
 **4** So Hanun took the officers of David. He shaved off half of the beard of each man. He cut off their clothes in the middle, at the hips. Then he sent them away.
 
@@ -534,7 +534,7 @@
 
 **19** Joab told the messenger, "Tell the king all the news about the battle.
 
-**20** Then the king will possibly become angry. He will possibly ask you, 'Why did you go so near to the city to fight? You knew that the enemy would shoot arrows from the wall.
+**20** Then the king will possibly become angry. He will possibly ask you, 'Why did you go so near to the city to fight? You knew that the enemy will shoot arrows from the wall.
 
 **21** Who killed Abimelech, the son of Jerub-Besheth? A woman threw a millstone on him from the wall, and he died in Thebez. Why did you go so near to the wall?' If the king asks this, tell him, 'Your servant Uriah the Hittite is dead too.'"
 
@@ -548,7 +548,7 @@
 
 **26** The wife of Uriah heard that her husband Uriah was dead. She mourned for him.
 
-**27** After the time of mourning, David sent men to bring her to his house. She became his wife and had a son by him. But the LORD was not pleased with what David did.
+**27** After the time of grief ended, David sent men to bring her to his house. She became his wife and had a son by him. But the LORD was not happy with what David did.
 
 ## Chapter 12
 
@@ -566,7 +566,7 @@
 
 **7** Nathan said to David, "You are that man! The LORD God of Israel says this: 'I anointed you king over Israel. I saved you from Saul.
 
-**8** I gave you the house of your master and the wives of your master. I gave you the people of Israel and Judah. If that was not enough, I would give you much more.
+**8** I gave you the house of your master and the wives of your master. I gave you the people of Israel and Judah. If that was not enough, I was ready to give you much more.
 
 **9** Why did you show no respect for the command of the LORD? Why did you do this evil thing in front of him? You killed Uriah the Hittite with the sword. You took his wife as your wife. You used the sword of the Ammonites to kill him.
 
@@ -578,7 +578,7 @@
 
 **13** David said to Nathan, "I sinned against the LORD." Nathan said to David, "The LORD forgives your sin. You will not die.
 
-**14** But you did this, and thus you caused the enemies of the LORD to insult him. So the son who was born to you will surely die."
+**14** But you did this, and thus you caused the enemies of the LORD to insult him. So the son that your wife gave birth to will surely die."
 
 **15** Then Nathan went home. The LORD caused the child that the wife of Uriah had by David to become very sick.
 
@@ -610,7 +610,7 @@
 
 **29** So David brought together all the army and went to Rabbah. He fought against the city and captured it.
 
-**30** David took the crown from the head of their king. The crown was made of gold and had valuable stones on it. It weighed about 34 kilograms. The people put the crown on the head of David. David also took very many valuable things from the city.
+**30** David took the crown from the head of their king. The crown was of gold and had valuable stones on it. It weighed about 34 kilograms. The people put the crown on the head of David. David also took very many valuable things from the city.
 
 **31** David brought out the people of the city. He made them work with saws, iron picks, and iron axes. He made them work at the brick ovens. David did the same to all the cities of the Ammonites. Then David and all the army went back to Jerusalem.
 
@@ -686,7 +686,7 @@
 
 **35** Jonadab said to the king, "Look, the sons of the king come! It is as I, your servant, said."
 
-**36** When he finished speaking, the sons of the king arrived. They cried loudly. The king and all his officers also cried very much.
+**36** When he finished his words, the sons of the king arrived. They cried loudly. The king and all his officers also cried very much.
 
 **37** But Absalom ran away. He went to Talmai, the son of Ammihud, the king of Geshur. David mourned for his son every day.
 
@@ -698,7 +698,7 @@
 
 **1** Joab, the son of Zeruiah, knew that the king thought about Absalom very much.
 
-**2** So Joab sent a man to Tekoa to bring a wise woman. Joab said to her, "Please act as if you mourn. Put on clothes for mourning. Do not put oil on yourself. Act like a woman who mourned for the dead for a long time.
+**2** So Joab sent a man to Tekoa to bring a wise woman. Joab said to her, "Please act as if you are sad for a dead person. Put on clothes for grief. Do not put oil on yourself. Act like a woman who was sad for the dead for a long time.
 
 **3** Then go to the king and say these words to him." Joab told her the words that she must say.
 
@@ -738,7 +738,7 @@
 
 **21** Then the king said to Joab, "Good. I will do this. Go and bring back the young man Absalom."
 
-**22** Joab bowed down to the ground to show respect. He thanked the king and blessed him. Joab said, "Today I, your servant, know that you are pleased with me, my lord the king. The king did what I asked."
+**22** Joab bowed down to the ground to show respect. He thanked the king and blessed him. Joab said, "Today I, your servant, know that you are happy with me, my lord the king. The king did what I asked."
 
 **23** Then Joab got up and went to Geshur. He brought Absalom back to Jerusalem.
 
@@ -804,7 +804,7 @@
 
 **20** You came only yesterday. I must not make you travel with us today. I do not know where I go. Go back, and take your brothers with you. May the LORD show you kindness and truth."
 
-**21** But Ittai said to the king, "As surely as the LORD lives, and as surely as my lord the king lives, I will be where my lord the king is. If you die, I will die. If you live, I will live."
+**21** But Ittai spoke to the king. He said, "The LORD lives, and my lord the king lives. As surely as this is true, I will be where my lord the king is. If you die, I will die. If you live, I will live."
 
 **22** David said to Ittai, "Then go across." So Ittai from Gath went across with all his men and all the children who were with him.
 
@@ -812,13 +812,13 @@
 
 **24** Zadok was there too. All the Levites were with him. They carried the ark of the covenant (the agreement) of God. They put down the ark of God. Abiathar gave offerings until all the people left the city.
 
-**25** Then the king said to Zadok, "Take the ark of God back into the city. If the LORD is pleased with me, he will bring me back. He will let me see the ark and the place where it stays again.
+**25** Then the king said to Zadok, "Take the ark of God back into the city. If the LORD is happy with me, he will bring me back. He will let me see the ark and the place where it stays again.
 
-**26** But if he says, 'I am not pleased with you,' then I am ready. Let him do to me what he thinks is good."
+**26** But if he says, 'I am not happy with you,' then I am ready. Let him do to me what he thinks is good."
 
 **27** The king also said to Zadok the priest, "You are a seer. Go back to the city in peace. Take your son Ahimaaz and Jonathan, the son of Abiathar, with you.
 
-**28** I will wait at the crossing places near the desert. I will wait until I get a message from you."
+**28** I will wait at the places where people go across the river near the desert. I will wait until I get a message from you."
 
 **29** So Zadok and Abiathar took the ark of God back to Jerusalem. They stayed there.
 
@@ -826,7 +826,7 @@
 
 **31** Someone told David, "Ahithophel is with Absalom in the plot." So David prayed, "LORD, please make the advice of Ahithophel foolish."
 
-**32** David came to the top of the mountain, where people worshipped God. There Hushai the Arkite came to meet him. His coat was torn, and he had dirt on his head.
+**32** David came to the top of the mountain, where people worshipped God. There Hushai the Arkite came to meet him. Hushai had tears in his coat, and he had dirt on his head.
 
 **33** David said to him, "If you go with me, you will be a problem for me.
 
@@ -846,7 +846,7 @@
 
 **3** The king asked, "Where is Mephibosheth, the grandson of your master?" Ziba said to the king, "He stays in Jerusalem. He says, 'Today the people of Israel will give me back the kingdom of my grandfather.'"
 
-**4** Then the king said to Ziba, "All that was Mephibosheth's is now yours." Ziba said, "I bow down to you. Please always be pleased with me, my lord the king."
+**4** Then the king said to Ziba, "All that was Mephibosheth's is now yours." Ziba said, "I bow down to you. Please always be kind to me, my lord the king."
 
 **5** King David came to Bahurim. A man from the family of Saul came out from there. His name was Shimei, the son of Gera. As he came out, he cursed David again and again.
 
@@ -866,7 +866,7 @@
 
 **13** So David and his men continued on the road. Shimei walked along the side of the hill near him. He cursed as he went. He threw stones and dirt at David.
 
-**14** The king and all the people with him were tired when they arrived. There they rested.
+**14** The king and all the people with him were weary when they arrived. There they rested.
 
 **15** Absalom and all the men of Israel came to Jerusalem. Ahithophel was with him.
 
@@ -890,7 +890,7 @@
 
 **1** Ahithophel also said to Absalom, "Let me choose 12,000 men. Tonight I will go and follow David.
 
-**2** I will attack him while he is tired and weak. I will make him afraid. Then all the people who are with him will run away. I will kill only the king.
+**2** I will attack him while he is weary and weak. I will make him afraid. Then all the people who are with him will run away. I will kill only the king.
 
 **3** Then I will bring all the people back to you. When the man that you want is dead, all the people will come back. All the people will be in peace."
 
@@ -918,13 +918,13 @@
 
 **15** Then Hushai told the priests Zadok and Abiathar, "Ahithophel gave this advice to Absalom and the leaders of Israel. But I gave different advice.
 
-**16** Now quickly send a message to David. Tell him, 'Do not stay tonight at the crossing places near the desert. Go across the river quickly. If you do not, the enemy will destroy the king and all the people with him.'"
+**16** Now quickly send a message to David. Tell him, 'Do not stay tonight at the places near the desert where people go across the river. Go across the river quickly. If you do not, the enemy will destroy the king and all the people with him.'"
 
 **17** Jonathan and Ahimaaz stayed at En Rogel. They could not let people see them go into the city. A female servant went and told them the message. Then they went to tell King David.
 
 **18** But a boy saw them and told Absalom. So the 2 men left quickly. They went to the house of a man in Bahurim. He had a well in his yard. Jonathan and Ahimaaz went down into the well.
 
-**19** The wife of the man put a cover over the opening of the well. She put grain on the cover. No one knew about the men.
+**19** The wife of the man put a cover over the mouth of the well. She put grain on the cover. No one knew about the men.
 
 **20** The officers of Absalom came to the woman at the house. They asked, "Where are Ahimaaz and Jonathan?" The woman said to them, "They went across the stream." The officers looked for them but did not find them. So the officers went back to Jerusalem.
 
@@ -940,7 +940,7 @@
 
 **26** The army of Israel and Absalom made their camp in the land of Gilead.
 
-**27** David came to Mahanaim. There 3 men met him. They were Shobi, the son of Nahash from Rabbah of the Ammonites, Makir, the son of Ammiel from Lo Debar, and Barzillai from Rogelim in Gilead.
+**27** David came to Mahanaim. There 3 men met him. The first was Shobi, the son of Nahash from Rabbah of the Ammonites. The second was Makir, the son of Ammiel from Lo Debar. The third was Barzillai from Rogelim in Gilead.
 
 **28** They brought beds, bowls, and clay pots. They also brought wheat, barley, flour, cooked grain, beans, and lentils.
 
@@ -968,11 +968,11 @@
 
 **10** A man saw this. He told Joab, "I saw Absalom. He hangs in an oak tree."
 
-**11** Joab said to the man, "You saw him! Why did you not kill him there? I would give you 10 pieces of silver and a belt."
+**11** Joab said to the man, "You saw him! Why did you not kill him there? I was ready to give you 10 pieces of silver and a belt."
 
-**12** The man said to Joab, "If I had 1,000 pieces of silver in my hand, I would not attack the son of the king. We heard the king give an order to you, Abishai, and Ittai. He said, 'Be careful. No one must hurt the young man Absalom.'
+**12** The man said to Joab, "If I had 1,000 pieces of silver in my hand, I still will not attack the son of the king. We heard the king give an order to you, Abishai, and Ittai. He said, 'Be careful. No one must hurt the young man Absalom.'
 
-**13** If I killed him, the king would know. Nothing is hidden from the king. And you would not help me."
+**13** If I killed him, the king will know. No one can hide anything from the king. And you will not help me."
 
 **14** Joab said, "I will not wait here with you." He took 3 spears in his hand. He pushed them into the chest of Absalom. Absalom was still alive in the oak tree.
 
@@ -1018,15 +1018,15 @@
 
 **1** People told Joab, "The king cries and mourns for Absalom."
 
-**2** That day the victory became a time of mourning for all the army. The army heard that day that the king was very sad for his son.
+**2** That day the victory became a time of grief for all the army. The army heard that day that the king was very sad for his son.
 
-**3** That day the soldiers went into the city quietly. They acted like soldiers who are ashamed because they ran away from a battle.
+**3** That day the soldiers went into the city quietly. They acted like soldiers who feel shame because they ran away from a battle.
 
 **4** The king covered his face. He cried loudly, "My son Absalom! Absalom, my son, my son!"
 
 **5** Then Joab went into the house to the king. He said, "Today you make all your officers ashamed. Today they saved your life. They saved the lives of your sons, your daughters, your wives, and your concubines.
 
-**6** You love the people who hate you, and you hate the people who love you. Today you showed that your commanders and officers are not important to you. I see now that you would be pleased if Absalom was alive and all of us were dead.
+**6** You love the people who hate you, and you hate the people who love you. Today you showed that your commanders and officers are not important to you. I see now that you want Absalom alive and all of us dead. That will make you happy.
 
 **7** Now get up! Go out and say kind words to your officers. I make a promise by the LORD: if you do not go out, not one man will stay with you tonight. That will be worse for you than all the trouble that you had from your youth until now."
 
@@ -1040,7 +1040,7 @@
 
 **12** You are my relatives, my own family. Why are you the last to bring back the king?'
 
-**13** And say to Amasa, 'You are my own relative. You will be the commander of my army instead of Joab from now on. If I do not do this, may God punish me very severely.'"
+**13** And say to Amasa, 'You are my own relative. You will be the commander of my army instead of Joab from now on. If I do not do this, I ask God to punish me very severely.'"
 
 **14** Thus David made all the men of Judah agree, as if they were 1 man. They sent a message to the king. The message was, "Come back, you and all your officers."
 
@@ -1242,7 +1242,7 @@
 
 **19** They attacked me on the day of my trouble. But the LORD supported me.
 
-**20** He brought me out to a safe, open place. He saved me because he was pleased with me.
+**20** He brought me out to a safe, open place. He saved me because he was happy with me.
 
 **21** The LORD gave me a reward because I did what was right. He gave me a reward because I did no wrong.
 
@@ -1322,11 +1322,11 @@
 
 **7** A man who touches them must use an iron tool or the shaft of a spear. People burn the thorns completely in the place where they are."
 
-**8** These are the names of the strong soldiers of David: Josheb-Basshebeth the Tahkemonite was the chief of the 3 best soldiers. He was also called Adino the Eznite. He used his spear to kill 800 men in 1 battle.
+**8** These are the names of the strong soldiers of David: Josheb-Basshebeth the Tahkemonite was the chief of the 3 best soldiers. People also called him Adino the Eznite. He used his spear to kill 800 men in 1 battle.
 
 **9** The next of the 3 best soldiers was Eleazar, the son of Dodo the Ahohite. He was with David when they insulted the Philistines who came together for battle. The men of Israel moved back.
 
-**10** But Eleazar stood and attacked the Philistines until his hand was tired. His hand was stiff on his sword. The LORD gave a great victory that day. The army came back to Eleazar only to take the valuable things from the dead men.
+**10** But Eleazar stood and attacked the Philistines until his hand was weary. His hand was stiff on his sword. The LORD gave a great victory that day. The army came back to Eleazar only to take the valuable things from the dead men.
 
 **11** The next was Shammah, the son of Agee the Hararite. The Philistines came together at a field full of lentils. The army of Israel ran away from the Philistines.
 
@@ -1336,7 +1336,7 @@
 
 **14** At that time David was in the fortress. A group of Philistine soldiers was in Bethlehem.
 
-**15** David was very thirsty. He said, "I wish that someone would give me water from the well near the gate of Bethlehem!"
+**15** David was very thirsty. He said, "I wish that someone will give me water from the well near the gate of Bethlehem!"
 
 **16** So the 3 strong soldiers broke through the camp of the Philistines. They took water from the well near the gate of Bethlehem. They brought it to David. But David did not drink it. He poured it out on the ground as an offering to the LORD.
 
@@ -1390,9 +1390,9 @@
 
 **1** Again the LORD was angry with Israel. He caused David to act against the people. The LORD said to David, "Go and count the people of Israel and Judah."
 
-**2** So the king said to Joab, the commander of the army who was with him, "Go through all the tribes of Israel, from Dan to Beersheba. Count the people. I want to know how many people there are."
+**2** So the king spoke to Joab, the commander of the army who was with him. He said, "Go through all the tribes of Israel, from Dan to Beersheba. Count the people. I want to know how many people there are."
 
-**3** Joab said to the king, "May the LORD your God make the people 100 times more than they are now. And may my lord the king see it. But why does my lord the king want to do this?"
+**3** Joab said to the king, "I pray that the LORD your God will make the people 100 times more than they are now. And I pray that my lord the king will see it. But why does my lord the king want to do this?"
 
 **4** But the king gave his order, and Joab and the commanders of the army had to obey. So Joab and the commanders left the king. They went out to count the people of Israel.
 
@@ -1418,22 +1418,22 @@
 
 **15** So the LORD sent a terrible disease on Israel. It started in the morning and continued until the time that the LORD chose. 70,000 people died, from Dan to Beersheba.
 
-**16** The angel lifted his hand to destroy Jerusalem. But the LORD felt sorry about the disaster. He said to the angel who killed the people, "Enough! Stop now!" At that time the angel of the LORD was at the threshing floor of Araunah the Jebusite.
+**16** The angel lifted his hand to destroy Jerusalem. But the LORD felt sorry about the disaster. He said to the angel who killed the people, "Enough! Stop now!" At that time the angel of the LORD was at the floor where Araunah the Jebusite beat his grain.
 
 **17** David saw the angel who killed the people. David said to the LORD, "I am the one who sinned. I did the wrong thing. These people are like sheep. They did nothing wrong. Please punish me and my family."
 
-**18** That day Gad came to David and said to him, "Go up and build an altar to the LORD on the threshing floor of Araunah the Jebusite."
+**18** That day Gad came to David. He said to him, "Go up and build an altar to the LORD on the floor where Araunah the Jebusite beats his grain."
 
 **19** So David went up as Gad told him. He did what the LORD told him.
 
 **20** Araunah looked and saw the king and his officers. They came toward him. So Araunah went out and bowed down to the ground in front of the king.
 
-**21** Araunah said, "Why did my lord the king come to me, his servant?" David said, "I want to buy your threshing floor. I will build an altar to the LORD there. Then the terrible disease will stop."
+**21** Araunah said, "Why did my lord the king come to me, his servant?" David said, "I want to buy your floor where you beat grain. I will build an altar to the LORD there. Then the terrible disease will stop."
 
-**22** Araunah said to David, "My lord the king, take what you want and sacrifice it. Here are oxen for the burnt offering. Here are the threshing tools and the yokes of the oxen for wood."
+**22** Araunah said to David, "My lord the king, take what you want and sacrifice it. Here are oxen for the burnt offering. Here are the tools to beat the grain and the yokes of the oxen for wood."
 
 **23** "King, I, Araunah, give all this to you." Araunah also said to the king, "May the LORD your God accept your offering."
 
-**24** But the king said to Araunah, "No. I will pay you for it. I will not give burnt offerings to the LORD my God that cost me nothing." So David bought the threshing floor and the oxen for 50 shekels of silver.
+**24** But the king said to Araunah, "No. I will pay you for it. I will not give burnt offerings to the LORD my God that cost me nothing." So David bought the floor for grain and the oxen for 50 shekels of silver.
 
 **25** David built an altar to the LORD there. He gave burnt offerings and peace offerings. Then the LORD answered the prayers for the land. The terrible disease in Israel stopped.

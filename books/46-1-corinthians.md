@@ -34,7 +34,7 @@
 
 **16** I also baptized the family of Stephanas. Other than these people, I do not remember that I baptized any person.
 
-**17** Christ did not send me to baptize. He sent me to tell the gospel (the good news). I do not use clever human words for this. If I used them, the cross of Christ would lose its power.
+**17** Christ did not send me to baptize. He sent me to tell the gospel (the good news). I do not use clever human words for this, because those words take away the power of the cross of Christ.
 
 **18** The message about the cross is foolish to the people who go to destruction. But to us whom God saves, the message is the power of God.
 
@@ -80,9 +80,9 @@
 
 **7** We speak the wisdom of God. This wisdom is a secret that God kept hidden. Before he made the world, God planned this wisdom for our glory.
 
-**8** None of the rulers of this world understood this wisdom. If they understood it, they would not crucify the Lord of glory.
+**8** None of the rulers of this world understood this wisdom. Because they did not understand it, they crucified the Lord of glory.
 
-**9** But the Scriptures say, "No eye saw, and no ear heard, and no human mind thought of the things that God made ready for the people who love him."
+**9** But the Scriptures say, "No eye saw, and no ear heard. No human mind thought of the things that God made ready for the people who love him."
 
 **10** But God showed these things to us through his Spirit. The Spirit looks into all things, and also into the deep things of God.
 
@@ -156,7 +156,7 @@
 
 **4** I know of no wrong thing that I did. But that does not make me innocent. The Lord is the one who judges me.
 
-**5** Thus, do not judge any person before the correct time. Wait until the Lord comes. He will bring to the light the things that are now hidden in the dark. He will show the secret plans in the hearts of people. Then God will give each person the praise that he must get.
+**5** Thus, do not judge any person before the correct time. Wait until the Lord comes. He will bring to the light the things that people now hide in the dark. He will show the secret plans in the hearts of people. Then God will give each person the praise that he must get.
 
 **6** Brothers, I used Apollos and myself as examples to help you. Learn from us what this rule means: "Do not go past what the Scriptures say." Then none of you will be proud of one leader and look down on another leader.
 
@@ -184,7 +184,7 @@
 
 **18** Some of you became proud. You think that I will not come to you.
 
-**19** But if the Lord wants it, I will come to you soon. Then I will find out what these proud people can do. I am not interested in their words. I am interested in their power.
+**19** But if the Lord wants it, I will come to you soon. Then I will find out what these proud people can do. I do not care about their words. I care about their power.
 
 **20** The kingdom of God is not a matter of words. It is a matter of power.
 
@@ -200,17 +200,17 @@
 
 **4** Meet together in the name of our Lord Jesus Christ. My spirit will be with you. The power of our Lord Jesus is also with you.
 
-**5** Then give this man to Satan, so that his sinful nature can be destroyed. Then God can save his spirit on the day of the Lord Jesus.
+**5** Then give this man to Satan, so that Satan can destroy his sinful nature. Then God can save his spirit on the day of the Lord Jesus.
 
 **6** It is not good that you are proud. You know that a small quantity of yeast makes all of the dough rise.
 
-**7** Remove the old yeast, so that you are a new batch of dough without yeast. In truth, you are without yeast. Christ, our Passover lamb, was sacrificed for us.
+**7** Remove the old yeast, so that you are a new batch of dough without yeast. In truth, you are without yeast. Christ, our Passover lamb, died as a sacrifice for us.
 
 **8** Thus, let us celebrate the festival. Let us not use the old yeast of hate and evil. Let us use the bread without yeast, which is honesty and truth.
 
 **9** In my previous letter, I told you not to be friends with people who do sexual sins.
 
-**10** I did not mean the people of this world who do sexual sins. I did not mean the greedy people, the people who steal, or the people who worship idols. To avoid all of them, you would have to leave this world.
+**10** I did not mean the people of this world who do sexual sins. I did not mean the greedy people, the people who steal, or the people who worship idols. If you avoid all of them, you must leave this world.
 
 **11** But now I write to you about a different thing. Some people call themselves brothers. Do not be friends with such a person if he does sexual sins or if he is greedy. Do not be friends with him if he worships idols, says bad things about people, gets drunk, or steals. Do not even eat with such a person.
 
@@ -236,9 +236,9 @@
 
 **8** But you do wrong things, and you cheat other people. And you do these things to your own brothers!
 
-**9** You know that bad people will not receive the kingdom of God. Do not deceive yourselves. These people will not receive it: people who do sexual sins, people who worship idols, people who are not faithful in marriage, and men who have sexual relations with men.
+**9** You know that bad people will not receive the kingdom of God. Do not deceive yourselves. These people will not receive it: people who do sexual sins and people who worship idols. People who are not faithful in marriage and men who have sexual relations with men will not receive it.
 
-**10** Also these people will not receive the kingdom of God: thieves, greedy people, drunkards, people who say bad things about others, and people who steal by force.
+**10** Thieves and greedy people will not receive the kingdom of God. Drunkards, people who say bad things about others, and people who steal by force will not receive it.
 
 **11** Some of you were such people. But God made you clean. He made you holy. He made you right with him. He did this through the name of the Lord Jesus and through the Spirit of our God.
 
@@ -276,7 +276,7 @@
 
 **7** I wish that all people were like me. But God gives each person his own gift. He gives one gift to one person and a different gift to another person.
 
-**8** I say this to the people who are not married and to the widows: it is good for them to stay unmarried, as I am.
+**8** I say this to the people who do not have a husband or a wife, and to the widows. It is good for them to stay as I am.
 
 **9** But if they cannot control themselves, they must marry. It is better to marry than to burn with desire.
 
@@ -288,7 +288,7 @@
 
 **13** A woman can have a husband who does not believe. If he agrees to live with her, she must not divorce him.
 
-**14** The husband who does not believe becomes holy through his wife. The wife who does not believe becomes holy through her husband. If this were not true, your children would be unclean. But now they are holy.
+**14** The husband who does not believe becomes holy through his wife. The wife who does not believe becomes holy through her husband. If this is not true, your children are unclean. But now they are holy.
 
 **15** But if the person who does not believe leaves, let him go. In such a situation, the believer, man or woman, is not tied to the marriage. God called us to live in peace.
 
@@ -296,13 +296,13 @@
 
 **17** Each person must live the life that the Lord gave to him. He must continue as he was when God called him. I give this rule in all the churches.
 
-**18** If a man was circumcised when God called him, he must not try to change it. If a man was not circumcised when God called him, he must not get circumcision.
+**18** If a man had circumcision when God called him, he must not try to change it. If a man did not have circumcision when God called him, he must not get circumcision.
 
-**19** It is not important if a man is circumcised or not circumcised. The important thing is to obey the commands of God.
+**19** Circumcision is not important, and no circumcision is not important. The important thing is to obey the commands of God.
 
 **20** Each person must stay in the situation that he was in when God called him.
 
-**21** Were you a slave when God called you? Do not be worried about it. But if you can become free, use that chance.
+**21** Were you a slave when God called you? Do not worry about it. But if you can become free, use that chance.
 
 **22** If a slave hears the call of the Lord, he is a free person in the Lord. In the same way, if a free person hears the call, he is a slave of Christ.
 
@@ -310,13 +310,13 @@
 
 **24** Brothers, each person must stay with God in the situation that he was in when God called him.
 
-**25** Now I write about the people who are not married. I have no command from the Lord about them. But I give my opinion. Through the mercy of the Lord, people can trust me.
+**25** Now I write about the people who do not have a husband or a wife. I have no command from the Lord about them. But I give my opinion. Through the mercy of the Lord, people can trust me.
 
 **26** There are troubles now. Thus, I think that it is good for a person to stay as he is.
 
 **27** Are you married to a wife? Do not try to become free from her. Are you free from a wife? Do not look for a wife.
 
-**28** But if you marry, you do not sin. If a girl who is not married marries, she does not sin. But married people will have troubles in this life. I want to keep you away from these troubles.
+**28** But if you marry, you do not sin. If a girl who does not have a husband marries, she does not sin. But married people will have troubles in this life. I want to keep you away from these troubles.
 
 **29** Brothers, I tell you this: the time is short. From now on, men who have wives must live as if they have no wives.
 
@@ -324,11 +324,11 @@
 
 **31** People who use the things of this world must not depend on them. This world, as it is now, will soon end.
 
-**32** I want you to be free from worry. A man who is not married thinks about the work of the Lord. He wants to please the Lord.
+**32** I want you to be free from worry. A man who does not have a wife thinks about the work of the Lord. He wants to please the Lord.
 
 **33** But a married man thinks about the things of this world. He wants to please his wife.
 
-**34** He has divided interests. A woman who is not married, or a girl who is not married, thinks about the work of the Lord. She wants to be holy in body and in spirit. But a married woman thinks about the things of this world. She wants to please her husband.
+**34** His interests go in 2 directions. A woman who does not have a husband thinks about the work of the Lord. She wants to be holy in body and in spirit. But a married woman thinks about the things of this world. She wants to please her husband.
 
 **35** I tell you this to help you. I do not want to limit your freedom. I want you to live in a correct way. I want you to serve the Lord fully, with nothing to stop you.
 
@@ -338,7 +338,7 @@
 
 **38** Thus, the man who marries the girl does well. But the man who does not marry her does better.
 
-**39** A wife is joined to her husband while her husband lives. If her husband dies, she is free to marry any man that she wants. But that man must belong to the Lord.
+**39** The law joins a wife to her husband while her husband lives. If her husband dies, she is free to marry any man that she wants. But that man must belong to the Lord.
 
 **40** But I think that she is happier if she stays unmarried. This is my opinion. And I think that I also have the Spirit of God.
 
@@ -398,9 +398,9 @@
 
 **13** You know that the people who work in the temple get their food from the temple. The people who serve at the altar get a part of the sacrifices on the altar.
 
-**14** In the same way, the Lord gave a command. The people who tell the gospel must get their living from the gospel.
+**14** In the same way, the Lord gave a command. The people who tell the gospel must get their food and needs from the gospel.
 
-**15** But I did not use any of these rights. And I do not write these things to get them now. I would prefer to die than to let a person take away my reason to be proud.
+**15** But I did not use any of these rights. And I do not write these things to get them now. It is better for me to die than to let a person take away my reason to be proud.
 
 **16** When I tell the gospel, I have no reason to be proud. I must tell it. It will be very bad for me if I do not tell the gospel!
 
@@ -436,7 +436,7 @@
 
 **4** All of them drank the same spiritual drink. They drank from the spiritual rock that went with them. That rock was Christ.
 
-**5** But God was not pleased with most of them. Thus, their dead bodies fell in the desert.
+**5** But God was not happy with most of them. Thus, their dead bodies fell in the desert.
 
 **6** These things are examples for us. They show us that we must not want evil things, as those people did.
 
@@ -540,7 +540,7 @@
 
 **22** You have houses where you can eat and drink! Do you hate the church of God? Do you want to make the poor people ashamed? What must I tell you? Must I praise you? No, I do not praise you for this.
 
-**23** I received this teaching from the Lord, and I gave it to you. On the night when a person betrayed the Lord Jesus, Jesus took bread.
+**23** I received this message from the Lord, and I gave it to you. On the night when a person betrayed the Lord Jesus, Jesus took bread.
 
 **24** He thanked God for the bread and broke it. He said, "Take this and eat it. This is my body, which I give for you. Do this to remember me."
 
@@ -556,9 +556,9 @@
 
 **30** For this reason, many of you are weak and sick, and some of you died.
 
-**31** If we judged ourselves correctly, God would not judge us.
+**31** If we judge ourselves correctly, God will not judge us.
 
-**32** But when the Lord judges us, he corrects us. Then we will not be condemned with the world.
+**32** But when the Lord judges us, he corrects us. Then God will not condemn us with the world.
 
 **33** Thus, my brothers, when you meet together to eat, wait for each other.
 
@@ -570,7 +570,7 @@
 
 **2** You know that before you believed, you did not know God. Other people led you to worship idols that cannot speak.
 
-**3** Thus, I tell you this. A person who speaks through the Spirit of God never says, "Jesus is cursed." And no person can say, "Jesus is Lord," but through the Holy Spirit.
+**3** Thus, I tell you this. A person who speaks through the Spirit of God never says, "God curses Jesus." And no person can say, "Jesus is Lord," but through the Holy Spirit.
 
 **4** There are different types of gifts, but the same Spirit gives them.
 
@@ -582,7 +582,7 @@
 
 **8** The Spirit gives one person the ability to speak with wisdom. The same Spirit gives another person the ability to speak with knowledge.
 
-**9** The same Spirit gives faith to another person. The one Spirit gives the gift of healing to another person.
+**9** The same Spirit gives faith to another person. The one Spirit gives the gift to heal people to another person.
 
 **10** He gives another person the power to do miracles. He gives another person the ability to prophesy. He gives another person the ability to know which spirits come from God. He gives another person the ability to speak in different languages. He gives another person the ability to explain these languages.
 
@@ -602,7 +602,7 @@
 
 **18** But God put each part in the body as he wanted.
 
-**19** If all the parts were one part, there would be no body.
+**19** If all the parts are one part, there is no body.
 
 **20** But there are many parts, and only one body.
 
@@ -624,7 +624,7 @@
 
 **29** Not all people are apostles. Not all people are prophets. Not all people are teachers. Not all people do miracles.
 
-**30** Not all people have gifts of healing. Not all people speak in different languages. Not all people explain these languages.
+**30** Not all people have gifts to heal people. Not all people speak in different languages. Not all people explain these languages.
 
 **31** But try hard to get the best gifts. Now I will show you a way that is better than all of them.
 
@@ -634,7 +634,7 @@
 
 **2** I can have the gift of prophecy. I can understand all secret truths and have all knowledge. I can have faith that is sufficient to move mountains. But if I do not have love, I am nothing.
 
-**3** I can give all that I own to feed the poor people. I can give my body to be burned. But if I do not have love, these things do not help me.
+**3** I can give all that I own to feed the poor people. I can give my body to the fire. But if I do not have love, these things do not help me.
 
 **4** Love is patient. Love is kind. Love is not jealous. Love does not boast, and it is not proud.
 
@@ -668,7 +668,7 @@
 
 **5** I want all of you to speak in other languages. But I want you to prophesy more. The person who prophesies is greater than the person who speaks in languages. But if the speaker tells the meaning, then the church becomes stronger.
 
-**6** Brothers, if I come to you and speak in languages, how will I help you? I will help you only if I speak a revelation, knowledge, a prophecy, or a teaching.
+**6** Brothers, if I come to you and speak in languages, how will I help you? I will help you only if I speak a revelation, knowledge, a prophecy, or a lesson.
 
 **7** Things without life also make sounds, for example a flute or a harp. If the notes are not clear, how will a person know what tune the musician plays?
 
@@ -708,7 +708,7 @@
 
 **25** The secrets of his heart will become known. Then he will bow down with his face to the ground and worship God. He will say, "It is true that God is among you!"
 
-**26** Brothers, what is the conclusion? When you come together, each person has a song, a teaching, a revelation, a language, or the meaning of a language. You must do all these things to make the church stronger.
+**26** Brothers, what is the conclusion? When you come together, each person has a song, a lesson, a revelation, a language, or the meaning of a language. You must do all these things to make the church stronger.
 
 **27** If people speak in an unknown language, then only 2 or at most 3 must speak. They must speak one at a time. And 1 person must tell the meaning.
 
@@ -766,7 +766,7 @@
 
 **13** If the dead do not rise again, then Christ did not rise.
 
-**14** And if Christ did not rise, then our preaching has no value. Also, your faith has no value.
+**14** And if Christ did not rise, then our message has no value. Also, your faith has no value.
 
 **15** Also, we are false witnesses about God. We said that God raised Christ. But if the dead do not rise, then God did not raise Christ.
 
@@ -774,7 +774,7 @@
 
 **17** And if Christ did not rise, your faith has no value. You are still guilty of your sins.
 
-**18** Also, the believers in Christ who died are lost.
+**18** Also, the believers in Christ who died are dead forever.
 
 **19** If our hope in Christ is only for this life, then people must pity us more than all other people.
 
@@ -828,7 +828,7 @@
 
 **44** People bury a natural body. God raises a spiritual body. There is a natural body, and there is also a spiritual body.
 
-**45** The scripture says, "The first man, Adam, became a living person." The last Adam became a spirit that gives life.
+**45** The scripture says, "The first man, Adam, became a person with life." The last Adam became a spirit that gives life.
 
 **46** The spiritual body did not come first. The natural body came first. Then the spiritual body came.
 
@@ -898,7 +898,7 @@
 
 **20** All the brothers here send you their greetings. Greet each other with a holy kiss.
 
-**21** I, Paul, write this greeting with my own hand.
+**21** I, Paul, write these words to greet you with my own hand.
 
 **22** If a person does not love the Lord, let God curse that person. Our Lord, come!
 

@@ -302,7 +302,7 @@
 
 **7** The LORD said, "I will remove the men that I made from the surface of the ground. I will remove men, livestock, small animals, and birds of the sky. I am sorry that I made them."
 
-**8** But the LORD was pleased with Noah.
+**8** But the LORD was happy with Noah.
 
 **9** This is the history of Noah. Noah was a righteous man. He did no wrong among the people of his time. Noah walked with God.
 
@@ -318,7 +318,7 @@
 
 **15** Make the ark with these dimensions. The length of the ark will be 300 cubits. The width will be 50 cubits. The height will be 30 cubits.
 
-**16** Make a roof for the ark. Make an opening of 1 cubit below the roof. Put a door in the side of the ark. Make the ark with a lower deck, a second deck, and a third deck.
+**16** Make a roof for the ark. Make a space of 1 cubit below the roof. Put a door in the side of the ark. Make the ark with a lower deck, a second deck, and a third deck.
 
 **17** I will cause a flood of water on the earth. The flood will destroy all flesh under the sky that has the breath of life. All things on the earth will die.
 
@@ -610,7 +610,7 @@
 
 **27** These are the descendants of Terah. Terah became the father of Abram, Nahor, and Haran. Haran became the father of Lot.
 
-**28** Haran died before his father Terah. Haran died in the land where he was born, in Ur of the Chaldeans.
+**28** Haran died before his father Terah. Haran died in the land of his birth, in Ur of the Chaldeans.
 
 **29** Abram and Nahor married wives. The name of the wife of Abram was Sarai. The name of the wife of Nahor was Milcah. Milcah was the daughter of Haran. Haran was the father of Milcah and of Iscah.
 
@@ -728,7 +728,7 @@
 
 **13** A man escaped and came to Abram the Hebrew. The man told Abram what occurred. Abram lived near the oak trees of Mamre the Amorite. Mamre was the brother of Eshcol and Aner. These men had an agreement with Abram.
 
-**14** Abram heard that the enemy captured his relative Lot. Abram called his 318 trained men. These men were born in his house. Abram followed the enemy as far as Dan.
+**14** Abram heard that the enemy captured his relative Lot. Abram called his 318 trained men. The mothers of these men gave birth to them in his house. Abram followed the enemy as far as Dan.
 
 **15** At night, Abram divided his men into groups against the enemy. He and his servants attacked the enemy and defeated them. Abram followed them as far as Hobah, on the north of Damascus.
 
@@ -890,7 +890,7 @@
 
 **2** Abraham looked up and saw three men. They stood near him. When Abraham saw them, he ran from the door of his tent to meet them. He bowed down to the ground.
 
-**3** He said, "My lord, if you are pleased with me, please do not go past your servant.
+**3** He said, "My lord, if you are happy with me, please do not go past your servant.
 
 **4** Let me bring a little water. Then you can wash your feet and rest under the tree.
 
@@ -1084,7 +1084,7 @@
 
 **7** She also said, "Nobody could tell Abraham that Sarah will feed children with her milk. But I gave birth to a son for him when he was old."
 
-**8** The child grew, and Sarah stopped feeding him with her milk. On that day, Abraham made a large feast.
+**8** The child grew, and Sarah stopped and did not feed him with her milk again. On that day, Abraham made a large feast.
 
 **9** Hagar was the Egyptian woman who gave birth to a son for Abraham. Sarah saw that son laugh at Isaac.
 
@@ -1164,7 +1164,7 @@
 
 **12** The angel said, "Do not put your hand on the boy. Do not do anything to him. Now I know that you fear God. You did not keep your son, your only son, from me."
 
-**13** Abraham looked up and saw a ram behind him. The horns of the ram were stuck in a bush. Abraham went and took the ram. He offered the ram as a burnt offering in the place of his son.
+**13** Abraham looked up and saw a ram behind him. A bush held the horns of the ram. Abraham went and took the ram. He offered the ram as a burnt offering in the place of his son.
 
 **14** Abraham gave the name "The LORD Will Supply" to that place. Today people say, "On the mountain of the LORD, the LORD will supply what is necessary."
 
@@ -1182,7 +1182,7 @@
 
 **21** The first son was Uz. After him came his brother Buz, and Kemuel, the father of Aram.
 
-**22** The other sons were Chesed, Hazo, Pildash, Jidlaph, and Bethuel.
+**22** The other sons had the names Chesed, Hazo, Pildash, Jidlaph, and Bethuel.
 
 **23** Bethuel became the father of Rebekah. Milcah gave birth to these 8 sons for Nahor, the brother of Abraham.
 
@@ -1260,7 +1260,7 @@
 
 **14** "I will say to a young woman, 'Please lower your jar so that I can drink.' Maybe she will say, 'Drink, and I will also give water to your camels.' Then I will know that she is the woman that you chose for your servant Isaac. Then I will know that you showed kindness to my master."
 
-**15** Before he stopped speaking, Rebekah came out with her jar on her shoulder. Rebekah was the daughter of Bethuel. Bethuel was the son of Milcah. Milcah was the wife of Nahor, the brother of Abraham.
+**15** Before he stopped his words, Rebekah came out with her jar on her shoulder. Rebekah was the daughter of Bethuel. Bethuel was the son of Milcah. Milcah was the wife of Nahor, the brother of Abraham.
 
 **16** The young woman was very beautiful. She was a virgin. No man slept with her. She went down to the spring, filled her jar, and came up.
 
@@ -1320,7 +1320,7 @@
 
 **44** "'She will say to me, "Drink, and I will also get water for your camels." Let that woman be the wife that the LORD chose for the son of my master.'"
 
-**45** "Before I stopped speaking in my heart, Rebekah came out with her jar on her shoulder. She went down to the spring and got water. I said to her, 'Please give me a drink.'"
+**45** "Before I stopped my words in my heart, Rebekah came out with her jar on her shoulder. She went down to the spring and got water. I said to her, 'Please give me a drink.'"
 
 **46** "Quickly she lowered her jar from her shoulder. She said, 'Drink, and I will also give water to your camels.' So I drank. She also gave water to the camels."
 
@@ -1652,9 +1652,9 @@
 
 **1** Jacob continued his journey. He went to the land of the people of the east.
 
-**2** He looked and saw a well in a field. 3 flocks of sheep lay near the well. The shepherds gave water to the flocks from that well. A large stone was on the opening of the well.
+**2** He looked and saw a well in a field. 3 flocks of sheep lay near the well. The shepherds gave water to the flocks from that well. A large stone was on the mouth of the well.
 
-**3** The shepherds gathered all the flocks there. Then they rolled the stone off the opening of the well. They gave water to the sheep. Then they put the stone back in its place on the opening of the well.
+**3** The shepherds gathered all the flocks there. Then they rolled the stone off the mouth of the well. They gave water to the sheep. Then they put the stone back in its place on the mouth of the well.
 
 **4** Jacob said to the shepherds, "My brothers, where do you come from?" They said, "We come from Haran."
 
@@ -1664,11 +1664,11 @@
 
 **7** Jacob said, "Look, the sun is still high. It is not the time to gather the animals. Give water to the sheep. Then go and let them eat grass."
 
-**8** They said, "We cannot do that until all the flocks come together. Then the shepherds roll the stone off the opening of the well. Then we give water to the sheep."
+**8** They said, "We cannot do that until all the flocks come together. Then the shepherds roll the stone off the mouth of the well. Then we give water to the sheep."
 
 **9** While Jacob spoke with them, Rachel came with the sheep of her father. She was a shepherd.
 
-**10** Jacob saw Rachel, the daughter of Laban, the brother of his mother. He also saw the sheep of Laban. Jacob went near and rolled the stone off the opening of the well. He gave water to the flock of Laban.
+**10** Jacob saw Rachel, the daughter of Laban, the brother of his mother. He also saw the sheep of Laban. Jacob went near and rolled the stone off the mouth of the well. He gave water to the flock of Laban.
 
 **11** Then Jacob kissed Rachel, and he cried loudly.
 
@@ -1792,7 +1792,7 @@
 
 **35** But on that day, Laban removed the male goats with stripes or spots. He removed all the female goats with spots, and each goat with white on it. He also removed each dark lamb. He gave these animals to his sons to keep.
 
-**36** Laban put a distance of 3 days of travel between himself and Jacob. Jacob fed the remaining flocks of Laban.
+**36** Laban put a distance of 3 days of travel between himself and Jacob. Jacob fed the rest of the flocks of Laban.
 
 **37** Jacob took fresh sticks from poplar trees, almond trees, and plane trees. He cut white stripes in the sticks. He removed parts of the bark and showed the white wood under the bark.
 
@@ -1904,7 +1904,7 @@
 
 **47** Laban gave the pile the name Jegar Sahadutha. Jacob gave the pile the name Galeed.
 
-**48** Laban said, "This pile of stones is a witness between you and me today." That is why its name is Galeed.
+**48** Laban said, "This pile of stones is a witness between you and me today." That is why people call it Galeed.
 
 **49** The pile also has the name Mizpah. Laban said, "The LORD will watch between you and me when we are apart.
 
@@ -2056,13 +2056,13 @@
 
 **13** Shechem made Dinah, their sister, unclean. So the sons of Jacob answered Shechem and his father Hamor with lies.
 
-**14** They said, "We cannot give our sister to a man who is not circumcised. That is a shame for us.
+**14** They said, "We cannot give our sister to a man who did not receive circumcision. That is a shame for us.
 
-**15** We will agree with you on 1 condition. All the males among you must be circumcised, as we are.
+**15** We will agree with you on 1 condition. All the males among you must receive circumcision, as we did.
 
 **16** Then we will give our daughters to you. We will take your daughters for ourselves. We will live with you, and we will become 1 people.
 
-**17** But if you do not agree to be circumcised, then we will take our sister and go away."
+**17** But if you do not agree to receive circumcision, then we will take our sister and go away."
 
 **18** Hamor and his son Shechem liked their words.
 
@@ -2072,11 +2072,11 @@
 
 **21** They said, "These men are friendly to us. Let them live in the land and buy and sell in it. The land is large enough for them. We can marry their daughters, and they can marry our daughters.
 
-**22** But the men will agree to live with us and become 1 people on 1 condition. All our males must be circumcised, as they are.
+**22** But the men will agree to live with us and become 1 people on 1 condition. All our males must receive circumcision, as they did.
 
 **23** Then their animals, their property, and all their livestock will become ours. So we will agree with them, and they will live with us."
 
-**24** All the men who went out of the city gate agreed with Hamor and his son Shechem. All the males of the city were circumcised.
+**24** All the men who went out of the city gate agreed with Hamor and his son Shechem. All the males of the city received circumcision.
 
 **25** On the third day, the men were still in pain. Then 2 of the sons of Jacob, Simeon and Levi, took their swords. They were brothers of Dinah. They attacked the city by surprise. They killed all the males.
 
@@ -2108,7 +2108,7 @@
 
 **7** He built an altar there. He gave the place the name El Bethel. God appeared to Jacob there when he ran away from his brother.
 
-**8** Deborah, the nurse of Rebekah, died. They buried her under the oak tree below Bethel. So they gave the tree the name Allon Bacuth ("oak of crying").
+**8** Deborah, the nurse of Rebekah, died. They buried her under the oak tree below Bethel. So they gave the tree the name Allon Bacuth ("oak of tears").
 
 **9** Jacob came back from Paddan Aram. God appeared to him again and gave him a blessing.
 
@@ -2144,7 +2144,7 @@
 
 **25** The sons of Bilhah, the female servant of Rachel, were Dan and Naphtali.
 
-**26** The sons of Zilpah, the female servant of Leah, were Gad and Asher. These were the sons of Jacob. They were born in Paddan Aram.
+**26** The sons of Zilpah, the female servant of Leah, were Gad and Asher. These were the sons of Jacob. Their mothers gave birth to them in Paddan Aram.
 
 **27** Jacob came to his father Isaac at Mamre, near Kiriath Arba. Kiriath Arba is Hebron. Abraham and Isaac lived there as foreigners.
 
@@ -2162,7 +2162,7 @@
 
 **4** Adah gave birth to Eliphaz for Esau. Basemath gave birth to Reuel.
 
-**5** Oholibamah gave birth to Jeush, Jalam, and Korah. These were the sons of Esau. They were born in the land of Canaan.
+**5** Oholibamah gave birth to Jeush, Jalam, and Korah. These were the sons of Esau. Their mothers gave birth to them in the land of Canaan.
 
 **6** Esau took his wives, his sons, his daughters, and all the people of his family. He took his livestock, all his animals, and all the property that he got in Canaan. He went to a different land, away from his brother Jacob.
 
@@ -2246,7 +2246,7 @@
 
 **2** This is the history of the family of Jacob. Joseph was 17 years old. He took care of the flocks with his brothers. He worked with the sons of Bilhah and the sons of Zilpah, the wives of his father. Joseph told his father about the bad things that his brothers did.
 
-**3** Israel loved Joseph more than all his other sons. Joseph was born when Israel was old. Israel made a special robe of many colors for Joseph.
+**3** Israel loved Joseph more than all his other sons. Joseph's mother gave birth to him when Israel was old. Israel made a special robe of many colors for Joseph.
 
 **4** The brothers of Joseph saw that their father loved Joseph more than them. So they hated Joseph. They could not speak kindly to him.
 
@@ -2342,7 +2342,7 @@
 
 **13** A person told Tamar, "Your father-in-law goes up to Timnah to cut the wool of his sheep."
 
-**14** So Tamar took off the clothes of a widow. She covered herself with a veil. She sat at the entrance of Enaim, on the road to Timnah. She saw that Shelah was grown up. But Judah did not give her to Shelah as his wife.
+**14** So Tamar took off the clothes of a widow. She covered herself with a veil. She sat at the entrance of Enaim, on the road to Timnah. She saw that Shelah was now a man. But Judah did not give her to Shelah as his wife.
 
 **15** Judah saw her. He thought that she was a prostitute, because she covered her face.
 
@@ -2538,7 +2538,7 @@
 
 **32** "God gave the dream to Pharaoh two times. This shows that God decided the thing. God will make the thing occur soon."
 
-**33** "Now Pharaoh must find a man with good understanding and wisdom. Pharaoh must put him in control of the land of Egypt."
+**33** "Now Pharaoh must find a man with good sense and wisdom. Pharaoh must put him in control of the land of Egypt."
 
 **34** "Pharaoh must also put officers over the land. They must take one fifth of the food of the land of Egypt in the seven years of much food."
 
@@ -2550,7 +2550,7 @@
 
 **38** Pharaoh said to his servants, "We cannot find another man like this man. The Spirit of God is in him."
 
-**39** Pharaoh said to Joseph, "God showed you all this. No other man has as much understanding and wisdom as you."
+**39** Pharaoh said to Joseph, "God showed you all this. No other man has as much good sense and wisdom as you."
 
 **40** "You will be in control of my house. All my people will obey your words. Only I, as king, will be greater than you."
 
@@ -2642,7 +2642,7 @@
 
 **26** The brothers put the grain on their donkeys. Then they went away from there.
 
-**27** At the place where they stopped for the night, one brother opened his sack to give food to his donkey. He saw his money in the opening of his sack.
+**27** At the place where they stopped for the night, one brother opened his sack to give food to his donkey. He saw his money in the mouth of his sack.
 
 **28** He said to his brothers, "Someone put my money back. The money is here in my sack." They became very afraid. They turned and looked at each other. They said, "What is this thing that God did to us?"
 
@@ -2672,7 +2672,7 @@
 
 **2** They ate all the grain that they brought from Egypt. Then their father said to them, "Go again. Buy a small quantity of food for us."
 
-**3** Judah spoke to him. He said, "The man gave us a strong warning. He said, 'You will not see my face again if your brother is not with you.'"
+**3** Judah spoke to him. He said, "The man gave us a strong caution. He said, 'You will not see my face again if your brother is not with you.'"
 
 **4** "If you send our brother with us, we will go down and buy food for you."
 
@@ -2690,7 +2690,7 @@
 
 **11** Israel their father said to them, "If you must go, then do this. Take some of the best products of the land in your bags. Take them down to the man as a gift. Take some balm, some honey, spices, myrrh, nuts, and almonds."
 
-**12** "Take two times the money with you. Take back the money that you found in the opening of your sacks. Maybe the money was a mistake."
+**12** "Take two times the money with you. Take back the money that you found in the mouth of your sacks. Possibly the money was a mistake."
 
 **13** "Also take your brother. Start and go again to the man."
 
@@ -2708,7 +2708,7 @@
 
 **20** They said, "Sir, we came down the first time to buy food."
 
-**21** "At the place where we stopped for the night, we opened our sacks. The money of each man was in the opening of his sack. All of our money was there. We brought the money back with us."
+**21** "At the place where we stopped for the night, we opened our sacks. The money of each man was in the mouth of his sack. All of our money was there. We brought the money back with us."
 
 **22** "We also brought other money to buy food. We do not know who put our money in our sacks."
 
@@ -2738,9 +2738,9 @@
 
 ## Chapter 44
 
-**1** Joseph gave an order to the steward of his house. He said, "Fill the sacks of the men with food. Put as much food as they can carry. Put the money of each man in the opening of his sack."
+**1** Joseph gave an order to the steward of his house. He said, "Fill the sacks of the men with food. Put as much food as they can carry. Put the money of each man in the mouth of his sack."
 
-**2** "Put my cup, the silver cup, in the opening of the sack of the youngest. Also put his money for the grain there." The steward did as Joseph told him.
+**2** "Put my cup, the silver cup, in the mouth of the sack of the youngest. Also put his money for the grain there." The steward did as Joseph told him.
 
 **3** In the morning, at first light, the servants sent the men away with their donkeys.
 
@@ -2752,7 +2752,7 @@
 
 **7** They said to him, "Why does my lord say these words? Your servants will not do such a thing."
 
-**8** "We found money in the opening of our sacks. We brought that money back to you from the land of Canaan. Thus we will not steal silver or gold from the house of your lord."
+**8** "We found money in the mouth of our sacks. We brought that money back to you from the land of Canaan. Thus we will not steal silver or gold from the house of your lord."
 
 **9** "If you find the cup with one of your servants, that man will die. And we will also be the slaves of my lord."
 
@@ -2776,7 +2776,7 @@
 
 **19** "My lord asked his servants, 'Do you have a father or a brother?'"
 
-**20** "We said to my lord, 'We have an old father. He has a young son. The son was born when our father was old. The brother of that son is dead. Only he stays from the sons of his mother. His father loves him.'"
+**20** "We said to my lord, 'We have an old father. He has a young son. The mother of the son gave birth to him when our father was old. The brother of that son is dead. Only he stays from the sons of his mother. His father loves him.'"
 
 **21** "You said to your servants, 'Bring him down to me. I want to see him.'"
 
@@ -2838,7 +2838,7 @@
 
 **15** Joseph kissed all his brothers and cried over them. After that, his brothers spoke with him.
 
-**16** The house of Pharaoh heard the news. People said, "The brothers of Joseph came." Pharaoh and his servants were pleased.
+**16** The house of Pharaoh heard the news. People said, "The brothers of Joseph came." Pharaoh and his servants were happy.
 
 **17** Pharaoh said to Joseph, "Tell your brothers: 'Do this. Put loads on your animals. Go to the land of Canaan.'"
 
@@ -2846,7 +2846,7 @@
 
 **19** "You must also tell them: 'Do this. Take wagons from the land of Egypt for your little children and your wives. Bring your father and come.'"
 
-**20** "'Do not be concerned about your things. The good things of all the land of Egypt are yours.'"
+**20** "'Do not worry about your things. The good things of all the land of Egypt are yours.'"
 
 **21** The sons of Israel did so. Joseph gave them wagons, as Pharaoh told him. He gave them food for the travel.
 
@@ -2892,7 +2892,7 @@
 
 **13** The sons of Issachar were Tola, Puvah, Iob, and Shimron.
 
-**14** The sons of Zebulun were Sered, Elon, and Jahleel.
+**14** Zebulun had 3 sons: Sered, Elon, and Jahleel.
 
 **15** These were the sons of Leah. She gave birth to them for Jacob in Paddan Aram. She also gave birth to his daughter Dinah. All his sons and daughters from Leah were 33 persons.
 
@@ -3132,9 +3132,9 @@
 
 **9** Chariots and horsemen also went up with him. The group was very large.
 
-**10** They came to the threshing floor of Atad, on the other side of the Jordan. There they cried very loudly and with much sorrow. Joseph mourned for his father for 7 days.
+**10** They came to the floor of Atad, where people beat the grain, on the other side of the Jordan. There they cried very loudly and with much sorrow. Joseph mourned for his father for 7 days.
 
-**11** The Canaanites who lived in the land saw the mourning at the threshing floor of Atad. They said, "The Egyptians have a very sad time of mourning." Thus people gave the place the name Abel Mizraim. The place is on the other side of the Jordan.
+**11** The Canaanites who lived in the land saw the sorrow at the floor of Atad, where people beat the grain. They said, "The Egyptians have a time of very deep sorrow." Thus people gave the place the name Abel Mizraim. The place is on the other side of the Jordan.
 
 **12** The sons of Jacob did for him as he told them.
 

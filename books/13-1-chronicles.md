@@ -170,7 +170,7 @@
 
 **29** The name of the wife of Abishur was Abihail. She gave birth to Ahban and Molid for him.
 
-**30** The sons of Nadab were Seled and Appaim. Seled died and had no children.
+**30** Nadab had 2 sons, Seled and Appaim. Seled died and had no children.
 
 **31** The son of Appaim was Ishi. The son of Ishi was Sheshan. The son of Sheshan was Ahlai.
 
@@ -194,7 +194,7 @@
 
 **41** Shallum became the father of Jekamiah. Jekamiah became the father of Elishama.
 
-**42** The sons of Caleb, the brother of Jerahmeel, were Mesha, his first son, who was the father of Ziph, and the sons of Mareshah, the father of Hebron.
+**42** The sons of Caleb, the brother of Jerahmeel, included Mesha, his first son. Mesha was the father of Ziph. The sons of Caleb also included the sons of Mareshah, the father of Hebron.
 
 **43** The sons of Hebron were Korah, Tappuah, Rekem, and Shema.
 
@@ -224,15 +224,15 @@
 
 ## Chapter 3
 
-**1** These were the sons of David who were born to him in Hebron. The first son was Amnon. His mother was Ahinoam from Jezreel. The second son was Daniel. His mother was Abigail from Carmel.
+**1** These were the sons of David that his wives gave birth to in Hebron. The first son was Amnon. His mother was Ahinoam from Jezreel. The second son was Daniel. His mother was Abigail from Carmel.
 
 **2** The third son was Absalom. His mother was Maachah, the daughter of Talmai king of Geshur. The fourth son was Adonijah. His mother was Haggith.
 
 **3** The fifth son was Shephatiah. His mother was Abital. The sixth son was Ithream. His mother was Eglah, the wife of David.
 
-**4** These 6 sons were born to David in Hebron. David ruled there for 7 years and 6 months. He ruled in Jerusalem for 33 years.
+**4** David had these 6 sons in Hebron. David ruled there for 7 years and 6 months. He ruled in Jerusalem for 33 years.
 
-**5** These sons were born to David in Jerusalem: Shimea, Shobab, Nathan, and Solomon. These 4 sons were the sons of Bath-shua the daughter of Ammiel.
+**5** David had these sons in Jerusalem: Shimea, Shobab, Nathan, and Solomon. These 4 sons were the sons of Bath-shua the daughter of Ammiel.
 
 **6** There were also Ibhar, Elishama, Eliphelet,
 
@@ -300,7 +300,7 @@
 
 **13** The sons of Kenaz were Othniel and Seraiah. The son of Othniel was Hathath.
 
-**14** Meonothai became the father of Ophrah. Seraiah became the father of Joab. Joab was the father of the people in the Valley of Charashim. They had this name because they were skilled workers.
+**14** Meonothai became the father of Ophrah. Seraiah became the father of Joab. Joab was the father of the people in the Valley of Charashim. They had this name because they were good craftsmen.
 
 **15** The sons of Caleb the son of Jephunneh were Iru, Elah, and Naam. The son of Elah was Kenaz.
 
@@ -348,17 +348,17 @@
 
 **37** and Ziza the son of Shiphi, the son of Allon, the son of Jedaiah, the son of Shimri, the son of Shemaiah.
 
-**38** These men, whose names are written here, were leaders of their families. Their families became very large.
+**38** These men, whose names are in this list, were leaders of their families. Their families became very large.
 
 **39** They went to the entrance of Gedor, to the east side of the valley. They looked for grass for their flocks.
 
 **40** They found rich, good grass. The land was wide, quiet, and peaceful. Some descendants of Ham lived there before them.
 
-**41** These men, whose names are written here, came in the time of Hezekiah king of Judah. They attacked the tents of the people there and the Meunites who lived there. They destroyed these people completely, and the people are not there today. Then these men lived in their place, because there was grass there for their flocks.
+**41** These men, whose names are in this list, came in the time of Hezekiah king of Judah. They attacked the tents of the people there and the Meunites who lived there. They destroyed these people completely, and the people are not there today. Then these men lived in their place, because there was grass there for their flocks.
 
 **42** 500 men of the descendants of Simeon went to Mount Seir. Their leaders were Pelatiah, Neariah, Rephaiah, and Uzziel, the sons of Ishi.
 
-**43** They killed the remaining Amalekites who escaped. They live there today.
+**43** They killed the rest of the Amalekites who escaped. They live there today.
 
 ## Chapter 5
 
@@ -388,7 +388,7 @@
 
 **13** Their relatives by their families were Michael, Meshullam, Sheba, Jorai, Jachan, Zia, and Heber. They were 7 in total.
 
-**14** These were the sons of Abihail the son of Huri, the son of Jaroah, the son of Gilead, the son of Michael, the son of Jeshishai, the son of Jahdo, the son of Buz.
+**14** These were the sons of Abihail the son of Huri, the son of Jaroah, the son of Gilead. Gilead was the son of Michael, the son of Jeshishai, the son of Jahdo, the son of Buz.
 
 **15** Ahi the son of Abdiel, the son of Guni, was chief of their family.
 
@@ -396,7 +396,7 @@
 
 **17** All these names went into the family records in the time of Jotham king of Judah and in the time of Jeroboam king of Israel.
 
-**18** The tribe of Reuben, the tribe of Gad, and half the tribe of Manasseh had 44,760 brave soldiers. These men could carry shields and swords and use bows. They were skilled in war.
+**18** The tribe of Reuben, the tribe of Gad, and half the tribe of Manasseh had 44,760 brave soldiers. These men could carry shields and swords and use bows. They had much skill in war.
 
 **19** They fought a war against the Hagarites, Jetur, Nephish, and Nodab.
 
@@ -478,7 +478,7 @@
 
 **31** David put these men in charge of the music in the house of the LORD. He did this after the ark (the holy box of the agreement) came to rest there.
 
-**32** They served with music in front of the tabernacle (the holy tent) of meeting. They did this until Solomon built the house of the LORD in Jerusalem. They did their work in the order that David gave them.
+**32** They served with music in front of the tabernacle (the holy tent) of assembly. They did this until Solomon built the house of the LORD in Jerusalem. They did their work in the order that David gave them.
 
 **33** These are the men who served, with their sons. From the Kohathites there was Heman the singer. He was the son of Joel, the son of Shemuel,
 
@@ -544,7 +544,7 @@
 
 **64** Thus the people of Israel gave these cities and their fields to the Levites.
 
-**65** They gave by lot the cities from the tribes of Judah, Simeon, and Benjamin. The names of these cities are written above.
+**65** They gave by lot the cities from the tribes of Judah, Simeon, and Benjamin. The list above gives the names of these cities.
 
 **66** Some families of Kohath received cities from the tribe of Ephraim.
 
@@ -570,7 +570,7 @@
 
 **77** The other families of Merari received Rimmon and Tabor, with their fields, from the tribe of Zebulun.
 
-**78** From the tribe of Reuben, on the east side of the Jordan River near Jericho, they received Bezer in the desert and Jahzah, with their fields,
+**78** The tribe of Reuben was on the east side of the Jordan River near Jericho. From that tribe they received Bezer in the desert and Jahzah, with their fields,
 
 **79** and Kedemoth and Mephaath, with their fields.
 
@@ -620,7 +620,7 @@
 
 **20** The descendants of Ephraim were Shuthelah, Bered his son, Tahath his son, Eladah his son, Tahath his son,
 
-**21** Zabad his son, and Shuthelah his son. Ezer and Elead also were sons of Ephraim. The men of Gath, who were born in that land, killed Ezer and Elead. They killed them because Ezer and Elead went down to take the cattle of the men of Gath.
+**21** Zabad his son, and Shuthelah his son. Ezer and Elead also were sons of Ephraim. The men of Gath, who were natives of that land, killed Ezer and Elead. They killed them because Ezer and Elead went down to take the cattle of the men of Gath.
 
 **22** Ephraim their father mourned for them for many days. His relatives came to comfort him.
 
@@ -784,9 +784,9 @@
 
 **20** In the past, Phinehas the son of Eleazar was the leader of the gatekeepers. The LORD was with him.
 
-**21** Zechariah the son of Meshelemiah was the gatekeeper at the door of the tent of meeting.
+**21** Zechariah the son of Meshelemiah was the gatekeeper at the door of the tent of assembly.
 
-**22** In total, 212 men were chosen as gatekeepers. The family records list them by their villages. David and Samuel the seer gave these men their positions because the men were faithful.
+**22** In total, David and Samuel chose 212 men as gatekeepers. The family records list them by their villages. David and Samuel the seer gave these men their positions because the men were faithful.
 
 **23** Thus the gatekeepers and their sons guarded the gates of the house of the LORD, which was the tent. They worked in groups.
 
@@ -908,7 +908,7 @@
 
 **22** Benaiah the son of Jehoiada was a brave man from Kabzeel. He did many great things. He killed 2 of the best soldiers of Moab. On a day with snow, he also went down into a pit and killed a lion.
 
-**23** He killed a very tall Egyptian. The Egyptian was 5 cubits (2.3 meters) tall. The Egyptian had a spear as large as the beam of a weaving machine. Benaiah went against him with a stick. He pulled the spear out of the hand of the Egyptian. Then he killed the Egyptian with his own spear.
+**23** He killed a very tall Egyptian. The Egyptian was 5 cubits (2.3 meters) tall. The Egyptian had a spear as large as the beam of a loom. Benaiah went against him with a stick. He pulled the spear out of the hand of the Egyptian. Then he killed the Egyptian with his own spear.
 
 **24** Benaiah the son of Jehoiada did these things. He became famous like the 3 strongest soldiers.
 
@@ -1044,7 +1044,7 @@
 
 **1** David talked with the commanders of 1,000 men and the commanders of 100 men. He talked with each leader.
 
-**2** Then David spoke to all the people of Israel who were there. He said, "If you think that this is good, and if the LORD our God agrees, then we will send messengers to all our relatives in the land of Israel. We will also send messengers to the priests and the Levites in their cities. We will tell them all to come to us.
+**2** Then David spoke to all the people of Israel who were there. He said, "If you think that this is good, and if the LORD our God agrees, we will send messengers. We will send them to all our relatives in the land of Israel. We will also send messengers to the priests and the Levites in their cities. We will tell them all to come to us.
 
 **3** Then we will bring the ark (the holy box) of our God back to us. In the time of Saul, we did not ask God for help through the ark."
 
@@ -1058,7 +1058,7 @@
 
 **8** David and all Israel celebrated before God with all their strength. They sang and played harps, lyres, tambourines, cymbals, and trumpets.
 
-**9** They came to the threshing floor of Chidon. There the oxen stumbled. Uzza put out his hand to hold the ark.
+**9** They came to the grain floor of Chidon. There the oxen stumbled. Uzza put out his hand to hold the ark.
 
 **10** The LORD became angry with Uzza. The LORD killed him because Uzza put his hand on the ark. Thus Uzza died there before God.
 
@@ -1078,7 +1078,7 @@
 
 **3** David married more wives in Jerusalem. He became the father of more sons and daughters.
 
-**4** These are the names of his children who were born in Jerusalem: Shammua, Shobab, Nathan, Solomon,
+**4** These are the names of the children that David had in Jerusalem: Shammua, Shobab, Nathan, Solomon,
 
 **5** Ibhar, Elishua, Elpalet,
 
@@ -1100,7 +1100,7 @@
 
 **14** Thus David asked God again. God said to him, "Do not go up directly after them. Go around them. Attack them in front of the balsam trees.
 
-**15** You will hear a sound like marching in the tops of the balsam trees. Then go out to the battle, because God will go in front of you to defeat the army of the Philistines."
+**15** You will hear a sound of soldiers who march in the tops of the balsam trees. Then go out to the battle, because God will go in front of you to defeat the army of the Philistines."
 
 **16** David did as God told him. His army defeated the army of the Philistines from Gibeon to Gazer.
 
@@ -1144,19 +1144,19 @@
 
 **18** With them were their relatives of the second rank: Zechariah, Ben, Jaaziel, Shemiramoth, Jehiel, Unni, Eliab, Benaiah, Maaseiah, Mattithiah, Elipheleh, Mikneiah, Obed-edom, and Jeiel. These men were the gatekeepers.
 
-**19** The singers Heman, Asaph, and Ethan had the work of playing cymbals of bronze.
+**19** The singers Heman, Asaph, and Ethan had the work to play cymbals of bronze.
 
 **20** Zechariah, Aziel, Shemiramoth, Jehiel, Unni, Eliab, Maaseiah, and Benaiah played lyres in the high range (Alamoth).
 
 **21** Mattithiah, Elipheleh, Mikneiah, Obed-edom, Jeiel, and Azaziah played harps in the low range (Sheminith). They led the music.
 
-**22** Chenaniah, the leader of the Levites, was in charge of the singing. He taught the singing because he was skilled.
+**22** Chenaniah, the leader of the Levites, was in charge of the songs. He taught the songs because he had much skill.
 
 **23** Berechiah and Elkanah were gatekeepers for the ark.
 
 **24** The priests Shebaniah, Jehoshaphat, Nethaneel, Amasai, Zechariah, Benaiah, and Eliezer blew the trumpets in front of the ark of God. Obed-edom and Jehiah were also gatekeepers for the ark.
 
-**25** Thus David, the leaders of Israel, and the commanders of 1,000 men went to bring up the ark of the covenant (the agreement) of the LORD. They brought the ark from the house of Obed-edom with joy.
+**25** Thus David, the leaders of Israel, and the commanders of 1,000 men went with joy. They went to bring up the ark of the covenant (the agreement) of the LORD from the house of Obed-edom.
 
 **26** God helped the Levites who carried the ark of the covenant of the LORD. Thus they sacrificed 7 bulls and 7 rams.
 
@@ -1246,7 +1246,7 @@
 
 **39** David left Zadok the priest and his relatives the priests in front of the tabernacle of the LORD. The tabernacle was at the place of worship on the hill at Gibeon.
 
-**40** They were to make burnt offerings to the LORD on the altar of burnt offering. They did this each morning and each evening. They did all that is written in the law of the LORD. The LORD gave this law to Israel.
+**40** They were to make burnt offerings to the LORD on the altar of burnt offering. They did this each morning and each evening. They did all that the law of the LORD tells. The LORD gave this law to Israel.
 
 **41** Heman, Jeduthun, and the other chosen men were with them. Their names are on the list. They were to give thanks to the LORD, because his love continues always.
 
@@ -1394,9 +1394,9 @@
 
 **3** He brought out the people of the city. He made them do hard work with saws, iron picks, and axes. David did this to all the cities of the Ammonites. Then David and all the army went back to Jerusalem.
 
-**4** After this, a war started with the Philistines at Gezer. At that time Sibbechai the Hushathite killed Sippai. Sippai was a descendant of the giants. Thus the Philistines were defeated.
+**4** After this, a war started with the Philistines at Gezer. At that time Sibbechai the Hushathite killed Sippai. Sippai was a descendant of the giants. Thus Israel defeated the Philistines.
 
-**5** There was war again with the Philistines. Elhanan the son of Jair killed Lahmi, the brother of Goliath from Gath. The handle of the spear of Lahmi was as large as the beam of a weaving machine.
+**5** There was war again with the Philistines. Elhanan the son of Jair killed Lahmi, the brother of Goliath from Gath. The handle of the spear of Lahmi was as large as the beam of a loom.
 
 **6** There was war again at Gath. There was a very tall man there. He had 24 fingers and toes, 6 on each hand and 6 on each foot. He also was a descendant of the giants.
 
@@ -1418,7 +1418,7 @@
 
 **6** But Joab did not count the tribes of Levi and Benjamin, because he hated the order of the king.
 
-**7** God was not pleased with this act. Thus he punished Israel.
+**7** God was not happy with this act. Thus he punished Israel.
 
 **8** David said to God, "I did a very bad sin because I did this. Now please take away the guilt of your servant. I did a very foolish thing."
 
@@ -1434,23 +1434,23 @@
 
 **14** Thus the LORD sent a disease on Israel. 70,000 men of Israel died.
 
-**15** God sent an angel to destroy Jerusalem. The angel started to destroy the city. Then the LORD looked and felt sorry about the disaster. He said to the angel who destroyed the people, "That is enough! Stop now." At that time, the angel of the LORD stood by the threshing floor of Ornan the Jebusite.
+**15** God sent an angel to destroy Jerusalem. The angel started to destroy the city. Then the LORD looked and felt sorry about the disaster. He said to the angel who destroyed the people, "That is enough! Stop now." At that time, the angel of the LORD stood by the grain floor of Ornan the Jebusite.
 
 **16** David looked up and saw the angel of the LORD. The angel stood between the earth and the sky. He had a sword in his hand. He held the sword out over Jerusalem. David and the leaders of Israel wore rough cloth (sackcloth) to show their sorrow. They bowed with their faces to the ground.
 
 **17** David said to God, "I gave the order to count the people. I am the person who sinned and did this evil. These people are like sheep. They did nothing wrong. LORD my God, please punish me and my family. But do not send the disease on your people."
 
-**18** Then the angel of the LORD told Gad to speak to David. Gad told David to go up and build an altar to the LORD at the threshing floor of Ornan the Jebusite.
+**18** Then the angel of the LORD told Gad to speak to David. Gad told David to go up and build an altar to the LORD at the grain floor of Ornan the Jebusite.
 
 **19** David went up, because Gad told him to go in the name of the LORD.
 
 **20** Ornan threshed wheat at that time. He turned and saw the angel. His 4 sons who were with him hid.
 
-**21** David came to Ornan. Ornan looked and saw David. He went out of the threshing floor. He bowed down to David with his face to the ground.
+**21** David came to Ornan. Ornan looked and saw David. He went out of the grain floor. He bowed down to David with his face to the ground.
 
-**22** David said to Ornan, "Sell me the place of this threshing floor. I want to build an altar to the LORD on it. Sell it to me for the full price. Then the disease will stop among the people."
+**22** David said to Ornan, "Sell me the place of this grain floor. I want to build an altar to the LORD on it. Sell it to me for the full price. Then the disease will stop among the people."
 
-**23** Ornan said to David, "Take it. My lord the king can do what he thinks is good. Look, I will also give you the oxen for the burnt offerings. I will give you the threshing tools for wood. I will give you the wheat for the grain offering. I give it all to you."
+**23** Ornan said to David, "Take it. My lord the king can do what he thinks is good. Look, I will also give you the oxen for the burnt offerings. I will give you the tools that beat the grain for wood. I will give you the wheat for the grain offering. I give it all to you."
 
 **24** But King David said to Ornan, "No. I will pay the full price for it. I will not take what is yours and give it to the LORD. I will not make burnt offerings that cost me nothing."
 
@@ -1460,7 +1460,7 @@
 
 **27** Then the LORD gave an order to the angel. The angel put his sword back in its cover.
 
-**28** At that time, David saw that the LORD answered him at the threshing floor of Ornan the Jebusite. Thus David made sacrifices there.
+**28** At that time, David saw that the LORD answered him at the grain floor of Ornan the Jebusite. Thus David made sacrifices there.
 
 **29** At that time, the tabernacle of the LORD was at the place of worship on the hill at Gibeon. Moses made this tabernacle in the desert. The altar of burnt offering was also there.
 
@@ -1490,13 +1490,13 @@
 
 **11** Now, my son, I pray that the LORD will be with you. Then you will be successful. Build the house of the LORD your God, as he said that you will do.
 
-**12** I pray that the LORD will give you wisdom and understanding. He will put you in charge of Israel. Then obey the law of the LORD your God.
+**12** I pray that the LORD will give you wisdom and the ability to understand. He will put you in charge of Israel. Then obey the law of the LORD your God.
 
 **13** You will be successful if you carefully obey the laws and rules that the LORD gave to Moses for Israel. Be strong and brave. Do not be afraid. Do not lose courage.
 
 **14** Look, I worked hard to prepare for the house of the LORD. I prepared 100,000 talents of gold and 1,000,000 talents of silver. I prepared more bronze and iron than anyone can weigh. I also prepared wood and stone. You can add more to these.
 
-**15** You have many workers. There are stone cutters, stone workers, and carpenters. There are skilled men for all types of work.
+**15** You have many workers. There are stone cutters, stone workers, and carpenters. There are men with skill for all types of work.
 
 **16** They can work with gold, silver, bronze, and iron. There is too much of it to count. Now start the work. I pray that the LORD will be with you."
 
@@ -1512,7 +1512,7 @@
 
 **2** David brought together all the leaders of Israel, the priests, and the Levites.
 
-**3** The Levites who were 30 years old and older were counted. There were 38,000 men in total.
+**3** The officials counted the Levites who were 30 years old and older. There were 38,000 men in total.
 
 **4** David said, "24,000 of them will be in charge of the work of the house of the LORD. 6,000 will be officials and judges.
 
@@ -1554,13 +1554,13 @@
 
 **23** The 3 sons of Mushi were Mahli, Eder, and Jeremoth.
 
-**24** These were the descendants of Levi by their families. They were the leaders of the families. Each man's name was written on the list. They did the work in the house of the LORD. They were 20 years old and older.
+**24** These were the descendants of Levi by their families. They were the leaders of the families. The officials wrote the name of each man on the list. They did the work in the house of the LORD. They were 20 years old and older.
 
 **25** David said, "The LORD, the God of Israel, gave peace to his people. He will live in Jerusalem forever.
 
 **26** Thus the Levites do not have to carry the tabernacle again. They do not have to carry its containers for the service."
 
-**27** By the last orders of David, the Levites were counted from 20 years old and older.
+**27** By the last orders of David, the officials counted the Levites from 20 years old and older.
 
 **28** Their work was to help the descendants of Aaron in the service of the house of the LORD. They worked in the courtyards and in the rooms. They made all the holy things clean. They did other work in the house of God.
 
@@ -1570,7 +1570,7 @@
 
 **31** They helped when people made burnt offerings to the LORD on the Sabbaths, on the new moon festivals, and on the other festivals. They always served before the LORD in the number that the law told them.
 
-**32** Thus the Levites took care of the tent of meeting and the holy place. They helped their relatives, the descendants of Aaron, in the service of the house of the LORD.
+**32** Thus the Levites took care of the tent of assembly and the holy place. They helped their relatives, the descendants of Aaron, in the service of the house of the LORD.
 
 ## Chapter 24
 
@@ -1634,7 +1634,7 @@
 
 **30** The sons of Mushi were Mahli, Eder, and Jerimoth. These were the Levites by their families.
 
-**31** These Levites also chose their work by lot, as their relatives, the descendants of Aaron, did. They did this in front of King David, Zadok, Ahimelech, and the leaders of the families of the priests and Levites. The families of the oldest brother and of the youngest brother were treated the same.
+**31** These Levites also chose their work by lot, as their relatives, the descendants of Aaron, did. They did this in front of King David, Zadok, Ahimelech, and the leaders of the families of the priests and Levites. The families of the oldest brother and of the youngest brother got the same treatment.
 
 ## Chapter 25
 
@@ -1650,7 +1650,7 @@
 
 **6** Their fathers led all these men in the music of the house of the LORD. They played cymbals, lyres, and harps for the service of the house of God. Asaph, Jeduthun, and Heman worked under the orders of the king.
 
-**7** They and their relatives were trained in songs for the LORD. All of them were skilled. They were 288 men in total.
+**7** They and their relatives learned the songs for the LORD. All of them had much skill. They were 288 men in total.
 
 **8** They chose their work by lot. The young and the old, the teacher and the student, all did the same.
 
@@ -1752,7 +1752,7 @@
 
 **25** His relatives through Eliezer were Rehabiah his son, Jeshaiah his son, Joram his son, Zichri his son, and Shelomith his son.
 
-**26** Shelomith and his relatives were in charge of all the treasuries of the holy gifts. King David, the leaders of the families, the commanders of 1,000 men and of 100 men, and the commanders of the army gave these gifts to God.
+**26** Shelomith and his relatives were in charge of all the treasuries of the holy gifts. King David and the leaders of the families gave these gifts to God. The commanders of 1,000 men, of 100 men, and of the army also gave these gifts.
 
 **27** They gave some of the things that they took in battles. They gave these things to repair the house of the LORD.
 
@@ -1762,7 +1762,7 @@
 
 **30** From the Hebronites, Hashabiah and his relatives were 1,700 able men. They were in charge of Israel on the west side of the Jordan River. They did all the work of the LORD and the service of the king.
 
-**31** Jerijah was the chief of the Hebronites, as their family records show. In the fortieth year that David was king, the records were searched. They found brave men from the Hebronites at Jazer in Gilead.
+**31** Jerijah was the chief of the Hebronites, as their family records show. In the 40th year that David was king, people searched the records. They found brave men from the Hebronites at Jazer in Gilead.
 
 **32** Jerijah had 2,700 relatives. They were able men and leaders of families. King David put them in charge of the Reubenites, the Gadites, and the half tribe of Manasseh. They did all the work for God and for the king.
 
@@ -1840,11 +1840,11 @@
 
 **1** David brought all the leaders of Israel together in Jerusalem. He brought the leaders of the tribes and the commanders of the groups that served the king. He brought the commanders of 1,000 men and of 100 men. He brought the officials in charge of all the property and animals of the king and his sons. He also brought the officials, the strong soldiers, and all the brave men.
 
-**2** Then King David stood up and said, "Listen to me, my relatives and my people. I wanted to build a house as a resting place for the ark of the covenant of the LORD. It was to be a footstool for our God. I prepared to build it.
+**2** Then King David stood up and said, "Listen to me, my relatives and my people. I wanted to build a house as a place of rest for the ark of the covenant of the LORD. It was to be a footstool for our God. I prepared to build it.
 
 **3** But God said to me, 'You will not build a house for my name, because you are a man of war. You killed people.'
 
-**4** But the LORD, the God of Israel, chose me from all my family to be king over Israel forever. He chose Judah to be the leader. From Judah he chose the family of my father. From the sons of my father, he was pleased to make me king over all Israel.
+**4** But the LORD, the God of Israel, chose me from all my family to be king over Israel forever. He chose Judah to be the leader. From Judah he chose the family of my father. From the sons of my father, he was happy to make me king over all Israel.
 
 **5** The LORD gave me many sons. From all my sons, he chose my son Solomon. Solomon will sit on the throne of the kingdom of the LORD over Israel.
 
@@ -1854,11 +1854,11 @@
 
 **8** Now all Israel, the people of the LORD, sees this, and our God hears this. Thus I tell you: Carefully obey all the commands of the LORD your God. Then you will keep this good land. You will give it to your descendants forever.
 
-**9** And you, my son Solomon, know the God of your father. Serve him with all your heart and with a willing mind. The LORD looks into all hearts. He understands all thoughts. If you look for him, you will find him. But if you leave him, he will reject you forever.
+**9** And you, my son Solomon, know the God of your father. Serve him with all your heart and with a mind that wants to serve him. The LORD looks into all hearts. He understands all thoughts. If you look for him, you will find him. But if you leave him, he will reject you forever.
 
 **10** Be careful now. The LORD chose you to build a house as a holy place. Be strong and do the work."
 
-**11** Then David gave his son Solomon the plans for the temple. The plans showed the porch, the buildings, the storerooms, the upper rooms, the inner rooms, and the room for the mercy seat (the cover of the ark).
+**11** Then David gave his son Solomon the plans for the temple. The plans showed the porch, the buildings, the storerooms, and the upper rooms. They also showed the inner rooms and the room for the mercy seat (the cover of the ark).
 
 **12** He gave him the plans of all that the Spirit put in his mind. He gave the plans for the courtyards of the house of the LORD and all the rooms around it. He gave the plans for the treasuries of the house of God and the treasuries for the holy gifts.
 
@@ -1874,7 +1874,7 @@
 
 **18** He told him the weight of the refined gold for the altar of incense. He gave him the plan for the chariot of the gold cherubim. Their wings opened and covered the ark of the covenant of the LORD.
 
-**19** David said, "The LORD gave me all these plans in writing. He helped me understand all the details of the plans."
+**19** David said, "The LORD gave me all these plans in a written document. He helped me understand all the details of the plans."
 
 **20** David also said to his son Solomon, "Be strong and brave. Do the work. Do not be afraid. Do not lose courage. The LORD God, my God, is with you. He will not fail you or leave you. He will stay with you until you finish all the work for the service of the house of the LORD.
 
@@ -1892,7 +1892,7 @@
 
 **5** The gold is for the gold items, and the silver is for the silver items. Skilled workers will use them for all the work. Now, who will give himself to the LORD today?"
 
-**6** Then the leaders of the families, the leaders of the tribes of Israel, the commanders of 1,000 men and of 100 men, and the officials in charge of the work of the king gave willingly.
+**6** Then the leaders of the families and the leaders of the tribes of Israel gave willingly. The commanders of 1,000 men and of 100 men, and the officials in charge of the work of the king, also gave willingly.
 
 **7** For the work of the house of God, they gave 5,000 talents and 10,000 darics of gold. They gave 10,000 talents of silver, 18,000 talents of bronze, and 100,000 talents of iron.
 
@@ -1914,7 +1914,7 @@
 
 **16** LORD our God, we prepared all these materials to build a house for your holy name. But all these things come from your hand. They are all yours.
 
-**17** My God, I know that you examine the heart. You are pleased with honest people. I gave all these things willingly and with an honest heart. Now I saw your people here give willingly to you. I was happy to see this.
+**17** My God, I know that you examine the heart. You are happy with honest people. I gave all these things willingly and with an honest heart. Now I saw your people here give willingly to you. I was happy to see this.
 
 **18** LORD, God of Abraham, Isaac, and Israel, our ancestors, keep this wish in the hearts of your people always. Keep their hearts loyal to you.
 
@@ -1938,6 +1938,6 @@
 
 **28** He died when he was very old. He had a long life, wealth, and honor. His son Solomon became king after him.
 
-**29** The acts of King David, from the start to the end, are written in the records of Samuel the seer, the records of Nathan the prophet, and the records of Gad the seer.
+**29** The records of Samuel the seer tell the acts of King David, from the start to the end. The records of Nathan the prophet and the records of Gad the seer also tell them.
 
 **30** These records tell about all his rule and his power. They tell about the events that occurred to him, to Israel, and to all the kingdoms of the other countries.

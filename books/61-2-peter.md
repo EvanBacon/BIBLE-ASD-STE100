@@ -32,7 +32,7 @@
 
 **15** I will try hard to help you. Thus, after my death, you will always remember these things.
 
-**16** We told you about the power of our Lord Jesus Christ and about his coming. We did not use clever stories that men made. We saw his majesty with our own eyes.
+**16** We told you about the power of our Lord Jesus Christ and about the time when he will come. We did not use clever stories that men made. We saw his majesty with our own eyes.
 
 **17** God the Father gave him honor and glory. A voice came to him from the great glory of God. The voice said, "This is my Son. I love him. I am very pleased with him."
 
@@ -68,7 +68,7 @@
 
 **11** Angels are stronger and more powerful than these people. But angels do not speak bad accusations against those beings in front of the Lord.
 
-**12** But these people are like wild animals that have no reason. Such animals are born only for capture and death. These people speak bad things about things that they do not understand. They will be destroyed in their own corruption.
+**12** But these people are like wild animals that have no reason. Such animals live only so that people can catch them and kill them. These people speak bad things about things that they do not understand. They will die in their own corruption.
 
 **13** They will get the punishment for their wrong actions. They think that it is a pleasure to live in wild pleasures in the daytime. They are like dirty marks and spots. They enjoy their lies while they eat with you.
 
@@ -98,7 +98,7 @@
 
 **3** First, you must know this: In the last days, people will come who laugh at the truth. They will follow their own bad desires.
 
-**4** They will say, "Where is the promise of his coming? Our fathers died. But all things continue the same as at the start of the creation."
+**4** They will say, "He promised that he will come. Where is he? Our fathers died. But all things continue the same as at the start of the creation."
 
 **5** But these people choose to forget this: Long ago, God spoke, and the heavens came into existence. The earth came from water and through water.
 
@@ -112,7 +112,7 @@
 
 **10** But the day of the Lord will come like a thief at night. On that day the heavens will go away with a loud noise. Very hot fire will melt the elements. Fire will burn up the earth and all the works on it.
 
-**11** All these things will be destroyed in this way. Thus you must be holy and godly in all your life.
+**11** God will destroy all these things in this way. Thus you must be holy and godly in all your life.
 
 **12** Wait for the day of God and make it come more quickly. On that day, fire will destroy the heavens. Very hot fire will melt the elements.
 
@@ -120,9 +120,9 @@
 
 **14** Thus, dear friends, you wait for these things. Try very hard to be at peace with God. Be clean and without fault when he finds you.
 
-**15** Remember that the patience of our Lord gives people the chance to be saved. Our dear brother Paul also wrote to you about this. God gave Paul wisdom.
+**15** Remember that the patience of our Lord gives people the chance to receive salvation. Our dear brother Paul also wrote to you about this. God gave Paul wisdom.
 
-**16** Paul writes about these things in all his letters. Some things in his letters are hard to understand. People who are not taught and not stable change the meaning of these things. They also change the meaning of the other scriptures. Thus they cause their own destruction.
+**16** Paul writes about these things in all his letters. Some things in his letters are hard to understand. People who do not have knowledge and are not stable change the meaning of these things. They also change the meaning of the other scriptures. Thus they cause their own destruction.
 
 **17** Thus, dear friends, you know these things before they happen. Be careful. Do not let the error of evil people lead you away. Do not fall from your strong position.
 

@@ -18,9 +18,9 @@
 
 **8** Be careful. Do not lose the things that we worked for. Make sure that you get your full reward.
 
-**9** A person who goes too far does not stay in the teaching of Christ. That person does not have God. A person who stays in the teaching of Christ has the Father and the Son.
+**9** A person who goes too far does not stay in the message of Christ. That person does not have God. A person who stays in the message of Christ has the Father and the Son.
 
-**10** A person can come to you who does not bring this teaching. Do not let him into your house. Do not welcome him.
+**10** A person can come to you who does not bring this message. Do not let him into your house. Do not welcome him.
 
 **11** A person who welcomes him shares in his evil actions.
 

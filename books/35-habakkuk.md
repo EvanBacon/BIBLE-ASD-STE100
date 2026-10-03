@@ -30,9 +30,9 @@
 
 **14** You make people like the fish in the sea. You make them like small animals that have no ruler.
 
-**15** The enemy catches all of these people with hooks. He catches them in his net. He gathers them in his fishing net. Thus he is very happy.
+**15** The enemy catches all of these people with hooks. He catches them in his net. He gathers them in his large net. Thus he is very happy.
 
-**16** Thus he offers sacrifices to his net. He burns incense to his fishing net. His net gives him a rich life and much good food.
+**16** Thus he offers sacrifices to his net. He burns incense to his large net. His net gives him a rich life and much good food.
 
 **17** Will he always empty his net? Will he always kill the nations without pity?
 
@@ -60,7 +60,7 @@
 
 **11** The stones in the wall will shout against you. The wood in the roof will say the same thing.
 
-**12** The man who builds a town by killing people will have much trouble! The man who makes a city strong by evil actions will have much trouble!
+**12** The man who builds a town with the blood of people will have much trouble! The man who makes a city strong by evil actions will have much trouble!
 
 **13** The LORD of armies decided that the work of the nations will burn in the fire. The peoples will become tired for nothing.
 
@@ -74,7 +74,7 @@
 
 **18** An idol does not help a person. A man makes an idol from wood or from metal. The idol teaches lies. The man who makes the idol trusts in his own work. But idols cannot speak.
 
-**19** The man who says to a piece of wood, 'Wake up!' will have much trouble! He says to a stone that cannot speak, 'Get up!' Can the idol teach? Look! It is covered with gold and silver. But it has no breath in it.
+**19** The man who says to a piece of wood, 'Wake up!' will have much trouble! He says to a stone that cannot speak, 'Get up!' Can the idol teach? Look! Gold and silver cover it. But it has no breath in it.
 
 **20** But the LORD is in his holy temple. All the earth must be silent in front of him."
 
@@ -86,7 +86,7 @@
 
 **3** God came from Teman. The Holy One came from Mount Paran. Selah. His glory covered the skies. The earth was full of his praise.
 
-**4** His brightness was like the sun. Light came from his hand. His power was hidden there.
+**4** His brightness was like the sun. Light came from his hand. His power was there, in a secret place.
 
 **5** Disease went in front of him. Death followed behind him.
 
@@ -100,7 +100,7 @@
 
 **10** The mountains saw you, and they shook. Water flowed past in a flood. The deep water made a loud noise. The waves went up high.
 
-**11** The sun and the moon stopped in the sky. They stopped when they saw the light of your arrows and your shining spear.
+**11** The sun and the moon stopped in the sky. They stopped when they saw the light of your arrows and your spear that shines.
 
 **12** You went across the earth in anger. You walked on the nations in anger.
 

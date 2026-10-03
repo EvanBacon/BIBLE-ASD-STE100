@@ -28,13 +28,13 @@
 
 **13** I used my wisdom to study all the things that people do on the earth. God gives people a heavy load of work to do.
 
-**14** I saw all the things that people do on the earth. All of it has no meaning. It is like trying to catch the wind.
+**14** I saw all the things that people do on the earth. All of it has no meaning. It is like when you try to catch the wind.
 
 **15** People cannot make straight a thing that is bent. People cannot count a thing that is not there.
 
 **16** I said to myself, "I am great. I have more wisdom than all the kings in Jerusalem before me. I know much about wisdom and knowledge."
 
-**17** I tried to understand wisdom. I also tried to understand madness and foolishness. But I learned that this is also like trying to catch the wind.
+**17** I tried to understand wisdom. I also tried to understand madness and foolishness. But I learned that this is also like when you try to catch the wind.
 
 **18** With much wisdom comes much sorrow. A person who gets more knowledge gets more pain.
 
@@ -52,7 +52,7 @@
 
 **6** I made pools of water. I used the water for the many trees that grew in the forest.
 
-**7** I bought male and female slaves. Some slaves were born in my house. I also had more cattle and sheep than all the people in Jerusalem before me.
+**7** I bought male and female slaves. Some slaves had their birth in my house. I also had more cattle and sheep than all the people in Jerusalem before me.
 
 **8** I also collected silver and gold and the treasures of kings and countries. I got men and women to sing for me. I also got musical instruments of all types.
 
@@ -60,7 +60,7 @@
 
 **10** I got all the things that I wanted. I did not refuse myself any pleasure. My work made me happy. That joy was my reward for all my work.
 
-**11** Then I looked at all the things that I did. I looked at all the hard work. But all of it had no meaning. It was like trying to catch the wind. Nothing on the earth gave a true profit.
+**11** Then I looked at all the things that I did. I looked at all the hard work. But all of it had no meaning. It was like when you try to catch the wind. Nothing on the earth gave a true profit.
 
 **12** Then I started to think about wisdom, madness and foolishness. What can the next king do? He can only do what the king before him did.
 
@@ -72,7 +72,7 @@
 
 **16** People will not remember the wise man forever, and they will not remember the fool. In the future, people will forget both of them. The wise man dies as the fool dies.
 
-**17** So I hated life. All the work on the earth gave me grief. All of it had no meaning. It was like trying to catch the wind.
+**17** So I hated life. All the work on the earth gave me grief. All of it had no meaning. It was like when you try to catch the wind.
 
 **18** I hated all the work that I did on the earth. I must leave the results of that work to the man who comes after me.
 
@@ -90,13 +90,13 @@
 
 **25** Without God, nobody can eat or have joy.
 
-**26** God gives wisdom, knowledge and joy to the man who pleases Him. But God gives the sinner the work to collect and store things. Then God gives those things to the man who pleases Him. This also has no meaning. It is like trying to catch the wind.
+**26** God gives wisdom, knowledge and joy to the man who pleases Him. But God gives the sinner the work to collect and store things. Then God gives those things to the man who pleases Him. This also has no meaning. It is like when you try to catch the wind.
 
 ## Chapter 3
 
 **1** There is a time for every thing. There is a time for every activity on the earth.
 
-**2** There is a time to be born and a time to die. There is a time to plant and a time to pull up plants.
+**2** There is a time for birth and a time to die. There is a time to plant and a time to pull up plants.
 
 **3** There is a time to kill and a time to heal. There is a time to tear down and a time to build.
 
@@ -104,7 +104,7 @@
 
 **5** There is a time to throw away stones and a time to collect stones. There is a time to hold people close and a time to stop.
 
-**6** There is a time to look for things and a time to stop looking. There is a time to keep things and a time to throw things away.
+**6** There is a time to get things and a time to lose things. There is a time to keep things and a time to throw things away.
 
 **7** There is a time to tear and a time to sew. There is a time to be quiet and a time to speak.
 
@@ -142,15 +142,15 @@
 
 **1** Again I looked at all the cruel things that people do on the earth. I saw the tears of the oppressed people. Nobody gave them comfort. Their oppressors had power. And nobody gave the oppressed people comfort.
 
-**2** So I said that the dead people are more fortunate than the living people.
+**2** So I said that the dead people are more fortunate than the people who are still alive.
 
 **3** But the person who is not yet born is better than both. That person did not see the evil things that people do on the earth.
 
-**4** I saw that people work hard and with skill because they are jealous of their neighbors. This also has no meaning. It is like trying to catch the wind.
+**4** I saw that people work hard and with skill because they are jealous of their neighbors. This also has no meaning. It is like when you try to catch the wind.
 
 **5** The fool folds his hands and does no work. He destroys himself.
 
-**6** One handful with peace is better than 2 handfuls with hard work. Hard work for more is like trying to catch the wind.
+**6** One handful with peace is better than 2 handfuls with hard work. Hard work for more is like when you try to catch the wind.
 
 **7** Again I saw something on the earth that has no meaning.
 
@@ -166,11 +166,11 @@
 
 **13** A poor, wise young man is better than an old, foolish king. The old king does not listen to advice any more.
 
-**14** The young man can come out of prison and become king. He can be born poor in that kingdom.
+**14** The young man can come out of prison and become king. He can have his birth in that kingdom as a poor man.
 
 **15** I saw all the people on the earth follow the young man. He took the place of the old king.
 
-**16** There was no end to all the people that he led. But the people who come later will not be happy with him. This also has no meaning. It is like trying to catch the wind.
+**16** There was no end to all the people that he led. But the people who come later will not be happy with him. This also has no meaning. It is like when you try to catch the wind.
 
 ## Chapter 5
 
@@ -180,7 +180,7 @@
 
 **3** Too much worry causes bad dreams. Too many words cause foolish talk.
 
-**4** When you make a promise (a vow) to God, do it quickly. God is not pleased with fools. Do what you promise.
+**4** When you make a promise (a vow) to God, do it quickly. God is not happy with fools. Do what you promise.
 
 **5** It is better not to make a vow than to make a vow and not do it.
 
@@ -188,11 +188,11 @@
 
 **7** Too many dreams and too many words have no meaning. Fear God.
 
-**8** In a country, you can see that people oppress the poor. You can see that they refuse justice to the poor. Do not be surprised. An official watches the official below him. Higher officials watch both of them.
+**8** In a country, you can see that people oppress the poor. You can see that they refuse justice to the poor. Do not feel surprise. An official watches the official below him. Higher officials watch both of them.
 
 **9** All people get the profit of the land. The king also gets food from the fields.
 
-**10** A man who loves money will never have sufficient money. A man who loves riches will never be satisfied with his income. This also has no meaning.
+**10** A man who loves money will never have sufficient money. A man who loves riches will never have sufficient income. This also has no meaning.
 
 **11** When a man gets more things, more people come to use them. The owner only gets to look at them.
 
@@ -220,7 +220,7 @@
 
 **2** God gives a man riches, property and honor. The man has all that he wants. But God does not let him enjoy these things. A stranger enjoys them. This has no meaning. It is a very bad thing.
 
-**3** A man can have 100 children and live many years. But if he does not enjoy good things and does not get a correct burial, then a baby who is born dead is better than that man.
+**3** A man can have 100 children and live many years. But possibly he does not enjoy good things and does not get a correct burial. Then a baby who is dead at birth is better than that man.
 
 **4** That baby comes with no meaning and goes into darkness. Darkness covers its name.
 
@@ -232,7 +232,7 @@
 
 **8** What advantage does a wise man have over a fool? What advantage does a poor man get if he knows how to act in front of other people?
 
-**9** It is better to enjoy what you have than to want more. Wanting more has no meaning. It is like trying to catch the wind.
+**9** It is better to enjoy what you have than to want more. A desire for more has no meaning. It is like when you try to catch the wind.
 
 **10** All things that occur already have a name. People know what man is. A man cannot argue with God, who is stronger than he is.
 
@@ -244,7 +244,7 @@
 
 **1** A good name is better than expensive perfume. The day of death is better than the day of birth.
 
-**2** It is better to go to a house of sorrow than to a house of celebration. Death is the end of all people. The living must think about this.
+**2** It is better to go to a house of sorrow than to a house of celebration. Death is the end of all people. The people who are alive must think about this.
 
 **3** Sorrow is better than laughter. A sad face can make the heart better.
 
@@ -262,7 +262,7 @@
 
 **10** Do not say, "Why were the old days better than these days?" That is not a wise question.
 
-**11** Wisdom is good, as an inheritance is good. Wisdom helps the living.
+**11** Wisdom is good, as an inheritance is good. Wisdom helps the people who are alive.
 
 **12** Wisdom protects, as money protects. But knowledge has this advantage: wisdom keeps alive the person who has it.
 
@@ -276,7 +276,7 @@
 
 **17** Do not be too wicked, and do not be a fool. Why die before your time?
 
-**18** It is good to hold on to one warning and not let go of the other. A man who fears God will avoid both extremes.
+**18** It is good to hold on to one thing and not let go of the other. A man who fears God will avoid both extremes.
 
 **19** Wisdom makes one wise man stronger than 10 rulers in a city.
 
@@ -344,9 +344,9 @@
 
 **3** This is the evil in all things that occur on the earth. The same end comes to all people. Also, the hearts of people are full of evil. They are foolish during their life, and after that, they die.
 
-**4** But a person who is alive has hope. A living dog is better than a dead lion.
+**4** But a person who is alive has hope. A dog that is alive is better than a dead lion.
 
-**5** The living know that they will die. But the dead know nothing. They get no more reward. People forget them.
+**5** The people who are alive know that they will die. But the dead know nothing. They get no more reward. People forget them.
 
 **6** Their love, their hate and their jealousy stopped long ago. They will never again take part in the things that occur on the earth.
 
@@ -356,7 +356,7 @@
 
 **9** Enjoy life with the wife whom you love. Enjoy all the days of the short life that God gives you on the earth. That is your reward in life and in your hard work on the earth.
 
-**10** Do all your work with all your strength. You go to the grave (Sheol). In the grave, there is no work, no planning, no knowledge and no wisdom.
+**10** Do all your work with all your strength. You go to the grave (Sheol). In the grave, there is no work, no plan, no knowledge and no wisdom.
 
 **11** I saw something else on the earth. The fastest runner does not always win the race. The strongest soldier does not always win the battle. The wise do not always have food. The intelligent do not always have riches. The skilled do not always get favor. Time and chance come to all of them.
 
@@ -444,9 +444,9 @@
 
 **2** Remember Him before the sun, the light, the moon and the stars become dark for you. Remember Him before the clouds come back after the rain.
 
-**3** At that time, your arms will shake and your legs will become weak. Your teeth will be few and stop chewing. Your eyes will become dim.
+**3** At that time, your arms will shake and your legs will become weak. Your teeth will be few and stop their work. Your eyes will become dim.
 
-**4** Your ears will be closed to the noise of the street. The sound of the mill will be quiet. You will wake up when a bird sings. But you will hardly hear songs.
+**4** Your ears will close to the noise of the street. The sound of the mill will be quiet. You will wake up when a bird sings. But you will hardly hear songs.
 
 **5** You will be afraid of high places and of danger on the road. Your hair will become white like the almond tree in bloom. You will drag yourself along like a grasshopper. Your desire will stop. Then you go to your eternal home, and people cry in the streets.
 
@@ -460,9 +460,9 @@
 
 **10** The Teacher tried to find the correct words. He wrote words that were honest and true.
 
-**11** The words of wise people are like sticks that guide cattle. Their collected sayings are like nails that are hammered in firmly. One Shepherd gives these words.
+**11** The words of wise people are like sticks that guide cattle. Their collected sayings are like nails that a man hammers in firmly. One Shepherd gives these words.
 
-**12** My son, be careful of anything more than these words. People will never stop the writing of books. Too much study makes the body tired.
+**12** My son, be careful of anything more than these words. People will never stop when they write books. Too much study makes the body tired.
 
 **13** This is the end of the matter. You heard all of it. Fear God and obey His commands. This is the duty of all people.
 

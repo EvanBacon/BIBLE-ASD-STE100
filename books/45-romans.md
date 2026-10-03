@@ -32,7 +32,7 @@
 
 **15** Thus, I am ready to tell the gospel to you in Rome also.
 
-**16** I am not ashamed of the gospel. The gospel is the power of God that saves each person who believes. It is first for the Jew, and also for the Greek.
+**16** I do not feel shame about the gospel. The gospel is the power of God that saves each person who believes. It is first for the Jew, and also for the Greek.
 
 **17** The gospel shows how God makes a person righteous. This starts with faith and ends with faith. The scripture says, "The righteous person will live by faith."
 
@@ -62,7 +62,7 @@
 
 **30** They say bad things about other people. They hate God. They are rude, proud and boastful. They find new ways to do evil. They do not obey their parents.
 
-**31** They have no understanding. They do not keep their promises. They have no love and no mercy.
+**31** They have no sense. They do not keep their promises. They have no love and no mercy.
 
 **32** They know the law of God. The law says that people who do these things must die. But they do these things, and they also approve of other people who do them.
 
@@ -118,9 +118,9 @@
 
 **25** Circumcision is of value if you obey the law. But if you disobey the law, your circumcision has no value.
 
-**26** A man who is not circumcised can obey the law. Then God will think of him as a circumcised man.
+**26** A man who did not receive circumcision can obey the law. Then God will think of him as a man who received circumcision.
 
-**27** Some men are not circumcised, but they obey the law. These men will judge you. You have the written law and circumcision, but you disobey the law.
+**27** Some men did not receive circumcision, but they obey the law. These men will judge you. You have the written law and circumcision, but you disobey the law.
 
 **28** A person is not a true Jew only because of the outside of his body. True circumcision is not only on the body.
 
@@ -132,7 +132,7 @@
 
 **2** The advantage is large in all ways. First, God gave his words to the Jews.
 
-**3** Some Jews did not believe. Does their unbelief stop God from keeping his promises?
+**3** Some Jews did not believe. Can their unbelief stop the faithfulness of God?
 
 **4** No! God is always true, although each human is a liar. The scripture says to God, "Your words show that you are right. When people judge you, you will win."
 
@@ -200,7 +200,7 @@
 
 **4** When a person works, his pay is not a gift. His employer must pay him.
 
-**5** But a person may not work for it and only believe God. God makes evil people righteous. God thinks of the faith of that person as righteousness.
+**5** But think about a person who does not work for it. He only believes God, who makes evil people righteous. God thinks of the faith of that person as righteousness.
 
 **6** David also speaks about the happiness of a person whom God thinks of as righteous without works.
 
@@ -210,13 +210,13 @@
 
 **9** Is this happiness only for the circumcised people? Or is it also for the uncircumcised people? We say that God thought of the faith of Abraham as righteousness.
 
-**10** When did God do this? Was it after Abraham was circumcised, or before? It was not after, but before.
+**10** When did God do this? Was it after Abraham received circumcision, or before? It was not after, but before.
 
-**11** Abraham got circumcision as a sign. It showed that God thought of him as righteous through faith before his circumcision. Thus, Abraham is the father of all people who believe but are not circumcised. God also thinks of them as righteous.
+**11** Abraham got circumcision as a sign. It showed that God thought of him as righteous through faith before his circumcision. Thus, Abraham is the father of all people who believe but did not receive circumcision. God also thinks of them as righteous.
 
 **12** Abraham is also the father of circumcised people. But these people must also follow the faith of Abraham. Abraham had this faith before his circumcision.
 
-**13** God promised Abraham and his descendants that the world would be theirs. God did not give this promise through the law. He gave it through the righteousness that comes from faith.
+**13** God promised Abraham and his descendants, "The world will be yours." God did not give this promise through the law. He gave it through the righteousness that comes from faith.
 
 **14** If the people who obey the law get the promise, then faith is useless. Then the promise has no value.
 
@@ -292,11 +292,11 @@
 
 **2** No! We died to sin. Then how can we continue to live in sin?
 
-**3** You know that we were baptized into Christ Jesus. Thus, we were baptized into his death.
+**3** You know that all of us who received baptism into Christ Jesus received baptism into his death.
 
-**4** When we were baptized, we were buried with Christ into his death. The glory of the Father raised Christ from the dead. In the same way, we can also live a new life.
+**4** When we received baptism, we shared in the death and burial of Christ. The glory of the Father raised Christ from the dead. In the same way, we also must live a new life.
 
-**5** We are joined with Christ in his death. Thus, we will also be joined with him when he came back to life.
+**5** We share in the death of Christ. Thus, we will also share in his resurrection.
 
 **6** We know that our old self died on the cross with Christ. Thus, the power of sin in our body is gone. We are no longer slaves to sin.
 
@@ -320,15 +320,15 @@
 
 **16** You know this. When you give yourselves to obey a person, you become the slaves of that person. You can be slaves of sin, which causes death. Or you can be slaves of obedience, which causes righteousness.
 
-**17** In the past, you were slaves of sin. But now you obey with all your heart the teaching that you got. I thank God for this.
+**17** In the past, you were slaves of sin. But now you obey with all your heart the true message that people gave you. I thank God for this.
 
 **18** You are free from sin. You became slaves of righteousness.
 
-**19** I use an example from human life, because you are weak in your understanding. In the past, you gave the parts of your body as slaves to impure things and to evil. Now give them as slaves to righteousness. This will make you holy.
+**19** I use an example from human life, because your human nature is weak. In the past, you gave the parts of your body as slaves to impure things and to evil. Now give them as slaves to righteousness. This will make you holy.
 
 **20** When you were slaves of sin, righteousness did not control you.
 
-**21** What result did you get from those things then? Now you are ashamed of those things. The result of those things is death.
+**21** What result did you get from those things then? Now you feel shame about those things. The result of those things is death.
 
 **22** But now you are free from sin, and you are slaves of God. The result is that you become holy. At the end, you will get eternal life.
 
@@ -518,13 +518,13 @@
 
 **25** God says in the book of Hosea, "I will call them 'my people,' but they were not my people. I will call her 'loved,' but I did not love her."
 
-**26** "In the place where I said to them, 'You are not my people,' there people will call them 'the children of the living God.'"
+**26** "In the place where I said to them, 'You are not my people,' there people will call them 'the children of the God who lives.'"
 
 **27** Isaiah calls out about Israel, "The people of Israel can be as many as the sand of the sea. But God will save only a small group of them.
 
 **28** The Lord will complete his judgment on the earth. He will do it quickly and fairly."
 
-**29** Isaiah also said before, "The Lord of armies left some of our people alive. If he did not do this, we would be like Sodom. We would be like Gomorrah."
+**29** Isaiah also said before, "The Lord of armies left some of our people alive. Because of this, we did not become like Sodom. We did not become like Gomorrah."
 
 **30** What can we say then? The Gentiles did not try to become righteous. But they became righteous through faith.
 
@@ -532,7 +532,7 @@
 
 **32** Why not? Because they did not try through faith. They tried through the things that they did. They fell over the stone that causes people to fall.
 
-**33** The scripture says, "Look, I put a stone in Zion that causes people to fall. It is a rock that causes them to fall down. But the person who believes in him will not be ashamed."
+**33** The scripture says, "Look, I put a stone in Zion that causes people to fall. It is a rock that causes them to fall down. But the person who believes in him will not feel shame."
 
 ## Chapter 10
 
@@ -546,7 +546,7 @@
 
 **5** Moses writes about the righteousness that comes from the law. He says, "The person who obeys these laws will live by them."
 
-**6** But the righteousness that comes from faith says this: "Do not say in your heart, 'Who will go up into heaven?'" That is, who will go up to bring Christ down?
+**6** But the righteousness that comes from faith says this. "Do not say in your heart, 'Who will go up into heaven?'" That is, who will go up to bring Christ down?
 
 **7** "Or do not say, 'Who will go down into the deep place?'" That is, who will go down to bring Christ up from the dead?
 
@@ -556,11 +556,11 @@
 
 **10** A person believes with the heart, and God makes that person righteous. A person says with the mouth what he believes, and God saves that person.
 
-**11** The scripture says, "Each person who believes in him will not be ashamed."
+**11** The scripture says, "Each person who believes in him will not feel shame."
 
 **12** There is no difference between the Jew and the Greek. The same Lord is Lord of all people. He gives much to all people who call to him.
 
-**13** The scripture says, "Each person who calls to the name of the Lord will be saved by God."
+**13** The scripture says, "God will save each person who calls to the name of the Lord."
 
 **14** But how can people call to the Lord if they do not believe in him? How can they believe in him if they did not hear about him? How can they hear if nobody tells them?
 
@@ -572,7 +572,7 @@
 
 **18** But I ask, "Did they not hear?" Yes, they heard. The scripture says, "Their voice went out into all the earth. Their words went to the ends of the world."
 
-**19** I ask again, "Did the people of Israel not understand?" First, Moses says, "I will make you jealous of people who are not a nation. I will make you angry through a nation that has no understanding."
+**19** I ask again, "Did the people of Israel not understand?" First, Moses says, "I will make you jealous of people who are not a nation. I will make you angry through a foolish nation."
 
 **20** Then Isaiah speaks boldly. He says, "The people who did not look for me found me. I showed myself to the people who did not ask for me."
 
@@ -654,9 +654,9 @@
 
 ## Chapter 12
 
-**1** Thus, brothers, God shows you much mercy. Because of this, I ask you strongly to give your bodies to God as a living sacrifice. Your bodies must be holy and must please God. This is the correct way to worship him.
+**1** Thus, brothers, God shows you much mercy. Because of this, I ask you strongly to give your bodies to God as a live sacrifice. Your bodies must be holy and must please God. This is the correct way to worship him.
 
-**2** Do not copy the ways of this world. Let God change you. Let him make your mind new. Then you will know what God wants. You will know what is good, pleasing and perfect to him.
+**2** Do not copy the ways of this world. Let God change you. Let him make your mind new. Then you will know what God wants. You will know what is good, what pleases him, and what is perfect.
 
 **3** God gave grace to me. Thus, I tell each person among you this. Do not think that you are more important than you are. Think about yourself correctly. Use the quantity of faith that God gave to you.
 
@@ -744,7 +744,7 @@
 
 **8** If we live, we live for the Lord. If we die, we die for the Lord. Thus, if we live or die, we belong to the Lord.
 
-**9** Christ died and came back to life for this purpose. He is the Lord of the dead people and of the living people.
+**9** Christ died and came back to life for this purpose. He is the Lord of the dead people and of the people who live.
 
 **10** Thus, why do you judge your brother? Why do you think that your brother is not important? All of us will stand in front of God, and he will judge us.
 
@@ -876,7 +876,7 @@
 
 **16** Say hello to each other with a holy kiss. All the churches of Christ say hello to you.
 
-**17** Brothers, I ask you strongly to be careful of some people. These people cause divisions and problems. They go against the teaching that you learned. Keep away from them.
+**17** Brothers, I ask you strongly to be careful of some people. These people cause divisions and problems. They go against the truth that you learned. Keep away from them.
 
 **18** Such people do not serve our Lord Christ. They serve their own desires. They use good and pleasant words to deceive people who do not know better.
 

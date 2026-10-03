@@ -50,9 +50,9 @@
 
 **9** But we see Jesus. God made him a little lower than the angels for a short time. Jesus suffered death, and now God gave him glory and honor as his crown. By the grace of God, Jesus died for every person.
 
-**10** God made all things, and all things exist for him. God wants to bring many sons to glory. Thus it was correct for God to make Jesus perfect through suffering. Jesus is the leader who brings them to salvation.
+**10** God made all things, and all things exist for him. God wants to bring many sons to glory. Thus it was correct for God to make Jesus perfect through pain. Jesus is the leader who brings them to salvation.
 
-**11** Jesus makes people holy. Jesus and the people that he makes holy have the same Father. Thus Jesus is not ashamed to call them his brothers.
+**11** Jesus makes people holy. Jesus and the people that he makes holy have the same Father. Thus Jesus does not feel shame to call them his brothers.
 
 **12** He says, "I will tell my brothers about your name. I will sing praise to you in the assembly."
 
@@ -92,7 +92,7 @@
 
 **11** Thus I was angry, and I made a solemn promise: 'They will not enter my rest.'"
 
-**12** Brothers, be careful. Make sure that none of you has an evil heart without faith. Such a heart turns away from the living God.
+**12** Brothers, be careful. Make sure that none of you has an evil heart without faith. Such a heart turns away from the God who lives.
 
 **13** Encourage each other every day, while it is still "today." Then sin will not trick you and make your hearts hard.
 
@@ -114,7 +114,7 @@
 
 **2** We heard the good news, as those people heard it. But the message did not help them, because they did not believe it.
 
-**3** We who believe enter that rest. God said, "I was angry, and I made a solemn promise: 'They will not enter my rest.'" But God finished his works when he made the world.
+**3** We who believe enter that rest. God said, "I was angry, and I made a solemn promise. They will not enter my rest." But God finished his works when he made the world.
 
 **4** In one part of the Scriptures, God speaks about the 7th day: "On the 7th day God rested from all his works."
 
@@ -134,7 +134,7 @@
 
 **12** The word of God is alive and powerful. It is sharper than any sword with 2 edges. It cuts between the soul and the spirit, and between the joints and the marrow. It judges the thoughts and the purposes of the heart.
 
-**13** Nothing in all creation is hidden from God. All things are open and clear to his eyes. We must give an account to him.
+**13** Nothing in all creation can hide from God. All things are open and clear to his eyes. We must give an account to him.
 
 **14** We have a great high priest who went through the heavens. He is Jesus, the Son of God. Thus we must hold firmly to the faith that we declare.
 
@@ -168,15 +168,15 @@
 
 **12** By now you must be teachers. But you need a person to teach you again the first basic truths of the word of God. You need milk, not solid food.
 
-**13** A person who lives on milk is still a baby. He does not know about the teaching of what is right.
+**13** A person who lives on milk is still a baby. He does not know about the word of what is right.
 
 **14** But solid food is for adults. They practice and train their minds. Thus they know the difference between good and evil.
 
 ## Chapter 6
 
-**1** Thus we must stop the study of the first teachings about Christ. We must go on to become mature. We must not again put down the base of the teaching. That base is repentance from works that cause death, and faith in God.
+**1** Thus we must stop the study of the first lessons about Christ. We must go on to become mature. We must not again put down the base. That base is repentance from works that cause death, and faith in God.
 
-**2** That base also includes teaching about baptisms, and about the act of putting hands on people. It includes the resurrection of the dead, and the judgment that continues for all time.
+**2** That base also includes the lessons about baptisms, and about the act when people put hands on people. It includes the resurrection of the dead, and the judgment that continues for all time.
 
 **3** We will go on to become mature, if God lets us.
 
@@ -260,7 +260,7 @@
 
 **22** Thus Jesus is the guarantee of a better covenant.
 
-**23** There were many of the other priests, because death stopped each priest from continuing.
+**23** There were many of the other priests, because death stopped each priest. No priest could continue.
 
 **24** But Jesus lives for all time. Thus his priesthood does not change.
 
@@ -280,15 +280,15 @@
 
 **3** God chooses each high priest to offer gifts and sacrifices. Thus our high priest also must have something to offer.
 
-**4** If Jesus was on earth, he would not be a priest. There are already priests on earth who offer the gifts that the law tells them to offer.
+**4** If Jesus was on earth, he will not be a priest. There are already priests on earth who offer the gifts that the law tells them to offer.
 
 **5** These priests serve in a copy and a shadow of the things in heaven. When Moses was ready to build the tabernacle, God warned him. God said, "Make all things the same as the plan that I showed you on the mountain."
 
-**6** But now Jesus has a better service than the other priests. Also, he brings a better covenant between God and people. That covenant is based on better promises.
+**6** But now Jesus has a better service than the other priests. Also, he brings a better covenant between God and people. God put that covenant on better promises.
 
-**7** If the first covenant had no fault, God would not look for a second covenant.
+**7** If the first covenant had no fault, God did not need to look for a second covenant.
 
-**8** But God found fault with the people. He said, "The days will come," says the Lord, "when I will make a new covenant with the people of Israel and the people of Judah.
+**8** But God found fault with the people. He said, "The days will come," says the Lord. "Then I will make a new covenant with the people of Israel and the people of Judah.
 
 **9** This covenant will not be like the covenant that I made with their ancestors. I took them by the hand to lead them out of the land of Egypt. But they did not stay faithful to my covenant. Thus I turned away from them," says the Lord.
 
@@ -308,7 +308,7 @@
 
 **3** Behind the second curtain was the room that people call the Most Holy Place.
 
-**4** In it was the gold altar for incense. In it also was the box of the covenant (ark), which was covered with gold. In the ark were a gold jar with manna, the stick of Aaron that grew buds, and the stone tablets of the covenant.
+**4** In it was the gold altar for incense. In it also was the box of the covenant (ark), which had gold all over it. In the ark were a gold jar with manna, the stick of Aaron that grew buds, and the stone tablets of the covenant.
 
 **5** Above the ark were the cherubim of glory. Their wings covered the lid of the ark, where the priest put the blood for forgiveness. We cannot now speak about these things in detail.
 
@@ -320,7 +320,7 @@
 
 **9** This is an example for the present time. The priests offered gifts and sacrifices. But these offerings could not make the conscience of the worshipper perfect.
 
-**10** These things are only about food, drinks, and different types of washing. They are rules for the body. They continued only until the time when God made things new.
+**10** These things are only about food, drinks, and different types of washes. They are rules for the body. They continued only until the time when God made things new.
 
 **11** But Christ came as the high priest of the good things that are now here. He went through a greater and more perfect tabernacle. Human hands did not make it. It is not a part of this creation.
 
@@ -328,7 +328,7 @@
 
 **13** The priests put the blood of goats and bulls on people who were not clean. They also put the ashes of a young cow on those people. These things made their bodies clean.
 
-**14** Thus the blood of Christ will do much more. Through the eternal Spirit, Christ offered himself to God with no fault. His blood will make our conscience clean from works that cause death. Then we can serve the living God.
+**14** Thus the blood of Christ will do much more. Through the eternal Spirit, Christ offered himself to God with no fault. His blood will make our conscience clean from works that cause death. Then we can serve the God who lives.
 
 **15** Thus Christ brings a new covenant between God and people. He died to free people from the sins that they did under the first covenant. Now the people that God calls can receive the eternal inheritance that he promised.
 
@@ -352,7 +352,7 @@
 
 **25** The high priest enters the Most Holy Place every year with blood that is not his own. But Christ did not enter heaven to offer himself many times.
 
-**26** If he did that, he would suffer many times since the start of the world. But now, at the end of the ages, he came 1 time for all time. He came to remove sin through the sacrifice of himself.
+**26** If he did that, he must suffer many times since the start of the world. But now, at the end of the ages, he came 1 time for all time. He came to remove sin through the sacrifice of himself.
 
 **27** All people must die 1 time. After that, God judges them.
 
@@ -362,7 +362,7 @@
 
 **1** The law is only a shadow of the good things that will come. It is not the true form of those things. The priests offer the same sacrifices every year. But these sacrifices can never make perfect the people who come to worship.
 
-**2** If the sacrifices made the worshippers clean, the priests would stop the sacrifices. The worshippers would be clean 1 time for all time. They would not feel guilty for their sins any more.
+**2** If the sacrifices made the worshippers clean, the priests can stop the sacrifices. Then the worshippers are clean 1 time for all time. They do not feel guilty for their sins any more.
 
 **3** But the sacrifices remind the people of their sins every year.
 
@@ -370,11 +370,11 @@
 
 **5** Thus when Christ came into the world, he said to God, "You did not want sacrifices and offerings. But you prepared a body for me.
 
-**6** You were not pleased with burnt offerings and sacrifices for sin.
+**6** You were not happy with burnt offerings and sacrifices for sin.
 
 **7** Then I said, 'I am here, O God. I came to do what you want. The book of the law tells about me.'"
 
-**8** First Christ said, "You did not want sacrifices, offerings, burnt offerings, and sacrifices for sin. You were not pleased with them." The law tells the priests to offer these things.
+**8** First Christ said, "You did not want sacrifices, offerings, burnt offerings, and sacrifices for sin. You were not happy with them." The law tells the priests to offer these things.
 
 **9** Then he said, "I am here. I came to do what you want." Thus God removes the first system to start the second system.
 
@@ -402,13 +402,13 @@
 
 **21** We also have a great high priest over the house of God.
 
-**22** Thus we must come near to God with an honest heart and with complete faith. Our hearts are clean from a guilty conscience. Our bodies are washed with pure water.
+**22** Thus we must come near to God with an honest heart and with complete faith. God made our hearts clean from a guilty conscience. He washed our bodies with pure water.
 
 **23** We must hold firmly to the hope that we declare. We must not doubt, because God is faithful to his promises.
 
 **24** We must think about how to encourage each other to love and to do good works.
 
-**25** Some people stopped meeting together. But we must continue to meet together. We must encourage each other. Do this more and more, because you see that the day of the Lord comes near.
+**25** Some people stopped the habit to come together. But we must continue to come together. We must encourage each other. Do this more and more, because you see that the day of the Lord comes near.
 
 **26** We received the knowledge of the truth. If we then continue to sin on purpose, no sacrifice for sins remains.
 
@@ -420,7 +420,7 @@
 
 **30** We know God, who said, "I will punish people. I will pay them back." He also said, "The Lord will judge his people."
 
-**31** It is terrible to fall into the hands of the living God.
+**31** It is terrible to fall into the hands of the God who lives.
 
 **32** Remember the past days. At that time you received the light of the truth. Then you suffered much, but you continued to stand firm.
 
@@ -434,9 +434,9 @@
 
 **37** The Scriptures say, "In a very short time, the person who will come will come. He will not wait.
 
-**38** The person that I accept as righteous will live by faith. But if he turns back, I will not be pleased with him."
+**38** The person that I accept as righteous will live by faith. But if he turns back, I will not be happy with him."
 
-**39** But we are not people who turn back and are destroyed. We are people who have faith, and God saves us.
+**39** But we are not people who turn back and go to destruction. We are people who have faith, and God saves us.
 
 ## Chapter 11
 
@@ -444,7 +444,7 @@
 
 **2** Because of their faith, God approved of the people who lived long ago.
 
-**3** Through faith we understand that God made the worlds with his word. Thus the things that we see were not made from things that we can see.
+**3** Through faith we understand that God made the worlds with his word. Thus God did not make the things that we see from things that we can see.
 
 **4** Through faith Abel offered God a better sacrifice than Cain did. Because of his faith, God accepted Abel as a righteous man. God showed that he accepted the gifts of Abel. Abel is dead, but through his faith he still speaks.
 
@@ -470,13 +470,13 @@
 
 **15** If they thought about the country that they left, they could go back to it.
 
-**16** But they wanted a better country, a country in heaven. Thus God is not ashamed to be called their God. He prepared a city for them.
+**16** But they wanted a better country, a country in heaven. Thus God feels no shame when people call him their God. He prepared a city for them.
 
 **17** Through faith Abraham offered Isaac as a sacrifice when God tested him. God gave Abraham the promises. But Abraham was ready to offer his only son.
 
 **18** God said to Abraham, "Your descendants will come through Isaac."
 
-**19** Abraham thought that God could even bring Isaac back from death. In a manner of speaking, Abraham did receive Isaac back from death.
+**19** Abraham thought that God could even bring Isaac back from death. In a figure, Abraham did receive Isaac back from death.
 
 **20** Through faith Isaac blessed Jacob and Esau. He spoke about their future.
 
@@ -486,7 +486,7 @@
 
 **23** Through faith the parents of Moses hid him for 3 months after his birth. They saw that he was a beautiful child. They were not afraid of the command of the king.
 
-**24** Through faith Moses refused to be called the son of the daughter of Pharaoh when he became a man.
+**24** Through faith Moses became a man. Then he refused the name "son of the daughter of Pharaoh."
 
 **25** He chose to suffer with the people of God. He did not want to enjoy sin for a short time.
 
@@ -508,7 +508,7 @@
 
 **34** They stopped the power of fire. They escaped death by the sword. They were weak, but they became strong. They were strong in war. They made foreign armies run away.
 
-**35** Women received their dead family members back to life. Other people were tortured. They refused to accept freedom, because they wanted a better resurrection.
+**35** Women received their dead family members back to life. People tortured other believers. These believers refused to accept freedom, because they wanted a better resurrection.
 
 **36** People laughed at some of them and beat them with whips. People put others in chains and in prison.
 
@@ -534,7 +534,7 @@
 
 **6** The Lord disciplines each person that he loves. He punishes each person that he accepts as his son."
 
-**7** Accept your suffering as discipline. God treats you as his sons. Every father disciplines his son.
+**7** Accept your troubles as discipline. God treats you as his sons. Every father disciplines his son.
 
 **8** God disciplines all his children. If you do not get discipline, then you are not true sons. You are illegitimate children.
 
@@ -558,15 +558,15 @@
 
 **18** You did not come to a mountain that people can touch. You did not come to a mountain that burned with fire. You did not come to darkness, gloom, and a storm.
 
-**19** You did not come to the sound of a trumpet and to a voice that spoke words. The people who heard that voice asked God to stop speaking to them.
+**19** You did not come to the sound of a trumpet and to a voice that spoke words. The people who heard that voice asked God to speak to them no more.
 
 **20** They could not accept the command of God. God said, "If even an animal touches the mountain, you must kill it with stones."
 
 **21** The sight was so terrible that Moses said, "I am very afraid, and I shake."
 
-**22** But you came to Mount Zion. You came to the city of the living God, the Jerusalem in heaven. You came to thousands of angels in a joyful assembly.
+**22** But you came to Mount Zion. You came to the city of the God who lives, the Jerusalem in heaven. You came to thousands of angels in a joyful assembly.
 
-**23** You came to the church of the firstborn, whose names are written in heaven. You came to God, who is the judge of all people. You came to the spirits of righteous people that God made perfect.
+**23** You came to the church of the firstborn. God wrote their names in heaven. You came to God, who is the judge of all people. You came to the spirits of righteous people that God made perfect.
 
 **24** You came to Jesus, who brings the new covenant between God and people. You came to the blood that he sprinkled. His blood speaks better things than the blood of Abel.
 
@@ -590,7 +590,7 @@
 
 **4** All people must respect marriage. Husbands and wives must stay faithful to each other. God will judge people who commit sexual sin and adultery.
 
-**5** Do not love money. Be satisfied with what you have. God said, "I will never leave you. I will never abandon you."
+**5** Do not love money. Be happy with what you have. God said, "I will never leave you. I will never abandon you."
 
 **6** Thus we can say with confidence, "The Lord is my helper. I will not be afraid. What can people do to me?"
 

@@ -16,7 +16,7 @@
 
 **7** The servants gave drinks in gold cups. Each cup was different from the other cups. There was much royal wine, as the king was very rich.
 
-**8** The law for the drinking was this: "No person must force a guest to drink." The king told all the officials of his palace to let each man drink as he wanted.
+**8** The guests drank as the law said: "No person can force a guest to drink." The king told all the officials of his palace to let each man drink as he wanted.
 
 **9** Also, Queen Vashti gave a feast for the women in the royal palace of King Ahasuerus.
 
@@ -44,7 +44,7 @@
 
 **21** The king and the officials liked this advice. Thus the king did as Memucan said.
 
-**22** He sent letters to all the provinces of the king. He wrote to each province in its own writing and to each people in its own language. The letters said that each man must be the ruler in his own house. Each man must speak the language of his own people.
+**22** He sent letters to all the provinces of the king. He wrote to each province in its own script and to each people in its own language. The letters said that each man must be the ruler in his own house. Each man must speak the language of his own people.
 
 ## Chapter 2
 
@@ -60,7 +60,7 @@
 
 **6** Nebuchadnezzar, the king of Babylon, took Mordecai away from Jerusalem. Mordecai was with the prisoners that Nebuchadnezzar took away with Jeconiah, the king of Judah.
 
-**7** Mordecai raised Hadassah, who was also named Esther. She was the daughter of his uncle. She did not have a father or a mother. The young woman had a good shape and was beautiful. When her father and mother died, Mordecai took her as his own daughter.
+**7** Mordecai raised Hadassah. Her other name was Esther. She was the daughter of his uncle. She did not have a father or a mother. The young woman had a good shape and was beautiful. When her father and mother died, Mordecai took her as his own daughter.
 
 **8** The people heard the order and the law of the king. Then the officials brought many young women to the fortress city of Susa, into the care of Hegai. The officials also took Esther to the palace of the king, into the care of Hegai, who controlled the women.
 
@@ -74,7 +74,7 @@
 
 **13** Then each young woman went to the king. She could take with her anything that she wanted from the house of the women to the palace of the king.
 
-**14** She went to the king in the evening. In the morning she went back to the second house of the women. There she was in the care of Shaashgaz, the official of the king who controlled the concubines (wives of lower rank). She did not go to the king again unless the king was pleased with her and called her by name.
+**14** She went to the king in the evening. In the morning she went back to the second house of the women. There she was in the care of Shaashgaz, the official of the king who controlled the concubines (wives of lower rank). She did not go to the king again unless the king was happy with her and called her by name.
 
 **15** Esther was the daughter of Abihail, the uncle of Mordecai. Mordecai took her as his daughter. When it was the time for Esther to go to the king, she asked only for the things that Hegai told her to take. Hegai was the official of the king who controlled the women. All the people who saw Esther liked her.
 
@@ -102,7 +102,7 @@
 
 **3** Then the servants of the king at the gate said to Mordecai, "Why do you not obey the order of the king?"
 
-**4** Each day they spoke to him, but he did not listen to them. Mordecai told them that he was a Jew. Thus they told Haman about Mordecai. They wanted to see if Haman would accept the reason of Mordecai.
+**4** Each day they spoke to him, but he did not listen to them. Mordecai told them that he was a Jew. Thus they told Haman about Mordecai. They wanted to see if Haman accepted the reason of Mordecai.
 
 **5** Haman saw that Mordecai did not bow down or show respect to him. Then Haman became very angry.
 
@@ -118,13 +118,13 @@
 
 **11** The king said to Haman, "Keep the silver. Do with the people as you think is good."
 
-**12** On the 13th day of the 1st month, Haman called the scribes of the king. They wrote all the orders of Haman. They wrote to the high officials of the king, to the governors of each province, and to the officials of each people. They wrote to each province in its own writing and to each people in its own language. They wrote in the name of King Ahasuerus and put the seal of the ring of the king on the letters.
+**12** On the 13th day of the 1st month, Haman called the scribes of the king. They wrote all the orders of Haman. They wrote to the high officials of the king, to the governors of each province, and to the officials of each people. They wrote to each province in its own script and to each people in its own language. They wrote in the name of King Ahasuerus and put the seal of the ring of the king on the letters.
 
 **13** Messengers took the letters to all the provinces of the king. The letters gave an order to destroy, to kill, and to remove all the Jews. This order was for young and old people, small children and women. The order was for 1 day, the 13th day of the 12th month, the month of Adar. The letters also said, "Take all the property of the Jews."
 
 **14** A copy of the order went to each province as a law. The officials told all the peoples about the order, so that they could be ready for that day.
 
-**15** The order of the king made the messengers go quickly. The officials also gave the order in the fortress city of Susa. The king and Haman sat down to drink. But the city of Susa was confused and afraid.
+**15** The order of the king made the messengers go quickly. The officials also gave the order in the fortress city of Susa. The king and Haman sat down to drink. But the city of Susa had much confusion and fear.
 
 ## Chapter 4
 
@@ -148,11 +148,11 @@
 
 **10** Then Esther spoke to Hatach and told him to give this message to Mordecai:
 
-**11** "All the servants of the king and all the people of the provinces of the king know this law: If a man or a woman goes to the king in the inner court without an order, that person must die. The only exception is if the king holds out his gold scepter (royal rod) to that person. Then that person will live. But the king did not call me to come to him for 30 days."
+**11** "All the servants of the king and all the people of his provinces know this law. If a man or a woman goes to the king in the inner court without an order, that person must die. The only exception is if the king holds out his gold scepter (royal rod) to that person. Then that person will live. But the king did not call me to come to him for 30 days."
 
 **12** The servants told Mordecai the words of Esther.
 
-**13** Then Mordecai told them to give this answer to Esther: "Do not think that you will be safe in the palace of the king, and that only the other Jews will die.
+**13** Mordecai told them to give this answer to Esther. "Do not think that you will be safe in the palace of the king. Do not think that only the other Jews will die.
 
 **14** If you do not speak now, help and rescue for the Jews will come from another place. But you and the family of your father will die. Possibly you became queen for a time such as this."
 
@@ -166,7 +166,7 @@
 
 **1** On the 3rd day, Esther put on her royal clothes. She stood in the inner court of the palace of the king, opposite the hall of the king. The king sat on his royal throne in the royal hall, opposite the entrance.
 
-**2** The king saw Queen Esther as she stood in the court, and he was pleased with her. The king held out to Esther the gold scepter in his hand. Esther came near and touched the top of the scepter.
+**2** The king saw Queen Esther as she stood in the court, and he was happy with her. The king held out to Esther the gold scepter in his hand. Esther came near and touched the top of the scepter.
 
 **3** Then the king said to her, "What do you want, Queen Esther? What is your request? I will give it to you, up to half of my kingdom."
 
@@ -178,7 +178,7 @@
 
 **7** Esther answered, "This is what I want and what I ask:
 
-**8** If the king is pleased with me, and if the king agrees to give me what I want, let the king and Haman come to another feast tomorrow. I will make it ready for them. Then tomorrow I will answer the question of the king."
+**8** If the king is happy with me, and if he agrees to give me what I want, I have a request. Let the king and Haman come to another feast tomorrow. I will make it ready for them. Then tomorrow I will answer the question of the king."
 
 **9** Haman went out that day happy and glad. But then he saw Mordecai at the gate of the king. Mordecai did not stand up and did not move in front of Haman. Thus Haman became very angry with Mordecai.
 
@@ -228,9 +228,9 @@
 
 **2** On this 2nd day, while they drank wine, the king asked Esther again, "Queen Esther, what do you want? I will give it to you. What is your request? Even if it is half of my kingdom, I will do it."
 
-**3** Then Queen Esther answered, "King, if you are pleased with me, and if you agree, give me my life. This is what I want. Also save my people. This is my request.
+**3** Then Queen Esther answered, "King, if you are happy with me, and if you agree, give me my life. This is what I want. Also save my people. This is my request.
 
-**4** People sold me and my people to be destroyed, killed, and removed. If they sold us only as male and female slaves, I would not speak. That problem would not be sufficient to disturb the king."
+**4** People sold me and my people. Now our enemy will destroy us, kill us, and remove us. If they sold us only as male and female slaves, I will not speak. That problem is not sufficient to disturb the king."
 
 **5** Then King Ahasuerus asked Queen Esther, "Who is the man that dared to do this? Where is he?"
 
@@ -254,15 +254,15 @@
 
 **4** The king held out the gold scepter to Esther. Thus Esther stood up in front of the king.
 
-**5** She said, "If the king agrees, and if he is pleased with me, let him write an order. Let the order cancel the letters of Haman, the son of Hammedatha the Agagite. Haman wrote these letters to destroy the Jews in all the provinces of the king. Please do this if the king thinks that it is correct, and if I please him.
+**5** She said, "If the king agrees, and if he is happy with me, let him write an order. Let the order cancel the letters of Haman, the son of Hammedatha the Agagite. Haman wrote these letters to destroy the Jews in all the provinces of the king. Please do this if the king thinks that it is correct, and if I please him.
 
-**6** I cannot watch while this evil thing occurs to my people. I cannot watch while my family is destroyed."
+**6** I cannot watch while this evil thing occurs to my people. I cannot watch while enemies destroy my family."
 
 **7** Then King Ahasuerus said to Queen Esther and to Mordecai the Jew, "I gave the house of Haman to Esther. My servants hanged Haman on the gallows, because he tried to attack the Jews.
 
-**8** Now write another order for the Jews in the name of the king, as you think is best. Put the seal of the ring of the king on it. No person can cancel an order that is written in the name of the king and has the seal of the ring of the king."
+**8** Now write another order for the Jews in the name of the king, as you think is best. Put the seal of the ring of the king on it. No person can cancel an order that officials write in the name of the king and seal with the ring of the king."
 
-**9** Then Mordecai called the scribes of the king. This was on the 23rd day of the 3rd month, the month of Sivan. They wrote all the orders of Mordecai to the Jews. They also wrote to the high officials, the governors, and the officials of the 127 provinces from India to Ethiopia. They wrote to each province in its own writing and to each people in its own language. They also wrote to the Jews in their own writing and language.
+**9** Then Mordecai called the scribes of the king. This was on the 23rd day of the 3rd month, the month of Sivan. They wrote all the orders of Mordecai to the Jews. They also wrote to the high officials, the governors, and the officials of the 127 provinces from India to Ethiopia. They wrote to each province in its own script and to each people in its own language. They also wrote to the Jews in their own script and language.
 
 **10** Mordecai wrote in the name of King Ahasuerus and put the seal of the ring of the king on the letters. He sent the letters with messengers on fast horses that came from the royal herds.
 
@@ -314,17 +314,17 @@
 
 **16** The other Jews in the provinces of the king also came together to protect their lives. They got peace from their enemies. They killed 75,000 of the people who hated them. But they did not take any property.
 
-**17** This occurred on the 13th day of the month of Adar. On the 14th day they rested. They made that day a day of feasting and happiness.
+**17** This occurred on the 13th day of the month of Adar. On the 14th day they rested. They made that day a day of feasts and happiness.
 
-**18** But the Jews in Susa came together on the 13th day and on the 14th day. On the 15th day they rested. They made that day a day of feasting and happiness.
+**18** But the Jews in Susa came together on the 13th day and on the 14th day. On the 15th day they rested. They made that day a day of feasts and happiness.
 
-**19** Thus the Jews who live in the villages without walls make the 14th day of the month of Adar a day of happiness and feasting. It is a holiday. On that day they send gifts of food to each other.
+**19** Thus the Jews who live in the villages without walls make the 14th day of the month of Adar a day of happiness and feasts. It is a holiday. On that day they send gifts of food to each other.
 
 **20** Mordecai wrote a record of these events. He sent letters to all the Jews in all the provinces of King Ahasuerus, near and far.
 
 **21** He told them to celebrate the 14th day and the 15th day of the month of Adar each year.
 
-**22** These were the days when the Jews got peace from their enemies. In that month their sadness changed to joy, and their mourning changed to a holiday. Mordecai told them to make these days, days of feasting and joy. On these days they must send gifts of food to each other and gifts to poor people.
+**22** These were the days when the Jews got peace from their enemies. In that month their sadness changed to joy, and their grief changed to a holiday. Mordecai told them to make these days, days of feasts and joy. On these days they must send gifts of food to each other and gifts to poor people.
 
 **23** Thus the Jews agreed to continue the celebration that they started. They agreed to do what Mordecai wrote to them.
 
@@ -342,7 +342,7 @@
 
 **30** Mordecai sent letters to all the Jews in the 127 provinces of the kingdom of Ahasuerus. The letters had words of peace and truth.
 
-**31** The letters made the days of Purim a law at their correct times. Mordecai the Jew and Queen Esther gave this order. The Jews also made rules about the fasts and the times of mourning, for themselves and for their descendants.
+**31** The letters made the days of Purim a law at their correct times. Mordecai the Jew and Queen Esther gave this order. The Jews also made rules about the fasts and the times of grief, for themselves and for their descendants.
 
 **32** The order of Esther made the rules of Purim a law. A scribe wrote these rules in a book.
 
@@ -350,6 +350,6 @@
 
 **1** King Ahasuerus made the people of the land and of the islands of the sea pay a tax.
 
-**2** All the powerful acts of King Ahasuerus are written in the book of the records of the kings of Media and Persia. The full report of the greatness of Mordecai is also in that book. The king made Mordecai a very important man.
+**2** All the powerful acts of King Ahasuerus are in the book of the records of the kings of Media and Persia. The full report of the greatness of Mordecai is also in that book. The king made Mordecai a very important man.
 
 **3** Mordecai the Jew was 2nd in rank after King Ahasuerus. He was important among the Jews, and many of his people respected him. He worked for the good of his people. He spoke for the peace of all his descendants.

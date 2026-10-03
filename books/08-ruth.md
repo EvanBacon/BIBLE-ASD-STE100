@@ -26,19 +26,19 @@
 
 **12** Go back, my daughters, go home. I am too old to have a husband. Possibly I could have a husband tonight and give birth to sons.
 
-**13** But would you wait for them until they become adults? Would you not marry for all that time? No, my daughters. My life is more bitter than your lives, because the LORD is against me."
+**13** Will you wait for them until they become adults? Will you not marry for all that time? No, my daughters. My life is more bitter than your lives, because the LORD is against me."
 
 **14** Again they cried loudly. Then Orpah kissed her mother-in-law and left. But Ruth held on to Naomi.
 
 **15** Naomi said, "Look, your sister-in-law goes back to her people and to her gods. Go back with her."
 
-**16** But Ruth said, "Do not tell me to leave you or to stop following you. Where you go, I will go. Where you stay, I will stay. Your people will be my people, and your God will be my God.
+**16** But Ruth said, "Do not tell me to leave you. Do not tell me to go back and not follow you. Where you go, I will go. Where you stay, I will stay. Your people will be my people, and your God will be my God.
 
-**17** Where you die, I will die. There they will bury me. Only death will separate you and me. If I break this promise, may the LORD punish me very strongly."
+**17** Where you die, I will die. There they will bury me. Only death will separate you and me. If I break this promise, I ask the LORD to punish me very strongly."
 
-**18** Naomi saw that Ruth was firmly decided to go with her. So Naomi stopped arguing with her.
+**18** Naomi saw that Ruth was firm in her decision to go with her. So Naomi said no more to her about it.
 
-**19** So the 2 women went on until they came to Beth-lehem. When they arrived in Beth-lehem, all the people of the city were excited because of them. The women of the city said, "Is this Naomi?"
+**19** So the 2 women went on until they came to Beth-lehem. When they arrived in Beth-lehem, all the people of the city made much noise about them. The women of the city said, "Is this Naomi?"
 
 **20** Naomi said to them, "Do not call me Naomi (Pleasant). Call me Mara (Bitter), because the Almighty made my life very bitter.
 
@@ -86,7 +86,7 @@
 
 **19** Her mother-in-law said to her, "Where did you pick up grain today? Where did you work? May God bless the man who noticed you." Ruth told her mother-in-law about the man in whose field she worked. She said, "The name of the man in whose field I worked today is Boaz."
 
-**20** Naomi said to her daughter-in-law, "May the LORD bless him! The LORD continues to show kindness to the living and to the dead." Naomi also said to her, "This man is our close relative. He is one of the relatives who must help our family."
+**20** Naomi said to her daughter-in-law, "I ask the LORD to bless him! The LORD continues to show kindness to the people who live and to the dead." Naomi also said to her, "This man is our close relative. He is one of the relatives who must help our family."
 
 **21** Then Ruth the Moabite said, "Boaz also said to me, 'Stay near my young workers until they complete all my harvest.'"
 
@@ -98,15 +98,15 @@
 
 **1** One day Naomi, her mother-in-law, said to Ruth, "My daughter, I must find a home for you, where you will be safe and happy.
 
-**2** Boaz, with whose female workers you were, is our relative. Tonight he will separate the barley from the chaff on the threshing floor.
+**2** Boaz is our relative. You were with his female workers. Tonight he will separate the barley from the chaff on the floor where workers beat grain.
 
-**3** So wash yourself and put perfume on. Put on your best clothes and go down to the threshing floor. But do not let Boaz know that you are there until he finishes his meal.
+**3** So wash yourself and put perfume on. Put on your best clothes and go down to the floor where workers beat grain. But do not let Boaz know that you are there until he finishes his meal.
 
 **4** When he lies down, look at the place where he lies. Then go in, uncover his feet, and lie down there. He will tell you what to do."
 
 **5** Ruth said to her, "I will do all that you tell me."
 
-**6** So Ruth went down to the threshing floor. She did all that her mother-in-law told her to do.
+**6** So Ruth went down to the floor where workers beat grain. She did all that her mother-in-law told her to do.
 
 **7** Boaz ate and drank, and he was happy. He went to lie down at the end of the pile of grain. Then Ruth came quietly. She uncovered his feet and lay down.
 
@@ -122,7 +122,7 @@
 
 **13** Stay here tonight. In the morning, if he will help you as a close relative, good. Let him do it. But if he does not want to do it, then I will do it. I promise this as surely as the LORD lives. Lie down here until the morning."
 
-**14** So Ruth lay at his feet until the morning. She got up before people could see each other. Boaz said, "No one must know that a woman came to the threshing floor."
+**14** So Ruth lay at his feet until the morning. She got up before people could see each other. Boaz said, "No one must know that a woman came to the floor where workers beat grain."
 
 **15** Boaz also said, "Bring the shawl that you wear and hold it out." She held it out. He put 6 measures of barley in it and put it on her shoulder. Then Ruth went into the city.
 
@@ -150,7 +150,7 @@
 
 **8** So the close relative said to Boaz, "Buy it for yourself." Then he removed his sandal.
 
-**9** Boaz said to the elders and to all the people, "Today you see that I buy from Naomi all the property of Elimelech, Chilion, and Mahlon.
+**9** Boaz said to the elders and to all the people, "You are witnesses today. I buy from Naomi all the property of Elimelech, Chilion, and Mahlon.
 
 **10** I also get Ruth the Moabite, the widow of Mahlon, as my wife. I do this to keep the name of the dead man with his property. Then his name will not disappear from his family and from his town. Today you see that this is true."
 

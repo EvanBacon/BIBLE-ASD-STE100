@@ -8,7 +8,7 @@
 
 **3** The king spoke to Ashpenaz, the chief of his officials. The king told him to bring some young men of Israel. These young men were from the royal family and from the noble families.
 
-**4** The young men must have no defect in their bodies. They must be good-looking, wise, and quick to learn. They must have knowledge and good understanding. They must be able to serve in the palace of the king. Ashpenaz must teach them the books and the language of the Chaldeans.
+**4** The young men must have no defect in their bodies. They must be handsome, wise, and quick to learn. They must have knowledge and good insight. They must be able to serve in the palace of the king. Ashpenaz must teach them the books and the language of the Chaldeans.
 
 **5** The king gave them a daily part of his food and of the wine that he drank. The officials must train them for 3 years. At the end of the 3 years, the young men must serve the king.
 
@@ -16,7 +16,7 @@
 
 **7** The chief official gave them new names. He gave Daniel the name Belteshazzar. He gave Hananiah the name Shadrach. He gave Mishael the name Meshach. He gave Azariah the name Abednego.
 
-**8** But Daniel decided that he would not make himself unclean with the food and wine of the king. Thus he asked the chief official for permission not to make himself unclean.
+**8** But Daniel decided that he will not make himself unclean with the food and wine of the king. Thus he asked the chief official for permission not to make himself unclean.
 
 **9** God caused the chief official to show kindness and pity to Daniel.
 
@@ -36,11 +36,11 @@
 
 **17** God gave these 4 young men knowledge and skill in all types of books and wisdom. Daniel could also understand all types of visions and dreams.
 
-**18** The king told the officials to bring in all the young men at the end of the training time. At that time the chief official brought them to Nebuchadnezzar.
+**18** The king told the officials to bring in all the young men at the end of the time for their education. At that time the chief official brought them to Nebuchadnezzar.
 
 **19** The king spoke with them. He found no one as good as Daniel, Hananiah, Mishael, and Azariah. Thus these 4 young men served the king.
 
-**20** The king asked them about all matters of wisdom and understanding. He found them 10 times better than all the magicians and astrologers in all his kingdom.
+**20** The king asked them about all matters of wisdom and insight. He found them 10 times better than all the magicians and astrologers in all his kingdom.
 
 **21** Daniel stayed there until the 1st year of King Cyrus.
 
@@ -50,7 +50,7 @@
 
 **2** The king told his servants to call the magicians, the astrologers, the sorcerers, and the Chaldeans. They must tell the king his dreams. They came and stood in front of the king.
 
-**3** The king said to them, "I had a dream. My mind is troubled, and I want to know the dream."
+**3** The king said to them, "I had a dream. My mind is not calm, and I want to know the dream."
 
 **4** The Chaldeans spoke to the king in the Aramaic language. They said, "O king, live forever! Tell your servants the dream, and we will tell you the meaning."
 
@@ -76,17 +76,17 @@
 
 **15** Daniel asked Arioch, the captain of the king, "Why is the order from the king so severe?" Then Arioch told Daniel about the matter.
 
-**16** Daniel went in to the king. He asked the king to give him time. Then he would tell the king the meaning of the dream.
+**16** Daniel went in to the king. He asked the king to give him time. Then he will tell the king the meaning of the dream.
 
 **17** Then Daniel went to his house. He told his friends Hananiah, Mishael, and Azariah about the matter.
 
-**18** He told them to ask the God of heaven for mercy about this secret. Then the king would not kill Daniel and his friends with the other wise men of Babylon.
+**18** He told them to ask the God of heaven for mercy about this secret. Then the king will not kill Daniel and his friends with the other wise men of Babylon.
 
 **19** During the night, God showed the secret to Daniel in a vision. Then Daniel praised the God of heaven.
 
 **20** Daniel said, "Praise the name of God forever and ever. Wisdom and power are his.
 
-**21** He changes the times and the seasons. He removes kings, and he puts kings into power. He gives wisdom to the wise. He gives knowledge to the people who have understanding.
+**21** He changes the times and the seasons. He removes kings, and he puts kings into power. He gives wisdom to the wise. He gives knowledge to the people who have insight.
 
 **22** He shows deep and secret things. He knows what is in the darkness. The light lives with him.
 
@@ -114,7 +114,7 @@
 
 **34** While you looked, someone cut out a stone, but not with human hands. The stone hit the statue on its feet of iron and clay. The stone broke the feet into pieces.
 
-**35** Then the iron, the clay, the bronze, the silver, and the gold broke into pieces at the same time. They became like the chaff on a threshing floor in summer. The wind blew them away, and no trace stayed. The stone that hit the statue became a large mountain. The mountain filled all the earth.
+**35** Then the iron, the clay, the bronze, the silver, and the gold broke into pieces at the same time. They became like the chaff on a floor where people beat grain in summer. The wind blew them away, and no trace stayed. The stone that hit the statue became a large mountain. The mountain filled all the earth.
 
 **36** This was the dream. Now we will tell the king its meaning.
 
@@ -126,13 +126,13 @@
 
 **40** The 4th kingdom will be as strong as iron. Iron breaks and crushes all things. As iron breaks things into pieces, this kingdom will break and crush all the other kingdoms.
 
-**41** You saw that the feet and toes were partly of clay and partly of iron. Thus the 4th kingdom will be divided. But some of the strength of iron will be in it, because you saw iron mixed with soft clay.
+**41** You saw that the feet and toes were partly of clay and partly of iron. Thus the 4th kingdom will have divisions. But some of the strength of iron will be in it, because you saw iron mixed with soft clay.
 
 **42** The toes were partly of iron and partly of clay. Thus the kingdom will be partly strong and partly weak.
 
 **43** You saw iron mixed with soft clay. Thus the people of that kingdom will mix together through marriage. But they will not stay united, because iron does not mix with clay.
 
-**44** During the time of these kings, the God of heaven will set up a kingdom. That kingdom will never be destroyed. No other nation will take control of it. It will break all these kingdoms and bring them to an end. But that kingdom will continue forever.
+**44** In the time of these kings, the God of heaven will set up a kingdom. No one will ever destroy that kingdom. No other nation will take control of it. It will break all these kingdoms and bring them to an end. But that kingdom will continue forever.
 
 **45** You saw the stone that someone cut out of the mountain, but not with human hands. The stone broke the iron, the bronze, the clay, the silver, and the gold into pieces. The great God told the king what will occur in the future. The dream is true, and its meaning is correct."
 
@@ -202,7 +202,7 @@
 
 **28** Then Nebuchadnezzar said, "Praise the God of Shadrach, Meshach, and Abednego! He sent his angel and saved his servants. They trusted in him. They did not obey the order of the king. They were ready to die. They did not serve or worship a god other than their own God.
 
-**29** Thus I give this order. People of any nation or language may say bad things against the God of Shadrach, Meshach, and Abednego. If they do, my men will cut them into pieces. My men will make their houses into heaps of rubble. No other god can save people in this way."
+**29** Thus I give this order. Possibly people of some nation or language say bad things against the God of Shadrach, Meshach, and Abednego. If they do, my men will cut them into pieces. My men will make their houses into heaps of rubble. No other god can save people in this way."
 
 **30** Then the king gave Shadrach, Meshach, and Abednego higher positions in the province of Babylon.
 
@@ -230,7 +230,7 @@
 
 **11** The tree grew large and strong. Its top touched the sky. People could see it from the ends of the earth.
 
-**12** Its leaves were beautiful, and it had much fruit. The tree had food for all. The wild animals rested in its shade. The birds lived in its branches. All living things got food from it.
+**12** Its leaves were beautiful, and it had much fruit. The tree had food for all. The wild animals rested in its shade. The birds lived in its branches. All animals got food from it.
 
 **13** In the visions on my bed, I looked, and I saw a holy messenger. He came down from heaven.
 
@@ -240,7 +240,7 @@
 
 **16** Let his mind change from the mind of a man. Give him the mind of an animal. Let 7 periods of time go by for him.
 
-**17** The holy messengers give this order. They make this decision. Thus all living people will know that the Most High rules over the kingdoms of men. He gives the kingdoms to the persons whom he chooses. He puts the lowest of men in power over the kingdoms."
+**17** The holy messengers give this order. They make this decision. Thus all people who are alive will know that the Most High rules over the kingdoms of men. He gives the kingdoms to the persons whom he chooses. He puts the lowest of men in power over the kingdoms."
 
 **18** I, King Nebuchadnezzar, saw this dream. Now, Belteshazzar, tell me its meaning. All the wise men of my kingdom cannot tell me its meaning. But you can, because the spirit of the holy gods is in you.'
 
@@ -268,7 +268,7 @@
 
 **30** The king said, 'Babylon is a great city! I built it with my great power as a royal city. It shows the honor of my glory.'
 
-**31** While the king still spoke, a voice came from heaven. The voice said, 'King Nebuchadnezzar, hear this message. Your kingdom is taken away from you.
+**31** While the king still spoke, a voice came from heaven. The voice said, 'King Nebuchadnezzar, hear this message. Your kingdom is not yours now.
 
 **32** People will send you away from other people. You will live with the wild animals. You will eat grass like cattle. 7 periods of time will go by for you. Then you will know that the Most High rules over the kingdoms of men. He gives the kingdoms to the persons whom he chooses.'
 
@@ -296,27 +296,27 @@
 
 **6** Then the face of the king became pale. His thoughts made him afraid. His legs became weak, and his knees hit together.
 
-**7** The king shouted for his servants to bring the astrologers, the Chaldeans, and the fortune-tellers. The king said to the wise men of Babylon, "I will reward the man who reads this writing and tells me its meaning. I will give him purple clothes and a gold chain for his neck. He will be the 3rd ruler in the kingdom."
+**7** The king shouted for his servants to bring the astrologers, the Chaldeans, and the fortune-tellers. The king said to the wise men of Babylon, "I will reward the man who reads these words and tells me their meaning. I will give him purple clothes and a gold chain for his neck. He will be the 3rd ruler in the kingdom."
 
-**8** Then all the wise men of the king came in. But they could not read the writing. They could not tell the king its meaning.
+**8** Then all the wise men of the king came in. But they could not read the words. They could not tell the king their meaning.
 
-**9** Then King Belshazzar became very afraid. His face became more pale. His nobles were confused.
+**9** Then King Belshazzar became very afraid. His face became more pale. His nobles did not know what to do.
 
 **10** The queen heard the words of the king and his nobles. She came into the banquet room. She said, "O king, live forever! Do not let your thoughts make you afraid. Do not let your face become pale.
 
-**11** There is a man in your kingdom who has the spirit of the holy gods in him. In the time of your father, people saw that this man had insight, understanding, and wisdom like the gods. Your father, King Nebuchadnezzar, made him chief of the magicians, astrologers, Chaldeans, and fortune-tellers.
+**11** There is a man in your kingdom who has the spirit of the holy gods in him. In the time of your father, people saw that this man had insight, knowledge, and wisdom like the gods. Your father, King Nebuchadnezzar, made him chief of the magicians, astrologers, Chaldeans, and fortune-tellers.
 
-**12** The king gave this man the name Belteshazzar, but his name is Daniel. He has a very good mind, knowledge, and understanding. He can tell the meaning of dreams, explain riddles, and solve difficult problems. Call Daniel now, and he will tell you the meaning."
+**12** The king gave this man the name Belteshazzar, but his name is Daniel. He has a very good mind, knowledge, and insight. He can tell the meaning of dreams, explain riddles, and solve difficult problems. Call Daniel now, and he will tell you the meaning."
 
 **13** Then the servants brought Daniel to the king. The king said to Daniel, "Are you Daniel? Are you one of the captives from Judah? My father the king brought you from Judah.
 
-**14** I heard about you. People say that the spirit of the gods is in you. They say that you have insight, understanding, and very good wisdom.
+**14** I heard about you. People say that the spirit of the gods is in you. They say that you have insight, knowledge, and very good wisdom.
 
-**15** The wise men and the astrologers came to me. I told them to read this writing and tell me its meaning. But they could not tell me its meaning.
+**15** The wise men and the astrologers came to me. I told them to read these words and tell me their meaning. But they could not tell me their meaning.
 
-**16** But I heard about you. People say that you can tell meanings and solve difficult problems. If you can read the writing and tell me its meaning, I will reward you. I will give you purple clothes and a gold chain for your neck. You will be the 3rd ruler in the kingdom."
+**16** But I heard about you. People say that you can tell meanings and solve difficult problems. If you can read the words and tell me their meaning, I will reward you. I will give you purple clothes and a gold chain for your neck. You will be the 3rd ruler in the kingdom."
 
-**17** Then Daniel said to the king, "Keep your gifts for yourself. Give your rewards to another person. But I will read the writing to the king. I will tell him its meaning.
+**17** Then Daniel said to the king, "Keep your gifts for yourself. Give your rewards to another person. But I will read the words to the king. I will tell him their meaning.
 
 **18** O king, the Most High God gave your father Nebuchadnezzar a kingdom, greatness, glory, and honor.
 
@@ -350,7 +350,7 @@
 
 **1** Darius decided to put 120 officials over the kingdom. They must rule all the kingdom.
 
-**2** He put 3 chief officials over the 120 officials. Daniel was 1 of the 3 chief officials. The officials must report to the chief officials. Thus the king would lose nothing.
+**2** He put 3 chief officials over the 120 officials. Daniel was 1 of the 3 chief officials. The officials must report to the chief officials. Thus the king will lose nothing.
 
 **3** Daniel was better than the other chief officials and officials, because he had a very good spirit. The king planned to put Daniel over all the kingdom.
 
@@ -360,7 +360,7 @@
 
 **6** Then these chief officials and officials went together to the king. They said to him, "King Darius, live forever!
 
-**7** All the chief officials of the kingdom, the governors, the officials, the advisors, and the captains agreed together. The king must make a law and give a firm order. For 30 days, no person may pray to any god or man except you, O king. If a person does this, soldiers will throw that person into the pit of lions.
+**7** All the chief officials of the kingdom, the governors, the officials, the advisors, and the captains agreed together. The king must make a law and give a firm order. For 30 days, no person can pray to any god or man except you, O king. If a person does this, soldiers will throw that person into the pit of lions.
 
 **8** Now, O king, make the order and sign it. Then no person can change it. It will be a law of the Medes and the Persians, which no person can cancel."
 
@@ -370,7 +370,7 @@
 
 **11** Then these men came together. They found Daniel while he prayed and asked his God for help.
 
-**12** Then they went to the king and spoke about the order of the king. They said, "You signed an order. For 30 days, no person may pray to any god or man except you, O king. If a person does this, soldiers will throw that person into the pit of lions. Is that correct?" The king said, "Yes, that is correct. It is a law of the Medes and the Persians, which no person can cancel."
+**12** Then they went to the king and spoke about the order of the king. They said, "You signed an order. For 30 days, no person can pray to any god or man except you, O king. If a person does this, soldiers will throw that person into the pit of lions. Is that correct?" The king said, "Yes, that is correct. It is a law of the Medes and the Persians, which no person can cancel."
 
 **13** Then they said to the king, "Daniel is one of the captives from Judah. He does not obey you, O king. He does not obey the order that you signed. He prays 3 times each day."
 
@@ -380,13 +380,13 @@
 
 **16** Then the king gave an order. His servants brought Daniel and threw him into the pit of lions. The king said to Daniel, "You always serve your God. I hope that he will save you."
 
-**17** The servants brought a stone and put it over the opening of the pit. The king sealed the stone with his own ring and with the rings of his nobles. Thus no person could change what occurred to Daniel.
+**17** The servants brought a stone and put it over the mouth of the pit. The king sealed the stone with his own ring and with the rings of his nobles. Thus no person could change what occurred to Daniel.
 
 **18** Then the king went to his palace. He did not eat during the night. He did not let musicians come to him. He could not sleep.
 
 **19** Very early in the morning, the king got up. He quickly went to the pit of lions.
 
-**20** When he came near the pit, he called to Daniel with a sad voice. The king said, "Daniel, servant of the living God! You always serve your God. Could your God save you from the lions?"
+**20** When he came near the pit, he called to Daniel with a sad voice. The king said, "Daniel, servant of the God who lives! You always serve your God. Could your God save you from the lions?"
 
 **21** Then Daniel said to the king, "O king, live forever!
 
@@ -398,7 +398,7 @@
 
 **25** Then King Darius wrote to the people of all nations and languages who live on all the earth: "I wish you much peace.
 
-**26** I give this order. In all parts of my kingdom, people must fear and respect the God of Daniel. He is the living God, and he continues forever. His kingdom will not be destroyed. His rule will never end.
+**26** I give this order. In all parts of my kingdom, people must fear and respect the God of Daniel. He is the God who lives, and he continues forever. No one will destroy his kingdom. His rule will never end.
 
 **27** He saves and he rescues. He does signs and miracles in heaven and on earth. He saved Daniel from the power of the lions."
 
@@ -418,23 +418,23 @@
 
 **6** After this I looked, and I saw another animal. It was like a leopard. On its back it had 4 wings like the wings of a bird. This animal also had 4 heads. Someone gave it the power to rule.
 
-**7** After this, in my visions during the night, I saw a 4th animal. It was terrible, frightening, and very strong. It had large iron teeth. It ate and crushed its victims. It walked on the remains with its feet. It was different from all the animals before it. It had 10 horns.
+**7** After this, in my visions in the night, I saw a 4th animal. It was terrible, dreadful, and very strong. It had large iron teeth. It ate and crushed its victims. It walked on the remains with its feet. It was different from all the animals before it. It had 10 horns.
 
-**8** While I thought about the horns, I saw another horn. It was a small horn, and it grew up among the other horns. 3 of the first horns were pulled out by the roots in front of it. This small horn had eyes like the eyes of a man. It had a mouth that spoke proud words.
+**8** While I thought about the horns, I saw another horn. It was a small horn, and it grew up among the other horns. It pulled out 3 of the first horns by the roots. This small horn had eyes like the eyes of a man. It had a mouth that spoke proud words.
 
-**9** I watched until someone put thrones in their positions. The Ancient of Days sat down. His clothes were as white as snow. The hair on his head was like pure wool. His throne was made of flames. The wheels of his throne were burning fire.
+**9** I watched until someone put thrones in their positions. The Ancient of Days sat down. His clothes were as white as snow. The hair on his head was like pure wool. His throne was like flames. The wheels of his throne were like fire that burns.
 
-**10** A river of fire came out from in front of him. Millions of servants served him. Hundreds of millions stood in front of him. The court sat down to judge, and the books were opened.
+**10** A river of fire came out from in front of him. Millions of servants served him. Hundreds of millions stood in front of him. The court sat down to judge, and someone opened the books.
 
-**11** Then I continued to watch, because of the proud words that the horn spoke. I watched until someone killed the 4th animal. Someone destroyed its body and put it into the burning fire.
+**11** Then I continued to watch, because of the proud words that the horn spoke. I watched until someone killed the 4th animal. Someone destroyed its body and put it into the fire.
 
-**12** The power to rule was taken from the other animals. But they could live for a period of time.
+**12** Someone took the power to rule from the other animals. But they could live for a period of time.
 
 **13** In my visions during the night, I looked. I saw a person like a son of man. He came with the clouds of heaven. He came to the Ancient of Days, and they brought him near to the Ancient of Days.
 
-**14** The Ancient of Days gave him power to rule, glory, and a kingdom. The people of all nations and languages will serve him. His rule will continue forever, and it will not end. His kingdom will never be destroyed.
+**14** The Ancient of Days gave him power to rule, glory, and a kingdom. The people of all nations and languages will serve him. His rule will continue forever, and it will not end. No one will ever destroy his kingdom.
 
-**15** As for me, Daniel, my spirit was troubled. The visions in my mind made me afraid.
+**15** As for me, Daniel, my spirit was sad. The visions in my mind made me afraid.
 
 **16** I went near to one of the persons who stood there. I asked him for the true meaning of all this. He told me the meaning of these things.
 
@@ -442,7 +442,7 @@
 
 **18** But the holy people of the Most High will receive the kingdom. They will have the kingdom forever and ever.'
 
-**19** Then I wanted to know the truth about the 4th animal. It was different from all the others and very frightening. It had iron teeth and bronze claws. It ate and crushed its victims. It walked on the remains with its feet.
+**19** Then I wanted to know the truth about the 4th animal. It was different from all the others and very dreadful. It had iron teeth and bronze claws. It ate and crushed its victims. It walked on the remains with its feet.
 
 **20** I also wanted to know about the 10 horns on its head. And I wanted to know about the other horn that grew up. 3 horns fell in front of it. That horn had eyes and a mouth that spoke proud words. It looked stronger than the other horns.
 
@@ -486,11 +486,11 @@
 
 **11** It made itself as great as the Prince of the army. It stopped the daily sacrifice to the Prince. It threw down the place of his sanctuary.
 
-**12** Because of sin, the army of heaven and the daily sacrifice were given to the horn. The horn threw truth down to the ground. The horn did what it wanted, and it had success.
+**12** Because of sin, the horn got control of the army of heaven and the daily sacrifice. The horn threw truth down to the ground. The horn did what it wanted, and it had success.
 
 **13** Then I heard a holy one speak. Another holy one said to him, "How long will the events of this vision continue? How long will the daily sacrifice stop? How long will the sin that destroys continue? How long will people walk on the sanctuary and the army?"
 
-**14** He said to me, "For 2,300 evenings and mornings. Then the sanctuary will be made clean again."
+**14** He said to me, "For 2,300 evenings and mornings. Then the sanctuary will become clean again."
 
 **15** I, Daniel, saw the vision, and I tried to understand it. Then I saw a person who looked like a man. He stood in front of me.
 
@@ -512,7 +512,7 @@
 
 **24** He will become very powerful, but not by his own power. He will cause terrible destruction, and he will have success in what he does. He will destroy powerful men and the holy people.
 
-**25** He will be clever, and he will use lies to have success. He will think that he is very great. He will destroy many people when they think that they are safe. He will even fight against the Prince of princes. But he will be destroyed, and not by human power.
+**25** He will be clever, and he will use lies to have success. He will think that he is very great. He will destroy many people when they think that they are safe. He will even fight against the Prince of princes. But someone will destroy him, and not by human power.
 
 **26** The vision of the evenings and the mornings that you heard about is true. But keep the vision secret, because it is about a time far in the future."
 
@@ -522,7 +522,7 @@
 
 **1** Darius the son of Ahasuerus was from the family of the Medes. He became king over the kingdom of the Chaldeans.
 
-**2** In the 1st year of his rule, I, Daniel, studied the books. I understood the number of years from the word of the LORD to Jeremiah the prophet. Jerusalem would be in ruins for 70 years.
+**2** In the 1st year of his rule, I, Daniel, studied the books. I understood the number of years from the word of the LORD to Jeremiah the prophet. Jerusalem will be in ruins for 70 years.
 
 **3** Then I turned to the Lord God. I prayed and asked him for help. I did not eat food. I wore rough cloth (sackcloth) and put ashes on myself.
 
@@ -532,9 +532,9 @@
 
 **6** We did not listen to your servants the prophets. They spoke in your name to our kings, our rulers, our ancestors, and all the people of the land.
 
-**7** O Lord, you are right. But we are ashamed today. The men of Judah, the people of Jerusalem, and all Israel are ashamed. Some of them are near, and some are far away. You sent them into many countries because they were not loyal to you.
+**7** O Lord, you are right. But today we feel shame. The men of Judah, the people of Jerusalem, and all Israel feel shame. Some of them are near, and some are far away. You sent them into many countries because they were not loyal to you.
 
-**8** O Lord, we are ashamed. Our kings, our rulers, and our ancestors are ashamed, because we did wrong against you.
+**8** O Lord, we feel shame. Our kings, our rulers, and our ancestors feel shame, because we did wrong against you.
 
 **9** The Lord our God shows mercy and forgives, but we fought against him.
 
@@ -562,7 +562,7 @@
 
 **21** While I prayed, Gabriel came to me. I saw him in the vision before. He flew quickly to me. He came at about the time of the evening offering.
 
-**22** He spoke with me. He said, "Daniel, I came now to give you wisdom and understanding.
+**22** He spoke with me. He said, "Daniel, I came now to give you wisdom and insight.
 
 **23** When you started to pray, God gave an answer. I came to tell you the answer, because God loves you very much. Thus think about the message and understand the vision.
 
@@ -586,7 +586,7 @@
 
 **5** I looked up, and I saw a man in linen clothes. He had a belt of pure gold from Uphaz around his waist.
 
-**6** His body was like a precious stone. His face was as bright as lightning. His eyes were like burning torches. His arms and his legs shone like polished bronze. His voice was like the sound of a large crowd.
+**6** His body was like a precious stone. His face was as bright as lightning. His eyes were like torches of fire. His arms and his legs shone like polished bronze. His voice was like the sound of a large crowd.
 
 **7** Only I, Daniel, saw the vision. The men with me did not see it. But they became very afraid. They ran away and hid themselves.
 
@@ -616,7 +616,7 @@
 
 **20** Then he said, "Do you know why I came to you? Now I will go back to fight against the prince of Persia. When I go, the prince of Greece will come.
 
-**21** But first I will tell you what is written in the Book of Truth. No one helps me against these princes except Michael, your prince."
+**21** But first I will tell you what the Book of Truth says. No one helps me against these princes except Michael, your prince."
 
 ## Chapter 11
 
@@ -658,7 +658,7 @@
 
 **19** Then he will go back to the fortresses of his own land. But he will fall, and no one will see him again.
 
-**20** Another king will take his place. That king will send a tax collector to keep the glory of the kingdom. But after a short time, that king will be destroyed. He will not die in anger or in battle.
+**20** Another king will take his place. That king will send a tax collector to keep the glory of the kingdom. But after a short time, someone will destroy that king. He will not die in anger or in battle.
 
 **21** Then an evil man will take his place. People will not give him the honor of a king. He will come when the people feel safe. He will get the kingdom with lies and false praise.
 
@@ -670,7 +670,7 @@
 
 **25** He will gather his strength and his courage with a large army. He will attack the king of the south. The king of the south will fight with a very large and powerful army. But the king of the south will not win, because his enemies will make plans against him.
 
-**26** The men who eat at his table will destroy him. His army will be destroyed, and many soldiers will die.
+**26** The men who eat at his table will destroy him. His army will go away like a flood, and many soldiers will die.
 
 **27** Both kings will want to do evil. They will sit at the same table and tell lies to each other. But their plans will not succeed, because the end will come at the time that God chose.
 
@@ -712,7 +712,7 @@
 
 ## Chapter 12
 
-**1** At that time, Michael will come. He is the great prince who protects your people. There will be a time of great trouble. No nation ever had such trouble from its start until that time. But at that time your people will be saved. All the people whose names are written in the book will be saved.
+**1** At that time, Michael will come. He is the great prince who protects your people. There will be a time of great trouble. No nation ever had such trouble from its start until that time. But at that time God will save your people. He will save all the people whose names are in the book.
 
 **2** Many of the people who are dead and buried will become alive again. Some will get life that continues forever. Other people will get shame and disgrace that continue forever.
 
@@ -722,17 +722,17 @@
 
 **5** Then I, Daniel, looked, and I saw 2 other men. 1 man stood on this bank of the river. The other man stood on the other bank of the river.
 
-**6** One of them spoke to the man in linen clothes, who was above the water of the river. He asked, "How long will it be until these amazing things end?"
+**6** One of them spoke to the man in linen clothes, who was above the water of the river. He asked, "How long will it be until these wonderful things end?"
 
 **7** The man in linen clothes, above the water of the river, raised his right hand and his left hand to heaven. I heard him make a promise in the name of God, who lives forever. He said, "It will be for a time, 2 times, and half a time. When the power of the holy people is completely broken, all these things will end."
 
 **8** I heard, but I did not understand. Thus I said, "My lord, what will be the result of these things?"
 
-**9** He said, "Go, Daniel. These words are kept secret and sealed until the time of the end.
+**9** He said, "Go, Daniel. These words stay secret and sealed until the time of the end.
 
 **10** God will make many people pure, clean, and tested. But evil people will continue to do evil. No evil person will understand. But the wise people will understand.
 
-**11** The daily sacrifice will stop, and the terrible thing that causes destruction will be set up. From that time there will be 1,290 days.
+**11** The daily sacrifice will stop, and someone will set up the terrible thing that causes destruction. From that time there will be 1,290 days.
 
 **12** The person who waits and comes to the end of the 1,335 days will be happy.
 

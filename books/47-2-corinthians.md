@@ -16,7 +16,7 @@
 
 **7** Our hope for you is firm. We know that you share in our sufferings. Thus, you will also share in our comfort.
 
-**8** Brothers, we want you to know about the troubles that we had in the province of Asia. The troubles were too heavy for our strength. We thought that we would die.
+**8** Brothers, we want you to know about the troubles that we had in the province of Asia. The troubles were too heavy for our strength. We thought that we will die.
 
 **9** In our hearts, we felt that we had a sentence of death. This occurred so that we did not trust ourselves. We trusted God, who raises the dead.
 
@@ -92,7 +92,7 @@
 
 **2** You are our letter. God wrote this letter in our hearts. All people know this letter and read it.
 
-**3** You show clearly that you are a letter from Christ. We delivered this letter. People did not write it with ink. The Spirit of the living God wrote it. The Spirit did not write it on pieces of stone. The Spirit wrote it on human hearts.
+**3** You show clearly that you are a letter from Christ. We delivered this letter. People did not write it with ink. The Spirit of the God who lives wrote it. The Spirit did not write it on pieces of stone. The Spirit wrote it on human hearts.
 
 **4** We are sure of this before God because of Christ.
 
@@ -130,7 +130,7 @@
 
 **2** We stopped all shameful and secret things. We do not trick people. We do not change the word of God. We tell the truth clearly. Thus, before God, we show all people that we are honest.
 
-**3** If our gospel is hidden, it is hidden only from the people who are lost.
+**3** If something hides our gospel, it hides it only from the people who go to destruction.
 
 **4** The god of this world closed the minds of unbelievers. Thus, they do not see the light of the gospel. The gospel tells about the glory of Christ, who is the image of God.
 
@@ -140,7 +140,7 @@
 
 **7** We have this treasure, but we are like pots of clay. This shows that the great power comes from God, not from us.
 
-**8** We have troubles on all sides, but these troubles do not defeat us. We are confused, but we do not lose hope.
+**8** We have troubles on all sides, but these troubles do not defeat us. We do not always understand, but we do not lose hope.
 
 **9** People attack us, but God does not leave us. People knock us down, but they do not destroy us.
 
@@ -164,7 +164,7 @@
 
 ## Chapter 5
 
-**1** Our body on earth is like a tent. We know that this tent will possibly be destroyed. But God will give us a building in heaven. Human hands did not make that house. It is eternal.
+**1** Our body on earth is like a tent. We know that possibly this tent will go to pieces. But God will give us a building in heaven. Human hands did not make that house. It is eternal.
 
 **2** In this tent we make sad sounds. We have a strong wish to put on our home from heaven, as we put on clothes.
 
@@ -198,7 +198,7 @@
 
 **17** If a person is in Christ, he is a new creation. The old things went away. All things are new.
 
-**18** All this comes from God. Through Christ, God made peace between himself and us. And God gave us the work of making peace between people and God.
+**18** All this comes from God. Through Christ, God made peace between himself and us. And God gave us the work to make peace between people and God.
 
 **19** In Christ, God made peace between himself and the world. He did not count the sins of people against them. And he gave us the message of peace with God.
 
@@ -238,7 +238,7 @@
 
 **15** Christ and Belial (Satan) cannot agree. A believer and an unbeliever cannot share their lives.
 
-**16** The temple of God and idols cannot agree. We are the temple of the living God. God said, "I will live with them and walk among them. I will be their God, and they will be my people."
+**16** The temple of God and idols cannot agree. We are the temple of the God who lives. God said, "I will live with them and walk among them. I will be their God, and they will be my people."
 
 **17** Thus, the Lord says, "Come out from among them, and be separate. Do not touch any unclean thing. Then I will accept you.
 
@@ -292,7 +292,7 @@
 
 **6** Thus, we asked Titus to help you complete this generous gift. He started this work with you before.
 
-**7** You are rich in all things: in faith, in speech, in knowledge, in eagerness, and in your love for us. Thus, make sure that you are also rich in this act of giving.
+**7** You are rich in all things: in faith, in speech, in knowledge, in eagerness, and in your love for us. Thus, make sure that you are also rich in this act of grace.
 
 **8** I do not give you a command. I tell you about the eagerness of other people. Thus, I test if your love is true.
 
@@ -336,7 +336,7 @@
 
 **3** But I send the brothers to you. I do not want our pride in you to be wrong in this matter. I want you to be ready, as I said.
 
-**4** Possibly some people from Macedonia will come with me. If they find that you are not ready, we will be ashamed. You will also be ashamed. We were too sure of you.
+**4** Possibly some people from Macedonia will come with me. If they find that you are not ready, we will feel shame. You will also feel shame. We were too sure of you.
 
 **5** Thus, I thought that it was necessary to ask the brothers to go to you before me. They will prepare the gift that you promised. Then the gift will be ready. It will be a generous gift, not a gift that you give unwillingly.
 
@@ -376,7 +376,7 @@
 
 **7** You look only at the things in front of you. A person can be sure that he belongs to Christ. Then that person must think again. We belong to Christ as much as he does.
 
-**8** The Lord gave us authority to make you stronger, not to destroy you. If I am proud of that authority, I am not ashamed.
+**8** The Lord gave us authority to make you stronger, not to destroy you. If I am proud of that authority, I do not feel shame.
 
 **9** I do not want you to think that I try to frighten you with my letters.
 
@@ -388,7 +388,7 @@
 
 **13** But we will not be proud of things outside the limits of our work. We will be proud only of the work that God gave us. That work includes our work with you.
 
-**14** We do not go past our limits. We would go past our limits if we did not come to you. But we came to you with the gospel of Christ.
+**14** We do not go past our limits. If we did not come to you, we went past our limits. But we came to you with the gospel of Christ.
 
 **15** We are not proud of the work that other people did. But we hope that your faith will become stronger. Then our work among you will become much larger.
 
@@ -428,7 +428,7 @@
 
 **14** This does not surprise me. Satan himself changes his appearance to look like an angel of light.
 
-**15** Thus, it is not surprising if the servants of Satan also look like servants of righteousness. In the end, they will get the punishment that their actions deserve.
+**15** Thus, it is not a surprise if the servants of Satan also look like servants of righteousness. In the end, they will get the punishment that their actions deserve.
 
 **16** I say again: No person must think that I am a fool. But if you think so, then accept me as a fool. Then I can be proud a little.
 
@@ -440,7 +440,7 @@
 
 **20** You are patient when a person makes you his slaves. You are patient when a person takes all that you have, or uses you for his gain. You are patient when a person is proud, or hits you in the face.
 
-**21** I am ashamed to say that we were too weak to do such things! But if another person is bold, I am also bold. I speak as a fool.
+**21** I feel shame to say that we were too weak to do such things! But if another person is bold, I am also bold. I speak as a fool.
 
 **22** Are they Hebrews? I am also a Hebrew. Are they Israelites? I am also an Israelite. Are they descendants of Abraham? I am also a descendant of Abraham.
 
@@ -448,7 +448,7 @@
 
 **24** 5 times the Jews hit me with a whip 39 times.
 
-**25** 3 times people beat me with sticks. 1 time people threw stones at me. 3 times my ship was destroyed. 1 time I was in the sea for a night and a day.
+**25** 3 times people beat me with sticks. 1 time people threw stones at me. 3 times my ship broke and sank. 1 time I was in the sea for a night and a day.
 
 **26** I traveled many times. I was in danger from rivers and from robbers. I was in danger from my own people and from people who are not Jews. I was in danger in cities, in the wilderness, and at sea. I was in danger from false brothers.
 
@@ -472,7 +472,7 @@
 
 **2** I know a man in Christ. 14 years ago, God took that man up to the third heaven. I do not know if the man was in his body or out of his body. God knows.
 
-**3** I know that this man was taken up. I do not know if he was in his body or out of his body. God knows.
+**3** I know that God took this man up. I do not know if he was in his body or out of his body. God knows.
 
 **4** God took this man up into paradise. There, the man heard words that a person cannot say. No person has permission to say those words.
 
@@ -480,7 +480,7 @@
 
 **6** If I want to be proud, I will not be a fool, because I will tell the truth. But I will not be proud. I do not want people to think more of me than what they see and hear.
 
-**7** God gave me very great revelations. Thus, God gave me a pain in my body, so that I would not become too proud. The pain was like a sharp thorn. It was a messenger from Satan to hurt me.
+**7** God gave me very great revelations. Thus, God gave me a pain in my body, so that I will not become too proud. The pain was like a sharp thorn. It was a messenger from Satan to hurt me.
 
 **8** I asked the Lord 3 times to remove this pain from me.
 
@@ -538,4 +538,4 @@
 
 **13** All the saints here send you their greetings.
 
-**14** I pray that the grace of the Lord Jesus Christ, the love of God, and the friendship of the Holy Spirit will be with all of you. Amen.
+**14** I pray that the grace of the Lord Jesus Christ will be with all of you. I pray that the love of God and the friendship of the Holy Spirit will be with all of you. Amen.

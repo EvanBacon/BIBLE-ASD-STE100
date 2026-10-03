@@ -40,7 +40,7 @@
 
 **19** I called to my lovers, but they betrayed me. My priests and my leaders died in the city. They looked for food to stay alive.
 
-**20** LORD, look at me, because I am in distress! I have pain inside me. My heart is troubled, because I disobeyed you very much. Outside, the sword kills. Inside the house, there is death.
+**20** LORD, look at me, because I am in distress! I have pain inside me. My heart has no peace, because I disobeyed you very much. Outside, the sword kills. Inside the house, there is death.
 
 **21** People heard my cries, but no person comforts me. All my enemies heard about my trouble. They are glad that you did this to me. Bring the day that you promised. Then my enemies will be like me.
 
@@ -136,7 +136,7 @@
 
 **21** But I think about this, and thus I have hope:
 
-**22** Because of the faithful love of the LORD, we are not destroyed. His mercy does not stop.
+**22** Because of the faithful love of the LORD, we are still alive. His mercy does not stop.
 
 **23** His mercy is new each morning. LORD, you are very faithful.
 
@@ -262,7 +262,7 @@
 
 **17** Our eyes became tired while we looked for help. But no help came. We watched for a nation that could not save us.
 
-**18** The enemy watched our steps. Thus we could not walk in our streets. Our end was near. Our days were finished. Our end came.
+**18** The enemy watched our steps. Thus we could not walk in our streets. Our end was near. Our days came to an end. Our end came.
 
 **19** The people who chased us were faster than eagles in the sky. They chased us on the mountains. They waited to attack us in the desert.
 
@@ -282,7 +282,7 @@
 
 **4** We must pay money for our water. We must buy our wood.
 
-**5** The enemy is close behind us. We are tired, and we have no rest.
+**5** The enemy is close behind us. We are weary, and we have no rest.
 
 **6** We made agreements with Egypt and Assyria to get enough food.
 

@@ -108,7 +108,7 @@
 
 **9** Joshua said to the people of Israel, "Come here. Listen to the words of the LORD your God."
 
-**10** Joshua said, "This is how you will know that the living God is among you. He will surely push out the people in front of you. He will push out the Canaanites, the Hittites, the Hivites, the Perizzites, the Girgashites, the Amorites, and the Jebusites.
+**10** Joshua said, "This is how you will know that the God who lives is among you. He will surely push out the people in front of you. He will push out the Canaanites, the Hittites, the Hivites, the Perizzites, the Girgashites, the Amorites, and the Jebusites.
 
 **11** Look, the ark of the covenant of the Lord of all the earth will go in front of you into the Jordan River.
 
@@ -148,7 +148,7 @@
 
 **11** When all the people were across, the ark of the LORD and the priests went across in front of the people.
 
-**12** The men of the tribe of Reuben, the tribe of Gad, and half the tribe of Manasseh went across in front of the people of Israel. They had their weapons, as Moses told them.
+**12** The men of Reuben, the men of Gad, and half the tribe of Manasseh went across in front of the people of Israel. They carried their weapons, as Moses told them.
 
 **13** Approximately 40,000 soldiers, ready for war, went across in front of the LORD to the plains of Jericho.
 
@@ -184,13 +184,13 @@
 
 **4** This is why Joshua circumcised them. All the males who came out of Egypt, all the soldiers, died in the desert on the journey after they left Egypt.
 
-**5** All the men who came out of Egypt were circumcised. But nobody circumcised the boys born in the desert on the journey from Egypt.
+**5** All the men who came out of Egypt received circumcision. But nobody circumcised the boys born in the desert on the journey from Egypt.
 
-**6** The people of Israel walked in the desert for 40 years. During that time, all the soldiers who came out of Egypt died, because they did not obey the LORD. The LORD made a promise that they would not see the land. He promised to give this land to our fathers. It is a land with much milk and honey.
+**6** The people of Israel walked in the desert for 40 years. During that time, all the soldiers who came out of Egypt died, because they did not obey the LORD. So the LORD made this promise to them: 'You will not see the land.' He promised to give this land to our fathers. It is a land with much milk and honey.
 
-**7** Joshua circumcised the sons of those soldiers. God made these sons the new people of Israel. Nobody circumcised them on the journey. Thus, they were not circumcised.
+**7** Joshua circumcised the sons of those soldiers. God made these sons the new people of Israel. Nobody circumcised them on the journey. Thus, they did not have circumcision.
 
-**8** After Joshua circumcised all the men, they stayed in their places in the camp. They stayed there until they were healed.
+**8** After Joshua circumcised all the men, they stayed in their places in the camp. They stayed there until their bodies healed.
 
 **9** Then the LORD said to Joshua, "Today I removed from you the shame of Egypt." Thus, the name of that place is Gilgal today.
 
@@ -248,7 +248,7 @@
 
 **20** The priests blew the trumpets, and the people shouted. When the people heard the sound of the trumpet, they shouted loudly. Then the wall fell down. The people went up into the city. Each man went straight in, and they took the city.
 
-**21** They destroyed all the living things in the city with the sword. They killed men and women, young and old people. They killed the cattle, the sheep, and the donkeys.
+**21** They destroyed all the people and animals in the city with the sword. They killed men and women, young and old people. They killed the cattle, the sheep, and the donkeys.
 
 **22** Joshua spoke to the 2 men who spied on the country. He said, "Go into the house of the prostitute. Bring out the woman and all her family, as you promised her."
 
@@ -396,7 +396,7 @@
 
 **3** The people who lived in Gibeon heard what Joshua did to Jericho and Ai.
 
-**4** Thus, they made a plan to trick Israel. They acted as if they were messengers from a far country. They put old bags on their donkeys. They took old wine containers that were broken and repaired.
+**4** Thus, they made a plan to trick Israel. They acted as if they were messengers from a far country. They put old bags on their donkeys. They took old wine containers. The containers had tears, and someone repaired them.
 
 **5** They wore old shoes that had repairs on them. They wore old clothes. All the bread that they took for food was dry and in pieces.
 
@@ -414,7 +414,7 @@
 
 **12** Look at our bread. It was hot when we took it from our houses on the day that we left to come to you. But now it is dry and in pieces.
 
-**13** When we filled these wine containers, they were new. But look, now they are broken. Our clothes and our shoes are old because the journey was very long."
+**13** When we filled these wine containers, they were new. But look, now they have holes in them. Our clothes and our shoes are old because the journey was very long."
 
 **14** The men of Israel examined some of their food. But they did not ask the LORD what to do.
 
@@ -434,7 +434,7 @@
 
 **22** Joshua called the Gibeonites. He said to them, "Why did you trick us? You said, 'We live very far from you.' But you live near us.
 
-**23** Thus, now you are cursed. You will always be slaves. You will cut wood and carry water for the house of my God."
+**23** Thus, now a curse is on you. You will always be slaves. You will cut wood and carry water for the house of my God."
 
 **24** They answered Joshua, "We, your servants, heard clearly about the command of the LORD your God to his servant Moses. The LORD told Moses to give you all the land. He told Moses to destroy all the people of the land in front of you. Thus, we were very afraid for our lives because of you. That is why we did this.
 
@@ -470,7 +470,7 @@
 
 **12** On the day that the LORD gave the Amorites to Israel, Joshua spoke to the LORD. In front of Israel he said, "Sun, stop over Gibeon. Moon, stop over the Valley of Aijalon."
 
-**13** Thus, the sun stopped and the moon stopped until the people defeated their enemies. This is written in the Book of Jashar. The sun stopped in the middle of the sky. It did not go down for approximately 1 full day.
+**13** Thus, the sun stopped and the moon stopped until the people defeated their enemies. The Book of Jashar tells about this. The sun stopped in the middle of the sky. It did not go down for approximately 1 full day.
 
 **14** There was no day like that day before it or after it. On that day the LORD obeyed the voice of a man. The LORD fought for Israel.
 
@@ -480,7 +480,7 @@
 
 **17** A person told Joshua, "Somebody found the 5 kings. They hide in a cave at Makkedah."
 
-**18** Joshua said, "Roll large stones over the opening of the cave. Put men there to guard the kings.
+**18** Joshua said, "Roll large stones over the mouth of the cave. Put men there to guard the kings.
 
 **19** But do not stay there yourselves. Chase your enemies. Attack them from behind. Do not let them go into their cities. The LORD your God gives them to you."
 
@@ -498,7 +498,7 @@
 
 **26** Then Joshua killed the kings. He hanged them on 5 trees. The bodies stayed on the trees until evening.
 
-**27** At sunset, Joshua gave a command. His men took the bodies down from the trees. They threw them into the cave where the kings hid. They put large stones over the opening of the cave. These stones are there today.
+**27** At sunset, Joshua gave a command. His men took the bodies down from the trees. They threw them into the cave where the kings hid. They put large stones over the mouth of the cave. These stones are there today.
 
 **28** On that day Joshua took Makkedah. He killed the king and all the people in the city with the sword. He destroyed them completely. Nobody stayed alive. He did to the king of Makkedah the same thing that he did to the king of Jericho.
 
@@ -524,7 +524,7 @@
 
 **39** Joshua took Debir, its king, and its villages. The Israelites killed all the people with the sword. They destroyed them completely. Nobody stayed alive. Joshua did to Debir and its king the same thing that he did to Hebron, and to Libnah and its king.
 
-**40** Thus, Joshua defeated all the land. He defeated the hills, the Negev (the south), the low hills, and the hillsides. He defeated all their kings. Nobody stayed alive. He destroyed all living people, as the LORD, the God of Israel, told him.
+**40** Thus, Joshua defeated all the land. He defeated the hills, the Negev (the south), the low hills, and the hillsides. He defeated all their kings. Nobody stayed alive. He destroyed all people who breathed, as the LORD, the God of Israel, told him.
 
 **41** Joshua defeated them from Kadesh Barnea to Gaza. He also defeated all the area of Goshen as far as Gibeon.
 
@@ -564,7 +564,7 @@
 
 **15** The LORD gave commands to his servant Moses. Moses gave the same commands to Joshua, and Joshua obeyed them. Joshua did all the things that the LORD told Moses.
 
-**16** Thus, Joshua took all that land. He took the hills, all the Negev, all the area of Goshen, the low hills, the Arabah, and the hills of Israel with their low hills.
+**16** Thus, Joshua took all that land. He took the hills, all the Negev, and all the area of Goshen. He also took the low hills, the Arabah, and the hills of Israel with their low hills.
 
 **17** He took the land from Mount Halak, near Seir, to Baal Gad in the Valley of Lebanon below Mount Hermon. He caught all their kings and killed them.
 
@@ -684,7 +684,7 @@
 
 **26** It went from Heshbon to Ramath Mizpah and Betonim. It went from Mahanaim to the border of Debir.
 
-**27** In the valley it included Beth Haram, Beth Nimrah, Sukkoth, and Zaphon. These were the remaining parts of the kingdom of Sihon, the king of Heshbon. The land went along the east side of the Jordan to the end of the Sea of Kinnereth.
+**27** In the valley it included Beth Haram, Beth Nimrah, Sukkoth, and Zaphon. These were the other parts of the kingdom of Sihon, the king of Heshbon. The land went along the east side of the Jordan to the end of the Sea of Kinnereth.
 
 **28** These cities and their villages were the property of the tribe of Gad, family by family.
 
@@ -710,7 +710,7 @@
 
 **5** Thus, the people of Israel divided the land, as the LORD told Moses.
 
-**6** The men of the tribe of Judah came to Joshua at Gilgal. Caleb the son of Jephunneh, the Kenizzite, said to Joshua, "You know what the LORD said to Moses, the man of God, about you and me at Kadesh Barnea.
+**6** The men of the tribe of Judah came to Joshua at Gilgal. Caleb the son of Jephunneh, the Kenizzite, spoke to Joshua. He said, "You know what the LORD said to Moses, the man of God, about you and me at Kadesh Barnea.
 
 **7** I was 40 years old when Moses, the servant of the LORD, sent me from Kadesh Barnea to spy on the land. I came back and told him the truth as I thought it.
 
@@ -920,7 +920,7 @@
 
 ## Chapter 18
 
-**1** All the people of Israel came together at Shiloh. They put up the tent of meeting (the tabernacle) there. Israel now controlled the land.
+**1** All the people of Israel came together at Shiloh. They put up the tent of the assembly (the tabernacle) there. Israel now controlled the land.
 
 **2** But there were still 7 tribes of Israel that did not receive their property.
 
@@ -1078,7 +1078,7 @@
 
 **50** They gave him the city that he asked for, as the LORD told them. It was Timnath Serah in the hills of Ephraim. Joshua built the city again and lived there.
 
-**51** Eleazar the priest, Joshua the son of Nun, and the leaders of the tribes of Israel divided these areas by lot. They did this at Shiloh in front of the LORD, at the entrance to the tent of meeting. Thus, they completed the division of the land.
+**51** Eleazar the priest, Joshua the son of Nun, and the leaders of the tribes of Israel divided these areas by lot. They did this at Shiloh in front of the LORD, at the entrance to the tent of the assembly. Thus, they completed the division of the land.
 
 ## Chapter 20
 
@@ -1094,15 +1094,15 @@
 
 **6** The person must stay in that city until he stands in front of the people for judgment. He must stay there until the death of the high priest who serves at that time. Then he can go back to his own city and his own house. He can go back to the city that he ran away from.'"
 
-**7** Thus, the Israelites chose these cities: Kedesh in Galilee in the hills of Naphtali, Shechem in the hills of Ephraim, and Kiriath Arba (which is Hebron) in the hills of Judah.
+**7** Thus, the Israelites chose these cities. They chose Kedesh in Galilee in the hills of Naphtali and Shechem in the hills of Ephraim. They also chose Kiriath Arba (which is Hebron) in the hills of Judah.
 
-**8** On the east side of the Jordan, across from Jericho, they chose these cities: Bezer in the desert on the plain, from the tribe of Reuben, Ramoth in Gilead, from the tribe of Gad, and Golan in Bashan, from the tribe of Manasseh.
+**8** On the east side of the Jordan, across from Jericho, they chose these cities. From the tribe of Reuben, they chose Bezer in the desert on the plain. From the tribe of Gad, they chose Ramoth in Gilead. From the tribe of Manasseh, they chose Golan in Bashan.
 
 **9** These were the cities for all the people of Israel and for the foreigners who lived among them. If a person killed somebody by accident, he could run to one of these cities. Then the relative who wanted revenge could not kill him before he stood in front of the people for judgment.
 
 ## Chapter 21
 
-**1** The leaders of the families of the Levites went to Eleazar the priest, Joshua the son of Nun, and the leaders of the tribes of Israel.
+**1** The leaders of the families of the Levites went to Eleazar the priest and to Joshua the son of Nun. They also went to the leaders of the tribes of Israel.
 
 **2** They spoke to them at Shiloh in the land of Canaan. They said, "The LORD told Moses to give us cities to live in. He also told Moses to give us the fields around these cities for our animals."
 
@@ -1126,7 +1126,7 @@
 
 **12** But they gave the fields farther from the city and its villages to Caleb the son of Jephunneh as his property.
 
-**13** Thus, the Israelites gave these cities with their fields to the descendants of Aaron the priest: Hebron, a city of refuge for a person who killed somebody by accident, Libnah,
+**13** Thus, the Israelites gave these cities with their fields to the descendants of Aaron the priest. They gave Hebron, a city of refuge for a person who killed somebody by accident. They also gave Libnah,
 
 **14** Jattir, Eshtemoa,
 
@@ -1142,7 +1142,7 @@
 
 **20** The other families of Kohath, who were Levites, received cities by lot from the tribe of Ephraim.
 
-**21** The Israelites gave them these cities with their fields: Shechem in the hills of Ephraim, a city of refuge for a person who killed somebody by accident, Gezer,
+**21** The Israelites gave them these cities with their fields. They gave Shechem in the hills of Ephraim, a city of refuge for a person who killed somebody by accident. They also gave Gezer,
 
 **22** Kibzaim, and Beth Horon. There were 4 cities.
 
@@ -1154,7 +1154,7 @@
 
 **26** There was a total of 10 cities with their fields for the other families of Kohath.
 
-**27** The families of Gershon were also Levites. From the other half of the tribe of Manasseh, the Israelites gave them these cities with their fields: Golan in Bashan, a city of refuge for a person who killed somebody by accident, and Be Eshterah. There were 2 cities.
+**27** The families of Gershon were also Levites. The Israelites gave them these cities with their fields from the other half of the tribe of Manasseh. They gave Golan in Bashan, a city of refuge for a person who killed somebody by accident. They also gave Be Eshterah. There were 2 cities.
 
 **28** From the tribe of Issachar they gave these cities with their fields: Kishion, Daberath,
 
@@ -1164,7 +1164,7 @@
 
 **31** Helkath, and Rehob. There were 4 cities.
 
-**32** From the tribe of Naphtali they gave these cities with their fields: Kedesh in Galilee, a city of refuge for a person who killed somebody by accident, Hammoth Dor, and Kartan. There were 3 cities.
+**32** From the tribe of Naphtali they gave these cities with their fields. They gave Kedesh in Galilee, a city of refuge for a person who killed somebody by accident. They also gave Hammoth Dor and Kartan. There were 3 cities.
 
 **33** There was a total of 13 cities with their fields for the families of Gershon.
 
@@ -1176,7 +1176,7 @@
 
 **37** Kedemoth, and Mephaath. There were 4 cities.
 
-**38** From the tribe of Gad they gave these cities with their fields: Ramoth in Gilead, a city of refuge for a person who killed somebody by accident, Mahanaim,
+**38** From the tribe of Gad they gave these cities with their fields. They gave Ramoth in Gilead, a city of refuge for a person who killed somebody by accident. They also gave Mahanaim,
 
 **39** Heshbon, and Jazer. There was a total of 4 cities.
 
@@ -1210,7 +1210,7 @@
 
 **8** He said to them, "Go back to your homes with much wealth. Take very many animals, silver, gold, bronze, iron, and very many clothes. Share with your brothers the possessions that you took from your enemies."
 
-**9** Thus, the tribe of Reuben, the tribe of Gad, and half the tribe of Manasseh left the people of Israel at Shiloh in the land of Canaan. They went back to Gilead, their own land. They received that land as the LORD told Moses.
+**9** Thus, the tribe of Reuben, the tribe of Gad, and half the tribe of Manasseh left the people of Israel. They left Shiloh in the land of Canaan. They went back to Gilead, their own land. They received that land as the LORD told Moses.
 
 **10** They came to the area near the Jordan in the land of Canaan. There they built a very large altar near the Jordan.
 
@@ -1242,7 +1242,7 @@
 
 **24** No! We did this because we were afraid. We thought that in the future your children will say to our children, 'You have no part in the LORD, the God of Israel.
 
-**25** The LORD made the Jordan a border between us and you, you people of Reuben and Gad. You have no part in the LORD.' Then your children will cause our children to stop worshiping the LORD.
+**25** The LORD made the Jordan a border between us and you, you people of Reuben and Gad. You have no part in the LORD.' Then your children will cause our children to stop their worship of the LORD.
 
 **26** Thus, we said, 'We will build an altar. It is not for burnt offerings or for sacrifices.
 
@@ -1252,13 +1252,13 @@
 
 **29** We will never rebel against the LORD. We will not turn away from him today. We will not build an altar for burnt offerings, grain offerings, or sacrifices other than the altar of the LORD our God. His altar is in front of his tabernacle."
 
-**30** Phinehas the priest and the leaders of the clans of Israel heard the words of the tribes of Reuben, Gad, and Manasseh. They were satisfied.
+**30** Phinehas the priest and the leaders of the clans of Israel heard the words of the tribes of Reuben, Gad, and Manasseh. They were happy with these words.
 
 **31** Phinehas, the son of Eleazar the priest, said to the tribes of Reuben, Gad, and Manasseh, "Today we know that the LORD is among us. You did not do this bad thing against the LORD. Thus, you saved the people of Israel from the punishment of the LORD."
 
 **32** Then Phinehas, the son of Eleazar the priest, and the leaders left the tribes of Reuben and Gad in the land of Gilead. They went back to the people of Israel in the land of Canaan. They told them what occurred.
 
-**33** The people of Israel were satisfied with the report, and they praised God. They did not talk again about a war against the tribes of Reuben and Gad. They did not want to destroy the land where these tribes lived.
+**33** The people of Israel were happy with the report, and they praised God. They did not talk again about a war against the tribes of Reuben and Gad. They did not want to destroy the land where these tribes lived.
 
 **34** The tribes of Reuben and Gad gave the altar the name Ed (witness). They said, "This altar is a witness between us that the LORD is God."
 
@@ -1274,7 +1274,7 @@
 
 **5** The LORD your God will push these nations out in front of you. He will remove them. Then you will take their land, as the LORD your God promised you.
 
-**6** Thus, be very strong. Obey all the things that are written in the book of the law of Moses. Do not turn away from the law to the right or to the left.
+**6** Thus, be very strong. Obey all the words in the book of the law of Moses. Do not turn away from the law to the right or to the left.
 
 **7** Do not mix with these nations that remain among you. Do not speak the names of their gods. Do not make promises by the names of their gods. Do not serve these gods or bow down to them.
 
@@ -1300,7 +1300,7 @@
 
 **1** Joshua called all the tribes of Israel together at Shechem. He called the elders, the leaders, the judges, and the officers of Israel. They came and stood in front of God.
 
-**2** Joshua said to all the people, "The LORD, the God of Israel, says this: 'A long time ago, your ancestors lived on the other side of the Euphrates River. Terah, the father of Abraham and Nahor, lived there. They served other gods.
+**2** Joshua said to all the people, "The LORD, the God of Israel, says this. 'A long time ago, your ancestors lived on the other side of the Euphrates River. Terah, the father of Abraham and Nahor, lived there. They served other gods.
 
 **3** But I took your father Abraham from the other side of the river. I led him through all the land of Canaan. I gave him many descendants. I gave him a son, Isaac.
 
@@ -1320,7 +1320,7 @@
 
 **11** Then you went across the Jordan and came to Jericho. The men of Jericho fought against you. The Amorites, the Perizzites, the Canaanites, the Hittites, the Girgashites, the Hivites, and the Jebusites also fought against you. But I gave them to you.
 
-**12** I sent the hornet (a stinging insect) in front of you. The hornet pushed out the 2 kings of the Amorites in front of you. You did not do this with your sword or your bow.
+**12** I sent the hornet (an insect that stings) in front of you. The hornet pushed out the 2 kings of the Amorites in front of you. You did not do this with your sword or your bow.
 
 **13** I gave you a land that you did not work for. I gave you cities that you did not build, and you live in them. You eat fruit from vineyards and olive trees that you did not plant.'
 
@@ -1362,4 +1362,4 @@
 
 **32** The people of Israel brought the bones of Joseph up from Egypt. They buried the bones at Shechem, in the field that Jacob bought. Jacob bought the field from the sons of Hamor, the father of Shechem. He paid 100 pieces of silver for it. This field became the property of the descendants of Joseph.
 
-**33** Eleazar the son of Aaron also died. The people buried him at Gibeah in the hills of Ephraim. This place was given to his son Phinehas.
+**33** Eleazar the son of Aaron also died. The people buried him at Gibeah in the hills of Ephraim. The people gave this place to his son Phinehas.

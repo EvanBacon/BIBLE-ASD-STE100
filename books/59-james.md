@@ -22,7 +22,7 @@
 
 **10** A believer who is rich must be glad, because God makes him low. The rich person will disappear like a wild flower.
 
-**11** The sun comes up with burning heat and dries the grass. The flower falls, and its beauty is destroyed. In the same way, the rich man will disappear while he does his business.
+**11** The sun comes up with hot heat and dries the grass. The flower falls, and its beauty goes away. In the same way, the rich man will disappear while he does his business.
 
 **12** The person who continues firm in trouble is blessed. After he passes the test, he will receive life as his crown. The Lord promised this life to the people who love him.
 
@@ -34,7 +34,7 @@
 
 **16** My dear brothers, do not let anyone deceive you.
 
-**17** Every good and perfect gift comes from heaven. It comes from the Father, who made the lights in the sky. The Father does not change like a moving shadow.
+**17** Every good and perfect gift comes from heaven. It comes from the Father, who made the lights in the sky. The Father does not change. He is not like a shadow that moves.
 
 **18** God decided to give us new life through the message of truth. He did this so that we will be the first and best of all that he made.
 
@@ -46,7 +46,7 @@
 
 **22** Do what the word of God says. Do not only listen to it. If you only listen, you deceive yourselves.
 
-**23** A person who listens to the word but does not do what it says is like a man who looks at his face in a mirror.
+**23** A person listens to the word but does not do what it says. That person is like a man who looks at his face in a mirror.
 
 **24** He looks at himself and goes away. Then he immediately forgets how he looks.
 
@@ -60,7 +60,7 @@
 
 **1** My brothers, you believe in our glorious Lord Jesus Christ. Thus do not treat some people better than other people.
 
-**2** Sometimes a man comes into your meeting with a gold ring and fine clothes. A poor man in dirty clothes also comes in.
+**2** Sometimes a man comes into your assembly with a gold ring and fine clothes. A poor man in dirty clothes also comes in.
 
 **3** You give special attention to the man in fine clothes. You say to him, "Sit here in this good seat." But you say to the poor man, "Stand there," or "Sit on the floor near my feet."
 
@@ -76,7 +76,7 @@
 
 **9** But if you show favor to some people more than others, you sin. The law shows that you are guilty.
 
-**10** A person can obey all the law but fail to obey 1 command. Then he is guilty of breaking all the law.
+**10** A person can obey all the law but fail to obey 1 command. Then he is guilty because he broke all the law.
 
 **11** God said, "Do not commit adultery." He also said, "Do not kill." If you do not commit adultery but you kill, you break the law.
 
@@ -132,7 +132,7 @@
 
 **10** Praise and curses come from the same mouth. My brothers, this must not happen.
 
-**11** A spring of water cannot give fresh water and bitter water from the same opening.
+**11** A spring of water cannot give fresh water and bitter water from the same hole.
 
 **12** My brothers, a fig tree cannot grow olives. A grapevine cannot grow figs. In the same way, a salt spring cannot give fresh water.
 
@@ -144,7 +144,7 @@
 
 **16** Where there is jealousy and selfish ambition, there is disorder and every type of evil.
 
-**17** But the wisdom from heaven is first pure. It also likes peace. It is gentle and willing to listen. It is full of mercy and good actions. It does not show favor, and it is honest.
+**17** But the wisdom from heaven is first pure. It also likes peace. It is gentle and ready to listen. It is full of mercy and good actions. It does not show favor, and it is honest.
 
 **18** People who make peace plant seeds in peace. They will get a harvest of righteousness.
 
@@ -180,7 +180,7 @@
 
 **15** You must say, "If the Lord wants, we will live and do this or that."
 
-**16** But now you boast about your plans. All such boasting is evil.
+**16** But now you boast about your plans. All such boasts are evil.
 
 **17** If a person knows the good thing that he must do, but he does not do it, he sins.
 
@@ -194,7 +194,7 @@
 
 **4** You did not pay the workers who harvested your fields. Their pay cries out against you. The Lord of armies heard the cries of the harvesters.
 
-**5** You lived on earth in luxury and pleasure. You made yourselves fat like animals that are ready to be killed.
+**5** You lived on earth in luxury and pleasure. You made yourselves fat like animals on the day when people kill them.
 
 **6** You judged innocent people guilty and killed them. They did not fight against you.
 

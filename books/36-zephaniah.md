@@ -84,7 +84,7 @@
 
 **6** "I destroyed nations. I destroyed their towers. I made their streets empty, and no person goes on them. I destroyed their cities. No person lives there now.
 
-**7** I said to Jerusalem, 'Surely you will respect me now. You will accept correction.' Then I would not destroy her houses or punish her. But the people were eager to do more evil actions."
+**7** I said to Jerusalem, 'Surely you will respect me now. You will accept correction.' Then I will not destroy her houses or punish her. But the people were eager to do more evil actions."
 
 **8** The LORD says, "Thus wait for me. Wait until the day that I stand up to accuse the nations. I decided to gather the nations and the kingdoms. I will show them all my strong anger. The fire of my jealous anger will destroy all the earth.
 

@@ -100,7 +100,7 @@
 
 **1** The man says, "My love, you are beautiful. You are very beautiful. Behind your veil, your eyes are gentle like doves. Your hair is like a group of black goats that come down from Mount Gilead.
 
-**2** Your teeth are white like a group of sheep with new-cut wool. The sheep come up from the washing. Each tooth has its pair, and none is missing.
+**2** Your teeth are white like a group of sheep with new-cut wool. The sheep come up from the place where people wash them. Each tooth has its pair, and none is absent.
 
 **3** Your lips are like a red thread. Your mouth is beautiful. Behind your veil, your cheeks are red like a piece of a pomegranate.
 
@@ -120,7 +120,7 @@
 
 **11** My bride, your lips are sweet like honey. Honey and milk are under your tongue. The smell of your clothes is like the smell of Lebanon.
 
-**12** My sister, my bride, you are like a garden that is locked. You are like a spring that is closed. You are like a fountain that is sealed.
+**12** My sister, my bride, you are like a garden that has a lock. You are like a spring that someone closed. You are like a fountain that has a seal.
 
 **13** You are like a garden of pomegranate trees with the best fruit. You have henna and nard plants.
 
@@ -138,7 +138,7 @@
 
 **3** I said, 'I took off my clothes. Must I put them on again? I washed my feet. Must I make them dirty again?'
 
-**4** My love put his hand through the opening in the door. My heart beat fast for him.
+**4** My love put his hand through the hole in the door. My heart beat fast for him.
 
 **5** I got up to open the door to my love. My hands were wet with myrrh. My fingers were wet with myrrh on the handles of the lock.
 
@@ -154,7 +154,7 @@
 
 **11** His head is like the best gold. His hair is wavy and black like a raven.
 
-**12** His eyes are like doves beside streams of water. They are white like milk, and they are set like jewels.
+**12** His eyes are like doves beside streams of water. They are white like milk, and they sit in their places like jewels.
 
 **13** His cheeks are like beds of spices with a sweet smell. His lips are like lilies that drip with myrrh.
 
@@ -176,7 +176,7 @@
 
 **5** Turn your eyes away from me. They make me helpless. Your hair is like a group of black goats that come down from Gilead.
 
-**6** Your teeth are white like a group of sheep that come up from the washing. Each tooth has its pair, and none is missing.
+**6** Your teeth are white like a group of sheep that come up from the place where people wash them. Each tooth has its pair, and none is absent.
 
 **7** Behind your veil, your cheeks are red like a piece of a pomegranate.
 
@@ -236,7 +236,7 @@
 
 **7** Much water cannot stop love. Rivers cannot drown love. A man can give all his riches for love. But people will laugh at him."
 
-**8** The brothers say, "We have a young sister. Her breasts are not grown. What will we do for our sister on the day when a man asks to marry her?
+**8** The brothers say, "We have a young sister. Her breasts are still small. What will we do for our sister on the day when a man asks to marry her?
 
 **9** If she is like a wall, we will build silver towers on her. If she is like a door, we will protect her with boards of cedar."
 

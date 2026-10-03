@@ -20,7 +20,7 @@
 
 **9** I wrote a letter to the church. But Diotrephes wants to be the most important person among them. He does not accept us.
 
-**10** Thus, if I come, I will speak about the things that he does. He speaks bad and false words against us. He is not satisfied with that. He does not welcome the brothers. He also stops the people who want to welcome them. He puts those people out of the church.
+**10** Thus, if I come, I will speak about the things that he does. He speaks bad and false words against us. That is not enough for him. He does not welcome the brothers. He also stops the people who want to welcome them. He puts those people out of the church.
 
 **11** Dear friend, do not copy what is bad. Copy what is good. The person who does good is from God. The person who does bad did not see God.
 

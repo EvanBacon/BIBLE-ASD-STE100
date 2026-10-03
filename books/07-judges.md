@@ -104,7 +104,7 @@
 
 **14** The LORD became very angry with Israel. He gave them into the control of robbers, who robbed them. He sold them to their enemies around them. The Israelites could not stand against their enemies after that.
 
-**15** Each time the Israelites went out to fight, the LORD was against them and caused them to lose. The LORD said and promised that this would occur. The people had very much trouble.
+**15** Each time the Israelites went out to fight, the LORD was against them and caused them to lose. The LORD said this before, and he made a promise about it. The people had very much trouble.
 
 **16** Then the LORD gave them judges. The judges saved them from the control of the robbers.
 
@@ -130,7 +130,7 @@
 
 **3** These are the nations: the 5 rulers of the Philistines, all the Canaanites, the Sidonians, and the Hivites. The Hivites lived in the Lebanon mountains, from Mount Baal-hermon to the entrance of Hamath.
 
-**4** The LORD used these nations to test Israel. He wanted to know if the Israelites would obey his commands. He gave these commands to their fathers through Moses.
+**4** The LORD used these nations to test Israel. He wanted to know this: will the Israelites obey his commands? He gave these commands to their fathers through Moses.
 
 **5** The people of Israel lived among the Canaanites, the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites.
 
@@ -170,7 +170,7 @@
 
 **23** Then Ehud went out through the porch. He closed the doors of the upper room behind him and locked them.
 
-**24** After Ehud left, the servants of the king came. They saw that the doors of the upper room were locked. They said, "The king must be in the toilet in his cool room."
+**24** After Ehud left, the servants of the king came. They saw that someone locked the doors of the upper room. They said, "The king must be in the toilet in his cool room."
 
 **25** The servants waited a long time and became worried. The king did not open the doors of the room. So they took a key and opened the doors. They saw their master dead on the floor.
 
@@ -226,7 +226,7 @@
 
 **19** Sisera said to her, "Please give me some water. I am thirsty." She opened a skin bag of milk and gave him a drink. Then she put the blanket over him again.
 
-**20** He said to her, "Stand at the door of the tent. A man may come and ask you, 'Is a man here?' If this occurs, then say, 'No.'"
+**20** He said to her, "Stand at the door of the tent. If a man comes and asks you, 'Is a man here?' then say, 'No.'"
 
 **21** But Sisera was very tired and fell into a deep sleep. Then Jael took a tent peg and a hammer. She went quietly to him. She hit the peg through the side of his head and into the ground. So he died.
 
@@ -304,7 +304,7 @@
 
 **1** The people of Israel did evil in the sight of the LORD. So the LORD gave them into the control of Midian for 7 years.
 
-**2** The Midianites were stronger than Israel. Because of the Midianites, the people of Israel made hiding places in the mountains. They used caves and strong places.
+**2** The Midianites were stronger than Israel. Because of the Midianites, the people of Israel made places to hide in the mountains. They used caves and strong places.
 
 **3** Each time the Israelites planted their seeds, the Midianites attacked them. The Amalekites and the people of the east also attacked them.
 
@@ -334,7 +334,7 @@
 
 **16** The LORD said to him, "I will be with you. You will defeat the Midianites as easily as you defeat 1 man."
 
-**17** Gideon said, "If you are pleased with me, show me a sign. Show me that it is really you who speaks with me.
+**17** Gideon said, "If you are happy with me, show me a sign. Show me that it is really you who speaks with me.
 
 **18** Please do not go away from here until I come back to you. I will bring my offering and put it in front of you." The LORD said, "I will wait until you come back."
 
@@ -356,7 +356,7 @@
 
 **27** So Gideon took 10 of his servants and did as the LORD told him. But Gideon was afraid of his family and of the men of the city. Thus he did not do it during the day. He did it at night.
 
-**28** The men of the city got up early in the morning. They saw that the altar of Baal was broken down. The Asherah pole near it was cut down. Someone offered the second bull on the new altar.
+**28** The men of the city got up early in the morning. They saw that someone broke down the altar of Baal. Someone cut down the Asherah pole near it. Someone offered the second bull on the new altar.
 
 **29** The men asked each other, "Who did this?" They looked for the answer. Then they said, "Gideon, the son of Joash, did this."
 
@@ -388,7 +388,7 @@
 
 **2** The LORD said to Gideon, "You have too many men for me to give the Midianites into their control. Israel could say proudly against me, 'We saved ourselves with our own strength.'
 
-**3** Thus tell the men, 'All the men who are afraid can leave Mount Gilead and go home.'" So 22,000 men went home, and 10,000 men stayed.
+**3** Thus tell the men, 'All the men who are afraid can leave Mount Gilead and go home.'" So 22,000 men went home. 10,000 men stayed.
 
 **4** The LORD said to Gideon, "There are still too many men. Take them down to the water, and I will test them for you there. If I say, 'This man will go with you,' he will go. If I say, 'This man will not go with you,' he will not go."
 
@@ -472,7 +472,7 @@
 
 **18** Then Gideon said to Zebah and Zalmunna, "What were the men that you killed at Tabor like?" They answered, "They were like you. Each of them looked like the son of a king."
 
-**19** Gideon said, "They were my brothers, the sons of my mother. As surely as the LORD lives, if you did not kill them, I would not kill you."
+**19** Gideon said, "They were my brothers, the sons of my mother. As surely as the LORD lives, you killed them. So now I will kill you."
 
 **20** Then he said to Jether, his oldest son, "Get up and kill them." But the young man did not pull out his sword. He was afraid, because he was still young.
 
@@ -482,9 +482,9 @@
 
 **23** But Gideon said to them, "I will not rule over you. My son will not rule over you. The LORD will rule over you."
 
-**24** Then Gideon said, "I have 1 request. Each of you, give me an earring from your plunder." The enemies wore gold earrings, because they were Ishmaelites.
+**24** Then Gideon said, "I have 1 request. Each of you, give me an ear ring from your plunder." The enemies wore gold rings in their ears, because they were Ishmaelites.
 
-**25** The men answered, "We will gladly give them." So they put a cloth on the ground. Each man put an earring from his plunder on it.
+**25** The men answered, "We will gladly give them." So they put a cloth on the ground. Each man put an ear ring from his plunder on it.
 
 **26** The gold earrings that Gideon asked for weighed 1,700 shekels (approximately 19 kilograms). The men also gave him the decorations, the necklaces, and the purple clothes of the kings of Midian. They also gave him the chains from the necks of the camels.
 
@@ -564,7 +564,7 @@
 
 **28** Gaal, the son of Ebed, said, "Who is Abimelech? Who are we in Shechem, that we must serve him? He is the son of Jerubbaal, and Zebul is his officer. Serve the men of Hamor, the father of Shechem! Why must we serve Abimelech?
 
-**29** I wish that these people were under my control! Then I would remove Abimelech." He said to Abimelech, "Make your army bigger and come out to fight!"
+**29** I wish that these people were under my control! Then I will remove Abimelech." He said to Abimelech, "Make your army bigger and come out to fight!"
 
 **30** Zebul, the ruler of the city, heard the words of Gaal, the son of Ebed. Zebul became very angry.
 
@@ -576,7 +576,7 @@
 
 **34** So Abimelech and all his men got up at night. They hid near Shechem in 4 groups.
 
-**35** Gaal, the son of Ebed, went out and stood at the entrance of the city gate. Then Abimelech and his men came out from their hiding places.
+**35** Gaal, the son of Ebed, went out and stood at the entrance of the city gate. Then Abimelech and his men came out from the places where they hid.
 
 **36** Gaal saw the men and said to Zebul, "Look, men come down from the tops of the hills." Zebul said to him, "You see the shadows of the hills. They look like men to you."
 
@@ -638,7 +638,7 @@
 
 **7** So the LORD became very angry with Israel. He sold them to the Philistines and the Ammonites.
 
-**8** In that year these nations hurt and were cruel to the people of Israel. For 18 years they were cruel to all the Israelites on the east side of the Jordan River, in the land of the Amorites in Gilead.
+**8** In that year these nations hurt the people of Israel and were cruel to them. For 18 years they were cruel to all the Israelites on the east side of the Jordan River. These Israelites lived in the land of the Amorites in Gilead.
 
 **9** The Ammonites also crossed the Jordan River to fight against Judah, Benjamin, and the tribe of Ephraim. Israel had very much trouble.
 
@@ -736,7 +736,7 @@
 
 **37** She also said to her father, "But let me do 1 thing. Give me 2 months. Let me go to the mountains with my friends. There I will cry because I will never marry."
 
-**38** He said, "Go." He sent her away for 2 months. She went with her friends to the mountains. She cried because she would never marry.
+**38** He said, "Go." He sent her away for 2 months. She went with her friends to the mountains. She cried there because she was still a virgin and did not marry.
 
 **39** After 2 months she came back to her father. He did to her what he promised. She never had sexual relations with a man. From this, a custom started in Israel:
 
@@ -790,7 +790,7 @@
 
 **7** But he said to me, 'You will become pregnant and give birth to a son. Do not drink wine or strong drink. Do not eat any food that is unclean. The boy will be a Nazirite for God from his birth to the day of his death.'"
 
-**8** Then Manoah prayed to the LORD. He said, "Please, Lord, let the man of God that you sent come to us again. Let him teach us what to do for the boy who will be born."
+**8** Then Manoah prayed to the LORD. He said, "Please, Lord, let the man of God that you sent come to us again. Let him teach us what to do for the boy that my wife will give birth to."
 
 **9** God heard Manoah. The angel of God came again to the woman while she sat in the field. But Manoah, her husband, was not with her.
 
@@ -820,7 +820,7 @@
 
 **22** Manoah said to his wife, "We will surely die, because we saw God."
 
-**23** But his wife said to him, "If the LORD wanted to kill us, he would not accept our burnt offering and grain offering. He would not show us all these things. He would not tell us these things now."
+**23** But his wife said to him, "The LORD does not want to kill us. He accepted our burnt offering and grain offering. He showed us all these things. He told us these things now."
 
 **24** The woman gave birth to a son and called him Samson. The boy grew, and the LORD blessed him.
 
@@ -832,7 +832,7 @@
 
 **2** He came back home and told his father and mother. He said, "I saw a young Philistine woman at Timnath. Get her for me as my wife."
 
-**3** His father and mother said to him, "Is there no woman among your relatives or among all our people? Why must you take a wife from the Philistines, who are not circumcised?" But Samson said to his father, "Get her for me. She pleases me."
+**3** His father and mother said to him, "Is there no woman among your relatives or among all our people? Why must you take a wife from the Philistines, who do not have circumcision?" But Samson said to his father, "Get her for me. She pleases me."
 
 **4** His father and mother did not know that this was from the LORD. The LORD looked for an opportunity to attack the Philistines. At that time the Philistines ruled over Israel.
 
@@ -862,7 +862,7 @@
 
 **17** She cried in front of him for the rest of the 7 days of the celebration. On the seventh day he told her the answer, because she continued to ask him. Then she told the answer to her people.
 
-**18** On the seventh day, before sunset, the men of the city said to Samson, "What is sweeter than honey? What is stronger than a lion?" Samson said to them, "If you did not use my young cow to plow, you would not find the answer to my riddle."
+**18** On the seventh day, before sunset, the men of the city said to Samson, "What is sweeter than honey? What is stronger than a lion?" Samson said to them, "You used my young cow to plow. That is how you found the answer to my riddle."
 
 **19** Then the Spirit of the LORD came strongly on Samson. He went down to Ashkelon and killed 30 men there. He took their clothes and gave them to the men who told the answer to the riddle. He was very angry, and he went back to the house of his father.
 
@@ -902,9 +902,9 @@
 
 **16** Then Samson said, "With the jawbone of a donkey, I made heaps of dead men. With the jawbone of a donkey, I killed 1,000 men."
 
-**17** When he stopped speaking, he threw away the jawbone. He called that place Ramath-lehi.
+**17** When he finished his words, he threw away the jawbone. He called that place Ramath-lehi.
 
-**18** Then Samson was very thirsty. He called to the LORD and said, "You gave your servant this great victory. Must I now die of thirst? Must I fall into the control of these men, who are not circumcised?"
+**18** Then Samson was very thirsty. He called to the LORD and said, "You gave your servant this great victory. Must I now die of thirst? Must I fall into the control of these men, who do not have circumcision?"
 
 **19** So God opened a hollow place at Lehi, and water came out of it. Samson drank, and his strength came back. Thus he called the spring En-hakkore. It is still in Lehi to this day.
 
@@ -1126,13 +1126,13 @@
 
 **29** When he came to his house, he took a knife. He cut the body of his concubine into 12 pieces. He sent the pieces to all the areas of Israel.
 
-**30** All the people who saw this said, "No one ever saw such a thing, from the day that the Israelites came up out of Egypt until today. Think about it! Decide what to do and speak!"
+**30** All the people who saw this spoke. They said, "No one ever saw such a thing since the day that the Israelites came out of Egypt. Think about it! Decide what to do and speak!"
 
 ## Chapter 20
 
 **1** Then all the people of Israel from Dan to Beer-sheba and from the land of Gilead came out. The people came together as 1 man in front of the LORD at Mizpeh.
 
-**2** The leaders of all the people of all the tribes of Israel came to the meeting of the people of God. There were 400,000 soldiers with swords.
+**2** The leaders of all the people of all the tribes of Israel came to the assembly of the people of God. There were 400,000 soldiers with swords.
 
 **3** The people of Benjamin heard that the Israelites went up to Mizpeh. The people of Israel said, "Tell us how this evil thing occurred."
 
@@ -1150,7 +1150,7 @@
 
 **10** We will take 10 men from each 100 men in all the tribes of Israel. We will take 100 from each 1,000, and 1,000 from each 10,000. These men will get food for the army. Then the army will go to Gibeah in Benjamin. The army will punish Gibeah for the shameful thing that its men did in Israel."
 
-**11** So all the men of Israel came together against the city. They were united as 1 man.
+**11** So all the men of Israel came together against the city. They acted as 1 man.
 
 **12** The tribes of Israel sent men through all the tribe of Benjamin. These men said, "What is this evil thing that occurred among you?
 
@@ -1186,7 +1186,7 @@
 
 **28** Phinehas, the son of Eleazar, the son of Aaron, served in front of the ark at that time. The people asked, "Must we go again to fight against our brothers, the people of Benjamin? Or must we stop?" The LORD said, "Attack, because tomorrow I will give them into your control."
 
-**29** So Israel put men in hiding places around Gibeah.
+**29** So Israel put men around Gibeah. These men hid and waited to attack.
 
 **30** On the third day the people of Israel went against the people of Benjamin. They got into position against Gibeah, as before.
 
@@ -1194,17 +1194,17 @@
 
 **32** The people of Benjamin said, "We defeat them, as before." But the people of Israel said, "We will run away. Then we will pull them away from the city to the roads."
 
-**33** All the men of Israel left their places and got into position at Baal-tamar. The Israelites in the hiding places came out of their places to the west of Gibeah.
+**33** All the men of Israel left their places and got into position at Baal-tamar. The Israelites who hid near Gibeah came out of their places to the west of Gibeah.
 
 **34** 10,000 chosen men from all Israel attacked Gibeah. The fight was very hard. But the people of Benjamin did not know that disaster was near them.
 
 **35** The LORD defeated Benjamin in front of Israel. On that day the Israelites killed 25,100 men of Benjamin. All these men were soldiers with swords.
 
-**36** Then the people of Benjamin saw that they were defeated. Before this, the men of Israel moved back from the people of Benjamin. They did this because they trusted the men in the hiding places near Gibeah.
+**36** Then the people of Benjamin saw that they lost the battle. Before this, the men of Israel moved back from the people of Benjamin. They did this because they trusted the men who hid near Gibeah.
 
-**37** The men in the hiding places quickly attacked Gibeah. They spread out and killed all the people of the city with the sword.
+**37** The men who hid quickly attacked Gibeah. They spread out and killed all the people of the city with the sword.
 
-**38** The men of Israel and the men in the hiding places agreed on a signal. The men in the hiding places would make a large cloud of smoke rise from the city.
+**38** The men of Israel and the men who hid agreed on a signal. The signal was this: the men who hid will make a large cloud of smoke rise from the city.
 
 **39** Then the men of Israel turned back in the battle. The people of Benjamin started to kill the Israelites. They killed approximately 30 men. They said, "Surely we defeat them, as in the first battle."
 
@@ -1232,17 +1232,17 @@
 
 **2** The people went to Beth-el and sat there in front of God until evening. They cried loudly.
 
-**3** They said, "O LORD, the God of Israel, why did this occur in Israel? Why is 1 tribe missing from Israel today?"
+**3** They said, "O LORD, the God of Israel, why did this occur in Israel? Why does Israel lose 1 tribe today?"
 
 **4** Early the next day the people built an altar there. They offered burnt offerings and peace offerings.
 
-**5** Then the people of Israel said, "Which group from the tribes of Israel did not come to the meeting in front of the LORD?" They asked this because they made a strong promise. They promised to kill any person who did not come to the LORD at Mizpeh.
+**5** Then the people of Israel said, "Which group from the tribes of Israel did not come to the assembly in front of the LORD?" They asked this because they made a strong promise. They promised to kill any person who did not come to the LORD at Mizpeh.
 
-**6** The people of Israel felt sorry for their brothers, the people of Benjamin. They said, "Today 1 tribe is cut off from Israel.
+**6** The people of Israel felt sorry for their brothers, the people of Benjamin. They said, "Today Israel loses 1 tribe.
 
 **7** How can we get wives for the men of Benjamin who are still alive? We promised in the name of the LORD not to give them our daughters as wives."
 
-**8** Then they said, "Which tribe of Israel did not come to the LORD at Mizpeh?" They found that no one from Jabesh-gilead came to the camp for the meeting.
+**8** Then they said, "Which tribe of Israel did not come to the LORD at Mizpeh?" They found that no one from Jabesh-gilead came to the camp for the assembly.
 
 **9** When they counted the people, they saw that no one from Jabesh-gilead was there.
 
@@ -1260,9 +1260,9 @@
 
 **16** The elders of the people said, "The women of Benjamin are dead. How can we get wives for the men of Benjamin who are still alive?"
 
-**17** They said, "The men of Benjamin who are still alive must have descendants. Then no tribe of Israel will be destroyed.
+**17** They said, "The men of Benjamin who are still alive must have descendants. Then no tribe of Israel will disappear.
 
-**18** But we cannot give them our daughters as wives. The people of Israel made this promise: 'Any man who gives a wife to Benjamin will be cursed.'"
+**18** But we cannot give them our daughters as wives. The people of Israel made this promise: 'A curse is on any man who gives a wife to Benjamin.'"
 
 **19** Then they said, "Each year there is a festival of the LORD at Shiloh. Shiloh is to the north of Beth-el and to the south of Lebonah. It is to the east of the road that goes from Beth-el to Shechem."
 
@@ -1270,7 +1270,7 @@
 
 **21** Watch. The young women of Shiloh will come out to dance. When they come, run out of the vineyards. Each of you, catch a wife from the young women of Shiloh. Then go back to the land of Benjamin.
 
-**22** The fathers or brothers of the young women may come to us to complain. Then we will say to them, 'Please be kind to the men of Benjamin for us. We did not get wives for each of them in the war. You did not give your daughters to them. Thus you did not break your promise.'"
+**22** Possibly the fathers or brothers of the young women will come to us to complain. Then we will say to them, 'Please be kind to the men of Benjamin for us. We did not get wives for each of them in the war. You did not give your daughters to them. Thus you did not break your promise.'"
 
 **23** The men of Benjamin did this. Each man caught 1 of the young women who danced and took her as his wife. They went back to their own land. They built their cities again and lived in them.
 

@@ -2,7 +2,7 @@
 
 ## Chapter 1
 
-**1** In the first year of Cyrus king of Persia, the LORD caused the words of Jeremiah to come true. The LORD moved the spirit of Cyrus king of Persia. Thus Cyrus sent a message through all his kingdom. He also put the message in writing. The message said:
+**1** In the first year of Cyrus king of Persia, the LORD caused the words of Jeremiah to come true. The LORD moved the spirit of Cyrus king of Persia. Thus Cyrus sent a message through all his kingdom. He also wrote the message down. The message said:
 
 **2** "Cyrus king of Persia says this: The LORD, the God of heaven, gave me all the kingdoms of the earth. He told me to build a house for him at Jerusalem in Judah.
 
@@ -182,7 +182,7 @@
 
 **7** They gave money to the stone workers and to the carpenters. They gave food, drink and oil to the people of Sidon and Tyre. Then these people brought cedar trees from Lebanon by sea to Joppa. King Cyrus of Persia gave permission for this.
 
-**8** In the second month of the second year after they came to the house of God at Jerusalem, Zerubbabel the son of Shealtiel started the work. Jeshua the son of Jozadak, the other priests and the Levites helped. All the people who came back from captivity to Jerusalem also helped. They put the Levites who were 20 years old or more in control of the work on the house of the LORD.
+**8** They came to the house of God at Jerusalem. In the 2nd month of the 2nd year after that, Zerubbabel the son of Shealtiel started the work. Jeshua the son of Jozadak, the other priests and the Levites helped. All the people who came back from captivity to Jerusalem also helped. They put the Levites who were 20 years old or more in control of the work on the house of the LORD.
 
 **9** Jeshua, his sons and his brothers worked together with Kadmiel and his sons, the descendants of Judah. They controlled the workers on the house of God. The sons of Henadad and their sons and brothers, the Levites, also helped.
 
@@ -192,7 +192,7 @@
 
 **12** Many of the older priests, Levites and family leaders saw the first house. When they saw the foundation of this new house, they cried loudly. But many other people shouted with joy.
 
-**13** The people could not hear the difference between the shouts of joy and the sounds of crying. The people shouted very loudly. People far away heard the noise.
+**13** The people could not hear the difference between the shouts of joy and the sounds of the people who cried. The people shouted very loudly. People far away heard the noise.
 
 ## Chapter 4
 
@@ -226,7 +226,7 @@
 
 **15** Look in the books of records of your fathers. In the records you will find that this city fights against kings and provinces. It causes much trouble. Long ago, the people of the city caused revolts. Because of this, a king destroyed the city.
 
-**16** We tell the king this: If the people build this city again and finish its walls, you will lose your control of the land west of the river."
+**16** We tell the king this. Possibly the people will build this city again and finish its walls. If they do, you will lose your control of the land west of the river."
 
 **17** Then the king sent an answer to Rehum the commander, Shimshai the scribe and their companions in Samaria and west of the river. He wrote, "Peace to you.
 
@@ -362,7 +362,7 @@
 
 **17** With this money, quickly buy bulls, rams and lambs. Also buy their grain offerings and drink offerings. Offer them on the altar of the house of your God in Jerusalem.
 
-**18** You and your brothers can use the remaining silver and gold as you think best. Do what your God wants.
+**18** You and your brothers can use the rest of the silver and gold as you think best. Do what your God wants.
 
 **19** The officials will give you containers for the service in the house of your God. Give all these containers to the God of Jerusalem.
 
@@ -424,11 +424,11 @@
 
 **19** They also brought Hashabiah and Jeshaiah from the descendants of Merari. They brought the brothers of Jeshaiah and their sons, 20 men in total.
 
-**20** They also brought 220 Nethinims. David and the officials gave the Nethinims the work of helping the Levites. We wrote down the name of each of these men.
+**20** They also brought 220 Nethinims. David and the officials gave the Nethinims the work to help the Levites. We wrote down the name of each of these men.
 
 **21** There, at the river of Ahava, I told the people to fast. We made ourselves humble in front of our God. We asked him for a safe journey for us, our children and all our property.
 
-**22** I was ashamed to ask the king for soldiers and horsemen to protect us from enemies on the road. We told the king, "The hand of our God is on all who look for him. He helps them. But his power and his anger are against all who leave him."
+**22** I felt shame to ask the king for soldiers and horsemen to protect us from enemies on the road. We told the king, "The hand of our God is on all who look for him. He helps them. But his power and his anger are against all who leave him."
 
 **23** Thus we fasted and asked our God to protect us. He answered our prayer.
 
@@ -460,7 +460,7 @@
 
 ## Chapter 9
 
-**1** After these things, the leaders came to me. They said, "The people of Israel, the priests and the Levites did not separate themselves from the people of the lands. They do the disgusting things that those people do. These people are the Canaanites, Hittites, Perizzites, Jebusites, Ammonites, Moabites, Egyptians and Amorites.
+**1** After these things, the leaders came to me. They said, "The people of Israel, the priests and the Levites did not separate themselves from the people of the lands. They do the detestable things that those people do. These people are the Canaanites, Hittites, Perizzites, Jebusites, Ammonites, Moabites, Egyptians and Amorites.
 
 **2** The Israelites married some of the daughters of these people. They let their sons marry these women too. Thus the holy people mixed with the people of those lands. The leaders and officials were the first to do this wrong."
 
@@ -468,9 +468,9 @@
 
 **4** Then all the people who feared the words of the God of Israel came to me. They were afraid because of the sin of the former captives. I sat there shocked until the evening sacrifice.
 
-**5** At the time of the evening sacrifice, I stood up from my sadness. My clothes and coat were torn. I went down on my knees. I held out my hands to the LORD my God.
+**5** At the time of the evening sacrifice, I stood up from my sadness. I tore my clothes and my coat. Then I went down on my knees. I held out my hands to the LORD my God.
 
-**6** I said, "My God, I am ashamed. I cannot lift up my face to you, my God. Our sins are higher than our heads. Our guilt goes up to the heavens.
+**6** I said, "My God, I feel shame. I cannot lift up my face to you, my God. Our sins are higher than our heads. Our guilt goes up to the heavens.
 
 **7** Since the time of our fathers, our guilt is very great. Because of our sins, you gave us, our kings and our priests to the kings of other lands. They killed us with swords. They took us as captives. They took our property. They made us ashamed, as we are today.
 
@@ -480,13 +480,13 @@
 
 **10** Now, our God, what can we say after this? We did not obey your commands.
 
-**11** You gave these commands through your servants the prophets. They said, 'The land that you will take is unclean. The people of the lands made it unclean with their disgusting practices. They filled the land with their dirt from one end to the other.
+**11** You gave these commands through your servants the prophets. They said, 'The land that you will take is unclean. The people of the lands made it unclean with their detestable practices. They filled the land with their dirt from one end to the other.
 
 **12** Thus do not let your daughters marry their sons. Do not let your sons marry their daughters. Never try to make peace with them or help them become rich. Then you will be strong and eat the good things of the land. You will give the land to your children for all time.'
 
 **13** All these bad things came to us because of our evil actions and our great guilt. But you, our God, punished us less than our sins deserve. You let some of us escape.
 
-**14** Thus we must not again disobey your commands. We must not marry the people who do these disgusting things. If we do, you will be angry with us. You will destroy us until no person stays alive or escapes.
+**14** Thus we must not again disobey your commands. We must not marry the people who do these detestable things. If we do, you will be angry with us. You will destroy us until no person stays alive or escapes.
 
 **15** LORD God of Israel, you are righteous. You let a small group of us escape, as we are today. Look, we stand in front of you with our guilt. Because of this, no person can stand in front of you."
 

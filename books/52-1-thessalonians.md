@@ -18,7 +18,7 @@
 
 **8** The word of the Lord went out from you. It went out into Macedonia and Achaia. Also, the news of your faith in God went out to all places. Thus we do not need to say anything.
 
-**9** The people in those places tell how you received us. They tell how you turned to God from idols. Now you serve the living and true God.
+**9** The people in those places tell how you received us. They tell how you turned to God from idols. Now you serve the true God who lives.
 
 **10** They tell how you wait for the Son of God to come from heaven. God made him alive again after his death. He is Jesus, who saves us from the anger of God that will come.
 
@@ -54,7 +54,7 @@
 
 **15** Those Jews killed the Lord Jesus and their own prophets. They also made us go away. They do not please God. They are enemies of all men.
 
-**16** They try to stop us when we speak to the Gentiles, so that the Gentiles cannot be saved. Thus they always make their sins bigger. But at last the anger of God came on them.
+**16** They try to stop us when we speak to the Gentiles, so that God cannot save the Gentiles. Thus they always make their sins bigger. But at last the anger of God came on them.
 
 **17** Brothers, we were away from you for a short time. Our bodies were away, but our hearts were with you. We wanted very much to see you again. Thus we tried very hard to come to you.
 
@@ -72,7 +72,7 @@
 
 **3** We did not want these troubles to make any of you weak. You know that God chose us for these troubles.
 
-**4** When we were with you, we told you before that we would suffer troubles. And the troubles came, as you know.
+**4** When we were with you, we told you before that we will suffer troubles. And the troubles came, as you know.
 
 **5** For this reason, I could not wait longer. I sent Timothy to learn about your faith. I was afraid that the tempter tempted you. I was afraid that our work among you was without a result.
 
@@ -104,7 +104,7 @@
 
 **5** Do not control your body with strong sexual desire, as the Gentiles do. The Gentiles do not know God.
 
-**6** In this matter, no man must do wrong to his brother or cheat him. The Lord will punish all people who do these things. We told you this before, and we gave you a strong warning.
+**6** In this matter, no man must do wrong to his brother or cheat him. The Lord will punish all people who do these things. We told you this before, and we strongly warned you.
 
 **7** God did not call us to be unclean. He called us to be holy.
 

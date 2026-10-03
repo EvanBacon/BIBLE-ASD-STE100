@@ -66,7 +66,7 @@
 
 **3** "Do not speak with much pride. Do not let proud words come from your mouth. The LORD is a God who knows all things. He measures the actions of all people."
 
-**4** "The bows of the strong soldiers are broken. But the weak people become strong."
+**4** "The LORD breaks the bows of the strong soldiers. But the weak people become strong."
 
 **5** "The people who had much food now work for bread. But the hungry people are not hungry now. The woman who had no children now has 7 children. But the woman with many children becomes weak."
 
@@ -110,15 +110,15 @@
 
 **25** "If a man sins against another man, God can judge between them. But if a man sins against the LORD, who will speak for him?" But the sons did not obey their father, because the LORD wanted to kill them.
 
-**26** The boy Samuel continued to grow. The LORD was pleased with him, and people were pleased with him.
+**26** The boy Samuel continued to grow. The LORD was happy with him, and people were happy with him.
 
-**27** A man of God came to Eli and said to him, "The LORD says this: 'I showed myself to the family of your father when they were in Egypt. They were slaves to Pharaoh.'"
+**27** A man of God came to Eli and spoke to him. He said, "The LORD says this. 'I showed myself to the family of your father when they were in Egypt. They were slaves to Pharaoh.'"
 
 **28** "'I chose your ancestor from all the tribes of Israel to be my priest. I chose him to offer sacrifices on my altar, to burn incense, and to wear an ephod before me. I gave your family all the offerings that the Israelites burn with fire.'"
 
 **29** "'Why do you show no respect for my sacrifices and my offerings? I commanded these for my house. Why do you honor your sons more than me? You make yourselves fat with the best parts of all the offerings of my people Israel.'"
 
-**30** "Thus the LORD, the God of Israel, says this: 'I promised that your family would serve me for all time. But now I will not let this occur. I will honor the people who honor me. But I will not respect the people who hate me.'"
+**30** "Thus the LORD, the God of Israel, says this: 'I said that your family will serve me for all time. But now I will not let this occur. I will honor the people who honor me. But I will not respect the people who hate me.'"
 
 **31** "'Look, the time will come when I will remove the strength of your family. No man in your family will live to become old.'"
 
@@ -200,7 +200,7 @@
 
 **11** The Philistines took the ark of God. Eli's 2 sons, Hophni and Phinehas, died.
 
-**12** A man from the tribe of Benjamin ran from the battle. He came to Shiloh on the same day. His clothes were torn, and he had dust on his head.
+**12** A man from the tribe of Benjamin ran from the battle. He came to Shiloh on the same day. His clothes had tears in them, and he had dust on his head.
 
 **13** When the man came, Eli sat on his seat near the road. Eli watched, because his heart was afraid for the ark of God. The man came into the city and told the news. Then all the people in the city cried out.
 
@@ -230,9 +230,9 @@
 
 **3** The people of Ashdod got up early on the next day. They saw that the statue of Dagon was on the ground on its face before the ark of the LORD. They lifted Dagon and put him in his place again.
 
-**4** On the next morning they got up early again. Dagon was again on the ground on its face before the ark of the LORD. The head and both hands of Dagon were broken off. They were on the doorstep. Only the body of Dagon stayed.
+**4** On the next morning they got up early again. Dagon was again on the ground on its face before the ark of the LORD. The head and both hands of Dagon broke off. They were on the doorstep. Only the body of Dagon stayed.
 
-**5** Thus, until now, the priests of Dagon and all the people who go into the temple of Dagon in Ashdod do not step on the doorstep.
+**5** Thus, until now, the priests of Dagon do not step on the doorstep of the temple of Dagon in Ashdod. All the people who go into the temple also do not step on it.
 
 **6** The LORD punished the people of Ashdod very much. He destroyed them. He caused tumors on the people of Ashdod and of the area near it.
 
@@ -340,13 +340,13 @@
 
 **5** They said to him, "You are old, and your sons do not live as you live. Now give us a king to judge us. All the other nations have a king."
 
-**6** Samuel was not pleased when they said, "Give us a king to judge us." So Samuel prayed to the LORD.
+**6** Samuel was not happy when they said, "Give us a king to judge us." So Samuel prayed to the LORD.
 
 **7** The LORD said to Samuel, "Do all that the people tell you. They did not refuse you. They refused me as their king."
 
 **8** "Since the day that I brought them out of Egypt, they always left me and served other gods. Now they do the same thing to you."
 
-**9** "Do what they ask. But give them a serious warning. Tell them how the king who rules them will act."
+**9** "Do what they ask. But warn them seriously. Tell them how the king who rules them will act."
 
 **10** Samuel told all the words of the LORD to the people who asked for a king.
 
@@ -474,7 +474,7 @@
 
 **21** Then Samuel brought the tribe of Benjamin near, family by family. The LORD chose the family of Matri. Then the LORD chose Saul, the son of Kish. But when the people looked for Saul, they did not find him.
 
-**22** So they asked the LORD again, "Did the man come here?" The LORD said, "Yes. He is hidden among the baggage."
+**22** So they asked the LORD again, "Did the man come here?" The LORD said, "Yes. He hid himself among the baggage."
 
 **23** They ran and brought Saul from there. He stood among the people. He was taller than all the other people by the height of his head and shoulders.
 
@@ -504,7 +504,7 @@
 
 **8** Saul counted the men at Bezek. There were 300,000 men from Israel and 30,000 men from Judah.
 
-**9** They said to the messengers who came, "Tell the men of Jabesh-gilead this: 'Tomorrow, when the sun is hot, you will get help.'" The messengers came and told this to the men of Jabesh. The men of Jabesh were very glad.
+**9** They said to the messengers who came, "Tell the men of Jabesh-gilead this. 'Tomorrow, when the sun is hot, you will get help.'" The messengers came and told this to the men of Jabesh. The men of Jabesh were very glad.
 
 **10** Then the men of Jabesh said to the Ammonites, "Tomorrow we will come out to you. Then you can do to us all that you think is good."
 
@@ -562,9 +562,9 @@
 
 **21** "Do not turn away to follow false gods. They cannot help you or save you. They are of no use."
 
-**22** "The LORD will not leave his people, because he wants to keep the honor of his great name. The LORD was pleased to make you his people."
+**22** "The LORD will not leave his people, because he wants to keep the honor of his great name. The LORD was happy to make you his people."
 
-**23** "I will never sin against the LORD by stopping my prayers for you. I will teach you the good and correct way to live."
+**23** "I will never sin against the LORD. I will not stop my prayers for you. I will teach you the good and correct way to live."
 
 **24** "But you must fear the LORD. Serve him faithfully with all your heart. Think about the great things that he did for you."
 
@@ -596,7 +596,7 @@
 
 **12** "So I thought, 'Now the Philistines will come down against me at Gilgal. And I did not yet ask the LORD for help.' So I made myself do it. I offered the burnt offering."
 
-**13** Samuel said to Saul, "You did a foolish thing. You did not obey the command of the LORD your God. If you did obey, then the LORD would make your kingdom over Israel last for all time."
+**13** Samuel said to Saul, "You did a foolish thing. You did not obey the command of the LORD your God. If you obeyed, the LORD was ready to make your kingdom over Israel last for all time."
 
 **14** "But now your kingdom will not continue. The LORD looked for a man who obeys him with all his heart. The LORD chose that man to be the leader of his people. He did this because you did not obey the command of the LORD."
 
@@ -678,7 +678,7 @@
 
 **29** Jonathan said, "My father caused trouble for the land. Look how strong I feel, because I ate a little of this honey."
 
-**30** "It would be much better if the people ate today from the goods that they took from their enemies. Then we would kill many more Philistines."
+**30** "It was a mistake that the people did not eat today from the goods that they took from their enemies. With that food, we could kill many more Philistines."
 
 **31** On that day the Israelites killed Philistines from Michmash to Aijalon. The people were very weak.
 
@@ -696,7 +696,7 @@
 
 **38** Saul said, "All the leaders of the army must come here. We must find what sin occurred today."
 
-**39** "I make a promise by the living LORD, who saves Israel. The man who sinned will die, even if he is my son Jonathan." But none of the people said anything.
+**39** "I make a promise by the LORD, who lives and who saves Israel. The man who sinned will die, even if he is my son Jonathan." But none of the people said anything.
 
 **40** Then Saul said to all Israel, "Stand on one side. My son Jonathan and I will stand on the other side." The people said to Saul, "Do what you think is good."
 
@@ -708,7 +708,7 @@
 
 **44** Saul said, "Jonathan, you must die. If you do not, then God will punish me very much."
 
-**45** But the people said to Saul, "Jonathan must not die! He won this great victory for Israel. Never! We make a promise by the living LORD. Not one hair of his head will fall to the ground. Today he did this with the help of God." So the people saved Jonathan, and he did not die.
+**45** But the people said to Saul, "Jonathan must not die! He won this great victory for Israel. Never! We make a promise by the LORD, who lives. Not one hair of his head will fall to the ground. Today he did this with the help of God." So the people saved Jonathan, and he did not die.
 
 **46** Then Saul stopped his chase of the Philistines. The Philistines went back to their own land.
 
@@ -840,7 +840,7 @@
 
 **21** David came to Saul and served him. Saul loved David very much. David became the man who carried his weapons.
 
-**22** Saul sent a message to Jesse. He said, "Please let David stay and serve me. I am pleased with him."
+**22** Saul sent a message to Jesse. He said, "Please let David stay and serve me. I am happy with him."
 
 **23** When the evil spirit from God came on Saul, David took the harp and played it. Then Saul felt better, and the evil spirit went away from him.
 
@@ -896,7 +896,7 @@
 
 **25** The men of Israel said, "Did you see this man who comes out? He comes out to insult Israel. The king will give much money to the man who kills him. The king will also give his daughter to that man. And the family of that man will not pay taxes in Israel."
 
-**26** David spoke to the men who stood near him. He said, "What will the king do for the man who kills this Philistine and removes this shame from Israel? This Philistine is not circumcised. He must not insult the army of the living God!"
+**26** David spoke to the men who stood near him. He said, "What will the king do for the man who kills this Philistine and removes this shame from Israel? This Philistine does not have circumcision. He must not insult the army of the God who lives!"
 
 **27** The people told David the same thing again. They said, "The king will do this for the man who kills him."
 
@@ -916,7 +916,7 @@
 
 **35** "Then I went after it and hit it. I took the lamb from its mouth. When the animal attacked me, I held it by its jaw. I hit it and killed it."
 
-**36** "I, your servant, killed both lions and bears. This Philistine is not circumcised. He will be like one of those animals, because he insulted the army of the living God."
+**36** "I, your servant, killed both lions and bears. This Philistine does not have circumcision. He will be like one of those animals, because he insulted the army of the God who lives."
 
 **37** David also said, "The LORD saved me from the claws of the lion and the bear. He will save me from this Philistine." Saul said to David, "Go, and I pray that the LORD will be with you."
 
@@ -1002,19 +1002,19 @@
 
 **19** But when the time came to give Merab to David, Saul gave her to Adriel from Meholah as his wife.
 
-**20** Michal, the other daughter of Saul, loved David. People told Saul about this, and he was pleased.
+**20** Michal, the other daughter of Saul, loved David. People told Saul about this, and he was happy.
 
 **21** Saul thought, "I will give her to David. She will be a trap for him. Then the Philistines will kill him." So Saul said to David a second time, "Today you can become my son-in-law."
 
-**22** Saul gave a command to his servants. He said, "Speak to David secretly. Say to him, 'Look, the king is pleased with you. All his servants love you. Now become the son-in-law of the king.'"
+**22** Saul gave a command to his servants. He said, "Speak to David secretly. Say to him, 'Look, the king is happy with you. All his servants love you. Now become the son-in-law of the king.'"
 
 **23** The servants of Saul told these words to David. But David said, "Do you think that it is easy to become the son-in-law of the king? I am poor, and I am not important."
 
 **24** The servants of Saul told him what David said.
 
-**25** Saul said, "Tell David this: 'The king does not want money for the bride. He wants only 100 foreskins of Philistines. Thus he will take revenge on his enemies.'" Saul thought that the Philistines would kill David.
+**25** Saul said, "Tell David this: 'The king does not want money for the bride. He wants only 100 foreskins of Philistines. Thus he will take revenge on his enemies.'" Saul thought, "The Philistines will kill David."
 
-**26** The servants of Saul told these words to David. David was pleased to become the son-in-law of the king. Before the time limit ended,
+**26** The servants of Saul told these words to David. David was happy to become the son-in-law of the king. Before the time limit ended,
 
 **27** David and his men went out and killed 200 Philistines. David brought their foreskins and gave all of them to the king. He did this to become the son-in-law of the king. So Saul gave his daughter Michal to David as his wife.
 
@@ -1036,7 +1036,7 @@
 
 **5** "He put his life in danger when he killed the Philistine. The LORD gave a great victory to all Israel. You saw it, and you were glad. Why do you want to sin against an innocent man? Why do you want to kill David for no reason?"
 
-**6** Saul listened to Jonathan. Saul made a solemn promise. He said, "I promise by the living LORD. I will not kill David."
+**6** Saul listened to Jonathan. Saul made a solemn promise. He said, "I promise by the LORD, who lives. I will not kill David."
 
 **7** Then Jonathan called David and told him all these things. Jonathan brought David to Saul. Then David served Saul as he did before.
 
@@ -1078,9 +1078,9 @@
 
 **1** David ran away from Naioth in Ramah. He came to Jonathan and said, "What did I do? What is my crime? How did I sin against your father? Why does he want to kill me?"
 
-**2** Jonathan said to him, "No! You will not die. My father does nothing, large or small, if he does not tell me first. Why would my father hide this from me? It is not true."
+**2** Jonathan said to him, "No! You will not die. My father does nothing, large or small, if he does not tell me first. Why will my father hide this from me? It is not true."
 
-**3** But David made a solemn promise. He said, "Your father knows that you like me. So he thinks, 'Jonathan must not know about this, or he will be sad.' But I make a promise by the living LORD and by your life. I am only 1 step away from death."
+**3** But David made a solemn promise. He said, "Your father knows that you like me. So he thinks, 'Jonathan must not know about this, or he will be sad.' But I make a promise by the LORD, who lives, and by your life. I am only 1 step away from death."
 
 **4** Jonathan said to David, "I will do anything that you want."
 
@@ -1092,7 +1092,7 @@
 
 **8** "So be kind to me, your servant. You made an agreement (covenant) with me before the LORD. But if I did wrong, then kill me yourself. Why take me to your father?"
 
-**9** Jonathan said, "Never! If I knew that my father decided to hurt you, I would tell you."
+**9** Jonathan said, "Never! If I know that my father decided to hurt you, I will tell you."
 
 **10** David said to Jonathan, "Who will tell me if your father gives you an angry answer?"
 
@@ -1116,7 +1116,7 @@
 
 **20** "I will shoot 3 arrows to the side of the stone, as if I shoot at a target."
 
-**21** "Then I will send a boy and tell him, 'Go and find the arrows.' If I say to the boy, 'Look, the arrows are on this side of you. Bring them here,' then come out. I promise by the living LORD that you will be safe. There will be no danger."
+**21** "Then I will send a boy and tell him, 'Go and find the arrows.' If I say to the boy, 'Look, the arrows are on this side of you. Bring them here,' then come out. I promise by the LORD, who lives, that you will be safe. There will be no danger."
 
 **22** "But if I say to the boy, 'Look, the arrows are farther on, past you,' then go away. The LORD sends you away."
 
@@ -1236,13 +1236,13 @@
 
 **21** Abiathar told David that Saul killed the priests of the LORD.
 
-**22** David said to Abiathar, "On that day I saw that Doeg the Edomite was there. I knew that he would tell Saul. I am responsible for the death of all your family."
+**22** David said to Abiathar, "On that day I saw that Doeg the Edomite was there. I knew this: he will surely tell Saul. I am responsible for the death of all your family."
 
 **23** "Stay with me. Do not be afraid. The man who wants to kill me also wants to kill you. You will be safe with me."
 
 ## Chapter 23
 
-**1** Some people told David, "Look, the Philistines attack Keilah. They steal the grain from the threshing floors."
+**1** Some people told David, "Look, the Philistines attack Keilah. They steal the grain from the floors where workers beat grain."
 
 **2** So David asked the LORD, "Must I go and attack these Philistines?" The LORD said to David, "Go and attack the Philistines. Save Keilah."
 
@@ -1332,7 +1332,7 @@
 
 **15** "The LORD will be the judge. He will judge between you and me. He will see and defend me. He will save me from you."
 
-**16** David stopped speaking these words to Saul. Then Saul said, "Is that your voice, my son David?" Then Saul cried loudly.
+**16** David finished these words to Saul. Then Saul said, "Is that your voice, my son David?" Then Saul cried loudly.
 
 **17** He said to David, "You are more righteous than I am. You were good to me, but I did evil to you."
 
@@ -1398,13 +1398,13 @@
 
 **25** "My lord, please do not pay attention to this wicked man Nabal. His name means 'fool,' and he is a fool. I, your servant, did not see the young men that my lord sent."
 
-**26** "Now, my lord, the LORD stopped you from killing people. He stopped you from taking revenge with your own hand. I make a promise by the living LORD and by your life. Let your enemies and all who want to hurt you become like Nabal."
+**26** "Now, my lord, the LORD stopped you. You did not kill people, and you did not take revenge with your own hand. I make a promise by the LORD, who lives, and by your life. Let your enemies and all who want to hurt you become like Nabal."
 
-**27** "Now let this gift that your servant brought to my lord be given to the young men who follow you."
+**27** "Now I, your servant, brought this gift to my lord. Please give it to the young men who follow you."
 
 **28** "Please forgive the wrong of your servant. The LORD will surely give my lord a family of kings that will last. My lord fights the battles of the LORD. You did no evil in all your life."
 
-**29** "Some person may chase you and try to kill you. But the LORD your God will keep your life safe, as a person keeps something valuable in a bag. He will throw away the lives of your enemies, as a man throws a stone from a sling."
+**29** "Possibly a man will chase you and try to kill you. But the LORD your God will keep your life safe, as a person keeps something valuable in a bag. He will throw away the lives of your enemies, as a man throws a stone from a sling."
 
 **30** "The LORD will do for my lord all the good things that he promised you. He will make you the leader of Israel."
 
@@ -1412,9 +1412,9 @@
 
 **32** David said to Abigail, "Praise the LORD, the God of Israel. He sent you today to meet me."
 
-**33** "God will bless you for your good advice. God will bless you, because today you stopped me from killing people. You stopped me from taking revenge with my own hand."
+**33** "God will bless you for your good advice. God will bless you, because today you stopped me. I did not kill people. I did not take revenge with my own hand."
 
-**34** "The LORD, the God of Israel, stopped me from hurting you. I promise by the living LORD. If you did not come quickly to meet me, no male of the family of Nabal would be alive in the morning."
+**34** "The LORD, the God of Israel, stopped me. I did not hurt you. I promise by the LORD, who lives. You came quickly to meet me. If you did not come, no male of the family of Nabal will be alive in the morning."
 
 **35** Then David took from her the gifts that she brought to him. He said to her, "Go home in peace. I listened to you, and I will do what you asked."
 
@@ -1456,7 +1456,7 @@
 
 **9** But David said to Abishai, "Do not kill him! The LORD chose (anointed) him as king. Any person who attacks him will be guilty."
 
-**10** David also said, "I promise by the living LORD. The LORD himself will kill Saul. Or Saul will die at his natural time. Or he will go into battle and die."
+**10** David also said, "I promise by the LORD, who lives. The LORD himself will kill Saul. Or Saul will die at his natural time. Or he will go into battle and die."
 
 **11** "The LORD does not permit me to attack the king that he chose. Now take the spear and the water jar that are near his head. Then we will go."
 
@@ -1468,7 +1468,7 @@
 
 **15** David said to Abner, "You are a brave man. There is no man like you in Israel. Why did you not guard your lord the king? A soldier came into the camp to kill the king, your lord."
 
-**16** "What you did is not good. I promise by the living LORD that you and your men must die. You did not guard your master, the king that the LORD chose. Now look! Where is the spear of the king? Where is the water jar that was near his head?"
+**16** "What you did is not good. I promise by the LORD, who lives, that you and your men must die. You did not guard your master, the king that the LORD chose. Now look! Where is the spear of the king? Where is the water jar that was near his head?"
 
 **17** Saul knew the voice of David. He said, "Is that your voice, my son David?" David said, "Yes, it is my voice, my lord the king."
 
@@ -1534,7 +1534,7 @@
 
 **9** But the woman said to him, "You know what Saul did. He removed from the land the people who speak with the spirits of the dead. Why do you set a trap for me? Do you want me to die?"
 
-**10** Saul made a solemn promise to her by the LORD. He said, "I promise by the living LORD. No one will punish you for this."
+**10** Saul made a solemn promise to her by the LORD. He said, "I promise by the LORD, who lives. No one will punish you for this."
 
 **11** Then the woman said, "Whom must I bring up for you?" Saul said, "Bring up Samuel."
 
@@ -1578,7 +1578,7 @@
 
 **5** "This is David. The people sang about him as they danced. They sang, 'Saul killed thousands of his enemies. But David killed tens of thousands.'"
 
-**6** So Achish called David. He said to him, "I promise by the living LORD. You are honest. I am pleased when you go into battle with me. I found nothing wrong with you since the day that you came to me. But the rulers do not trust you."
+**6** So Achish called David. He said to him, "I promise by the LORD, who lives. You are honest. I am happy when you go into battle with me. I found nothing wrong with you since the day that you came to me. But the rulers do not trust you."
 
 **7** "So go back now, and go in peace. Do not do anything that displeases the rulers of the Philistines."
 
@@ -1602,7 +1602,7 @@
 
 **5** The enemy also took the 2 wives of David as prisoners. They were Ahinoam from Jezreel and Abigail, the widow of Nabal from Carmel.
 
-**6** David was in much trouble. His men talked about killing him with stones. Each man was very angry because of his sons and daughters. But David found strength in the LORD his God.
+**6** David was in much trouble. His men talked about how they will kill him with stones. Each man was very angry because of his sons and daughters. But David found strength in the LORD his God.
 
 **7** David said to Abiathar the priest, the son of Ahimelech, "Bring me the ephod." Abiathar brought the ephod to David.
 
@@ -1628,7 +1628,7 @@
 
 **18** David got back all that the Amalekites took. He also saved his 2 wives.
 
-**19** Nothing was lost, small or large. They got back their sons, their daughters, and their goods. They got back all that the Amalekites took. David brought back all of it.
+**19** They did not lose anything, small or large. They got back their sons, their daughters, and their goods. They got back all that the Amalekites took. David brought back all of it.
 
 **20** David also took all the sheep and cattle of the Amalekites. His men drove these animals in front of the other animals. They said, "These are the goods of David."
 

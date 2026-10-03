@@ -6,7 +6,7 @@
 
 **2** This faith and truth give hope of life that does not end. God, who cannot lie, promised this life before time started.
 
-**3** At the correct time, God showed his word through preaching. God our Savior gave me this work, and he ordered me to do it.
+**3** At the correct time, God showed his word through the message that I preach. God our Savior gave me this work, and he ordered me to do it.
 
 **4** I write to Titus. You are my true son in the faith that we share. I pray that God the Father and the Lord Jesus Christ our Savior will give you grace, mercy, and peace.
 
@@ -18,11 +18,11 @@
 
 **8** He must be glad to receive guests in his home. He must love what is good. He must have self-control. He must be fair and holy. He must control his desires.
 
-**9** He must hold firmly to the true message, as people taught it to him. Then he will be able to encourage people with correct teaching. He will also be able to show the errors of the people who oppose it.
+**9** He must hold firmly to the true message, as people taught it to him. Then he will be able to encourage people with correct lessons. He will also be able to show the errors of the people who oppose it.
 
 **10** Many people do not obey. They talk foolishly and deceive other people. This is true most of all for the people of the circumcision group.
 
-**11** You must stop them from talking. They teach things that they must not teach, because they want dishonest money. Thus they destroy whole families.
+**11** You must stop their mouths. They teach things that they must not teach, because they want dishonest money. Thus they destroy whole families.
 
 **12** One of the people of Crete, their own prophet, said, "The people of Crete always lie. They are like bad animals. They are lazy and they eat too much."
 
@@ -36,7 +36,7 @@
 
 ## Chapter 2
 
-**1** But you must teach the things that agree with correct teaching.
+**1** But you must teach the things that agree with correct lessons.
 
 **2** Teach the old men to have self-control. They must be serious and sensible. They must have a correct faith, love, and patience.
 
@@ -50,11 +50,11 @@
 
 **7** In all things, show yourself as an example of good works. When you teach, be honest and serious.
 
-**8** Speak correct words that nobody can criticize. Then the people who oppose you will be ashamed, because they will have nothing bad to say about us.
+**8** Speak correct words that nobody can criticize. Then the people who oppose you will feel shame, because they will have nothing bad to say about us.
 
 **9** Tell slaves to obey their masters. They must please their masters in all things. They must not argue with them.
 
-**10** They must not steal from their masters. They must show that they are always faithful. Then in all things they will make the teaching of God our Savior attractive.
+**10** They must not steal from their masters. They must show that they are always faithful. Then in all things they will make the message of God our Savior attractive.
 
 **11** The grace of God came, and it gives salvation to all people.
 

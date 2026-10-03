@@ -54,13 +54,13 @@
 
 **3** After that time, she could not hide him longer. She got a basket made of reeds. She covered the basket with tar and pitch to keep the water out. She put the child in the basket. Then she put the basket in the reeds at the edge of the river.
 
-**4** The sister of the child stood at a distance. She wanted to know what would happen to him.
+**4** The sister of the child stood at a distance. She wanted to know what will happen to him.
 
 **5** The daughter of Pharaoh came down to the river to wash. Her female servants walked along the edge of the river. She saw the basket among the reeds. She sent her servant to get the basket.
 
 **6** She opened the basket and saw the child. The baby cried. She felt pity for him. She said, "This is one of the Hebrew children."
 
-**7** Then the sister of the baby said to the daughter of Pharaoh, "Do you want me to find a Hebrew woman to feed the baby for you?"
+**7** Then the sister of the baby spoke to the daughter of Pharaoh. She said, "Do you want me to find a Hebrew woman to feed the baby for you?"
 
 **8** The daughter of Pharaoh said to her, "Go." The girl went and called the mother of the child.
 
@@ -210,7 +210,7 @@
 
 ## Chapter 5
 
-**1** After that, Moses and Aaron went to Pharaoh. They said, "The LORD, the God of Israel, says this: 'Let my people go, so that they can hold a festival for me in the desert.'"
+**1** After that, Moses and Aaron went to Pharaoh. They said, "The LORD, the God of Israel, says this: 'Let my people go. Then they can hold a festival for me in the desert.'"
 
 **2** Pharaoh said, "Who is the LORD? Why must I obey him and let Israel go? I do not know the LORD. I will not let Israel go."
 
@@ -372,7 +372,7 @@
 
 ## Chapter 8
 
-**1** Then the LORD said to Moses, "Go to Pharaoh and tell him, 'The LORD says this: Let my people go, so that they can worship me.
+**1** Then the LORD said to Moses, "Go to Pharaoh and tell him, 'The LORD says this: Let my people go. Then they can worship me.
 
 **2** If you refuse to let them go, I will send frogs on all your country.
 
@@ -438,7 +438,7 @@
 
 ## Chapter 9
 
-**1** Then the LORD said to Moses, "Go to Pharaoh and tell him, 'The LORD, the God of the Hebrews, says this: Let my people go, so that they can worship me.
+**1** Then the LORD said to Moses, "Go to Pharaoh and tell him this. 'The LORD, the God of the Hebrews, says this: Let my people go. Then they can worship me.
 
 **2** Possibly you will refuse to let them go and keep them.
 
@@ -466,7 +466,7 @@
 
 **14** This time I will send all my plagues against you, your officials, and your people. Then you will know that there is no god like me in all the earth.
 
-**15** I could use my power now and attack you and your people with disease. Then you would be gone from the earth.
+**15** I could use my power now and attack you and your people with disease. Then you will be gone from the earth.
 
 **16** But I let you live for this reason: to show you my power. I want all people on the earth to know my name.
 
@@ -502,7 +502,7 @@
 
 **32** But the hail did not destroy the wheat and the spelt, because they grow later.
 
-**33** Moses left Pharaoh and went out of the city. He lifted up his hands to the LORD. The thunder and the hail stopped. The rain stopped falling on the land.
+**33** Moses left Pharaoh and went out of the city. He lifted up his hands to the LORD. The thunder and the hail stopped. No more rain fell on the land.
 
 **34** Pharaoh saw that the rain, the hail, and the thunder stopped. Then he sinned again. Pharaoh and his officials became stubborn again.
 
@@ -522,7 +522,7 @@
 
 **6** They will fill your houses, the houses of your officials, and the houses of all the Egyptians. Your fathers and your grandfathers never saw so many locusts. They did not see this from the time that they lived on the earth until today.'" Then Moses turned and went out from Pharaoh.
 
-**7** The officials of Pharaoh said to him, "How long will this man be a danger to us? Let the men go, so that they can worship the LORD their God. Do you not know that Egypt is destroyed?"
+**7** The officials of Pharaoh said to him, "How long will this man be a danger to us? Let the men go. Then they can worship the LORD their God. Do you not know that Egypt is in ruins?"
 
 **8** Then the officials brought Moses and Aaron back to Pharaoh. Pharaoh said to them, "Go and worship the LORD your God. But tell me, who will go?"
 
@@ -580,7 +580,7 @@
 
 **5** Every firstborn son in the land of Egypt will die. The firstborn son of Pharaoh, who sits on his throne, will die. The firstborn son of the slave woman who grinds grain will die. All the firstborn animals will also die.
 
-**6** There will be loud crying in all the land of Egypt. There was never crying like it before, and there will never be crying like it again.
+**6** There will be a loud cry in all the land of Egypt. There was never a cry like it before, and there will never be a cry like it again.
 
 **7** But not even a dog will bark at the Israelites or at their animals. Then you will know that the LORD makes a difference between Egypt and Israel.'
 
@@ -622,7 +622,7 @@
 
 **15** For 7 days you must eat bread made without yeast. On the first day, remove all yeast from your houses. If a person eats bread made with yeast during these 7 days, remove that person from Israel.
 
-**16** On the first day and on the seventh day, hold a holy meeting. Do no work on these days. You can only prepare food for each person to eat.
+**16** On the first day and on the seventh day, hold a holy assembly. Do no work on these days. You can only prepare food for each person to eat.
 
 **17** Hold the Festival of Bread Without Yeast. On this day I brought your groups out of the land of Egypt. Thus hold this day in all future generations. This is a permanent law.
 
@@ -650,7 +650,7 @@
 
 **29** At midnight, the LORD killed all the firstborn sons in the land of Egypt. He killed the firstborn son of Pharaoh, who sat on his throne. He killed the firstborn son of the prisoner in the prison. He also killed all the firstborn animals.
 
-**30** Pharaoh, all his officials, and all the Egyptians got up in the night. There was loud crying in Egypt. In each house, a person was dead.
+**30** Pharaoh, all his officials, and all the Egyptians got up in the night. There was a loud cry in Egypt. In each house, a person was dead.
 
 **31** During the night, Pharaoh called Moses and Aaron. He said, "Get up! Go away from my people, you and the Israelites! Go and worship the LORD, as you asked.
 
@@ -746,7 +746,7 @@
 
 **2** "Tell the Israelites to turn back and make camp near Pi Hahiroth. This place is between Migdol and the sea, opposite Baal Zephon. Make camp near the sea, opposite Baal Zephon.
 
-**3** Pharaoh will think, 'The Israelites are lost in the land. The desert keeps them in.'
+**3** Pharaoh will think, 'The Israelites do not know the way in the land. The desert keeps them in.'
 
 **4** I will make Pharaoh stubborn, and he will chase the Israelites. But I will defeat Pharaoh and all his army. Then people will honor me. The Egyptians will know that I am the LORD." The Israelites did as the LORD told them.
 
@@ -834,7 +834,7 @@
 
 **14** The nations will hear about this and shake with fear. The people of Philistia will be very afraid.
 
-**15** The leaders of Edom will be terrified. The strong men of Moab will shake with fear. All the people of Canaan will lose their courage.
+**15** The leaders of Edom will have great fear. The strong men of Moab will shake with fear. All the people of Canaan will lose their courage.
 
 **16** Fear and terror will fall on them. Your great power will make them still like a stone. They will be still until your people go past, LORD. They will be still until the people that you bought go past.
 
@@ -1048,7 +1048,7 @@
 
 **11** They must be ready on the third day. On the third day, the LORD will come down on Mount Sinai. All the people will see this.
 
-**12** Put limits around the mountain for the people. Tell them, 'Be careful. Do not go up the mountain. Do not touch the edge of the mountain. Any person who touches the mountain must be killed.
+**12** Put limits around the mountain for the people. Tell them, 'Be careful. Do not go up the mountain. Do not touch the edge of the mountain. You must kill any person who touches the mountain.
 
 **13** No hand must touch that person. Kill that person with stones or with arrows. Kill any person or animal that touches the mountain. When the trumpet sounds a long blast, the people can come up to the mountain.'"
 
@@ -1146,7 +1146,7 @@
 
 **7** If a man sells his daughter as a slave, she will not go free as the male slaves do.
 
-**8** Her master can choose her to be his wife. But if he is not pleased with her, he must let her family buy her back. He cannot sell her to foreigners, because he did not keep his promise to her.
+**8** Her master can choose her to be his wife. But if he is not happy with her, he must let her family buy her back. He cannot sell her to foreigners, because he did not keep his promise to her.
 
 **9** If the master chooses her to be the wife of his son, he must treat her as a daughter.
 
@@ -1168,9 +1168,9 @@
 
 **18** Men can fight, and 1 man can hit the other with a stone or with his fist. The injured man possibly does not die but must stay in bed.
 
-**19** Then later the injured man gets up and walks outside with a stick. Then the man who hit him will not be punished. But he must pay the injured man for the time that he lost. He must also make sure that the injured man becomes fully healthy.
+**19** Then later the injured man gets up and walks outside with a stick. Then the man who hit him will not receive punishment. But he must pay the injured man for the time that he lost. He must also make sure that the injured man becomes fully healthy.
 
-**20** If a man hits his male or female slave with a stick, and the slave dies, the man must be punished.
+**20** If a man hits his male or female slave with a stick, and the slave dies, the man must receive punishment.
 
 **21** But if the slave lives for 1 or 2 days, do not punish the man. The slave is his property.
 
@@ -1208,13 +1208,13 @@
 
 **1** If a man steals an ox or a sheep and kills it or sells it, he must pay back 5 oxen for the ox. He must pay back 4 sheep for the sheep.
 
-**2** If a person finds a thief who breaks into a house at night, and hits him and kills him, the person is not guilty of murder.
+**2** A person can find a thief who breaks into a house at night. If the person hits the thief and kills him, the person is not guilty of murder.
 
 **3** But if this occurs after sunrise, the person is guilty of murder. A thief must pay back all that he stole. If he has nothing, sell him as a slave to pay for what he stole.
 
 **4** Possibly a person finds the stolen animal alive in the possession of the thief. The animal can be an ox, a donkey, or a sheep. Then the thief must pay back 2 times its value.
 
-**5** A man can let his animals eat in a field or a vineyard, and the animals go into the field of another man and eat there. Then the man must pay with the best crops from his own field and vineyard.
+**5** A man can let his animals eat in a field or a vineyard. Then the animals go into the field of another man and eat there. Then the man must pay with the best crops from his own field and vineyard.
 
 **6** A fire can start and spread into bushes with thorns. Then the fire can burn the stacks of grain, the grain in the field, or the whole field. The person who started the fire must pay for the loss.
 
@@ -1224,7 +1224,7 @@
 
 **9** People can argue about property, for example an ox, a donkey, a sheep, clothing, or any lost thing. Each person can say, 'This is mine.' Then the 2 persons must bring their case to the judges. The person whom the judges find guilty must pay back 2 times the value to the other person.
 
-**10** A man can give a donkey, an ox, a sheep, or another animal to his neighbor to keep. Then the animal can die, get hurt, or be stolen, and no person sees it.
+**10** A man can give a donkey, an ox, a sheep, or another animal to his neighbor to keep. Then the animal can die, get hurt, or someone can steal it, and no person sees it.
 
 **11** Then the neighbor must make a solemn promise in the name of the LORD. He must promise that he did not take the property of the other man. The owner must accept this promise. The neighbor does not have to pay for the animal.
 
@@ -1236,7 +1236,7 @@
 
 **15** But if the owner was there, the man does not have to pay. If the man rented the animal, the rent pays for the loss.
 
-**16** A man can persuade a virgin who is not engaged to have sexual relations with him. Then he must pay the bride price for her and marry her.
+**16** A man can persuade a virgin who has no promise of marriage to have sexual relations with him. Then he must pay the bride price for her and marry her.
 
 **17** If her father refuses to give her to the man, the man must still pay money. He must pay the usual bride price for a virgin.
 
@@ -1276,7 +1276,7 @@
 
 **3** Do not give special help to a poor man in his case in court.
 
-**4** If you find the ox or the donkey of your enemy and it is lost, take it back to him.
+**4** If you find the ox or the donkey of your enemy and it goes the wrong way, take it back to him.
 
 **5** You can see the donkey of a person who hates you, and the donkey fell under its load. Do not leave it there. Help the owner with the donkey.
 
@@ -1326,7 +1326,7 @@
 
 **28** I will send hornets in front of you. The hornets will push the Hivites, the Canaanites, and the Hittites out of your way.
 
-**29** But I will not push them out in 1 year. If I did, the land would become empty. Then the wild animals would become too many for you.
+**29** But I will not push them out in 1 year. If I do, the land will become empty. Then the wild animals will become too many for you.
 
 **30** I will push them out a little at a time. I will do this until your number increases and you can take the land.
 
@@ -1386,7 +1386,7 @@
 
 **5** ram skins dyed red, fine leather, and acacia wood,
 
-**6** olive oil for the lamps, spices for the anointing oil and for the sweet incense,
+**6** olive oil for the lamps, spices for the holy oil to anoint and for the sweet incense,
 
 **7** onyx stones, and other jewels to put on the ephod and on the breastpiece.
 
@@ -1574,7 +1574,7 @@
 
 **20** Tell the Israelites to bring you pure olive oil from crushed olives. Use this oil for the lamps, so that the lamps always burn.
 
-**21** Aaron and his sons must keep the lamps burning in front of the LORD from evening until morning. The lamps will be in the Tent of Meeting, outside the curtain that is in front of the tablets of the law. The Israelites and their descendants must always obey this law.
+**21** Aaron and his sons must keep the lamps lit in front of the LORD from evening until morning. The lamps will be in the Tent of Meeting, outside the curtain that is in front of the tablets of the law. The Israelites and their descendants must always obey this law.
 
 ## Chapter 28
 
@@ -1582,7 +1582,7 @@
 
 **2** Make holy clothes for your brother Aaron. These clothes will give him honor and beauty.
 
-**3** Speak to all the skilled workers. I gave them special skill. Tell them to make clothes for Aaron. The clothes will show that Aaron is set apart to serve me as a priest.
+**3** Speak to all the skilled workers. I gave them special skill. Tell them to make clothes for Aaron. The clothes will show that I set Aaron apart to serve me as a priest.
 
 **4** These are the clothes that they must make: a breastpiece, an ephod, a robe, a woven tunic, a turban, and a sash. They must make these holy clothes for your brother Aaron and his sons. Then they can serve me as priests.
 
@@ -1590,7 +1590,7 @@
 
 **6** Make the ephod of gold, blue, purple, and red yarn, and fine twisted linen. A skilled worker must make it.
 
-**7** The ephod must have 2 shoulder pieces. Attach them at the 2 corners of the ephod so that it is joined together.
+**7** The ephod must have 2 shoulder pieces. Attach them at the 2 corners of the ephod so that the parts become 1 piece.
 
 **8** Make the woven waistband of the ephod of the same materials. Make the waistband as 1 piece with the ephod. Use gold, blue, purple, and red yarn, and fine twisted linen.
 
@@ -1640,7 +1640,7 @@
 
 **31** Make the robe of the ephod all of blue cloth.
 
-**32** Make an opening for the head in the center of the robe. Put a woven band around the opening, like the collar of armor. Then the robe will not tear.
+**32** Make a hole for the head in the center of the robe. Put a woven band around the hole, like the collar of armor. Then the robe will not tear.
 
 **33** Make pomegranates of blue, purple, and red yarn. Put them all around the bottom edge of the robe. Put gold bells between the pomegranates.
 
@@ -1678,7 +1678,7 @@
 
 **6** Put the turban on his head. Attach the holy crown to the turban.
 
-**7** Then take the anointing oil. Pour the oil on his head and anoint him.
+**7** Then take the holy oil to anoint. Pour the oil on his head and anoint him.
 
 **8** Bring his sons and put tunics on them.
 
@@ -1706,9 +1706,9 @@
 
 **20** Kill the ram and take some of its blood. Put the blood on the bottom of the right ears of Aaron and his sons. Also put the blood on the thumbs of their right hands and on the big toes of their right feet. Throw the rest of the blood on all sides of the altar.
 
-**21** Take some of the blood on the altar and some of the anointing oil. Sprinkle them on Aaron and his clothes, and on his sons and their clothes. Then Aaron, his sons, and their clothes will be holy.
+**21** Take some of the blood on the altar and some of the holy oil to anoint. Sprinkle them on Aaron and his clothes, and on his sons and their clothes. Then Aaron, his sons, and their clothes will be holy.
 
-**22** Take the fat from the ram, the fat tail, the fat that covers the inner organs, the long lobe of the liver, the 2 kidneys with their fat, and the right thigh. This is the ram for the ordination.
+**22** Take the fat from the ram, the fat tail, and the fat that covers the inner organs. Also take the long lobe of the liver, the 2 kidneys with their fat, and the right thigh. This is the ram for the ordination.
 
 **23** Also take 1 loaf of bread, 1 thick loaf made with oil, and 1 wafer. Take them from the basket of bread made without yeast that is in front of the LORD.
 
@@ -1718,7 +1718,7 @@
 
 **26** Take the breast of the ram for the ordination of Aaron. Lift it up in front of the LORD as a wave offering. This part will be your share.
 
-**27** Set apart the breast and the thigh of the ram for the ordination. These are the parts that are waved and lifted up. They belong to Aaron and his sons.
+**27** Set apart the breast and the thigh of the ram for the ordination. The priest waves these parts and lifts them up. They belong to Aaron and his sons.
 
 **28** The Israelites must always give these parts to Aaron and his sons. This is a permanent law. When the Israelites give their peace offerings, they must give these parts as a contribution to the LORD.
 
@@ -1730,7 +1730,7 @@
 
 **32** Aaron and his sons must eat the meat of the ram and the bread in the basket. They must eat it at the entrance of the Tent of Meeting.
 
-**33** They must eat these things that made atonement for them when they were ordained and made holy. No other person can eat them, because these things are holy.
+**33** They must eat these things that made atonement for them when you ordained them and made them holy. No other person can eat them, because these things are holy.
 
 **34** If some of the meat or the bread stays until morning, burn it. Do not eat it, because it is holy.
 
@@ -1794,7 +1794,7 @@
 
 **17** Then the LORD spoke to Moses. He said,
 
-**18** "Make a large bronze bowl with a bronze base. Use it for washing. Put it between the Tent of Meeting and the altar. Put water in it.
+**18** "Make a large bronze bowl with a bronze base. Use it to wash. Put it between the Tent of Meeting and the altar. Put water in it.
 
 **19** Aaron and his sons must wash their hands and their feet with the water from the bowl.
 
@@ -1808,7 +1808,7 @@
 
 **24** Also take 500 shekels of cassia and 1 hin of olive oil. Use the shekel of the holy place to weigh them.
 
-**25** Make a holy anointing oil from these things. Mix them carefully, as a perfume maker does. This will be the holy anointing oil.
+**25** Make a holy oil to anoint from these things. Mix them carefully, as a perfume maker does. This will be the holy oil to anoint.
 
 **26** Use this oil to anoint the Tent of Meeting and the ark of the testimony.
 
@@ -1820,11 +1820,11 @@
 
 **30** Anoint Aaron and his sons and make them holy. Then they can serve me as priests.
 
-**31** Tell the Israelites, 'This will be my holy anointing oil in all future generations.
+**31** Tell the Israelites, 'This will be my holy oil to anoint in all future generations.
 
 **32** Do not pour it on the bodies of ordinary people. Do not make any other oil with the same mixture. It is holy, and you must treat it as holy.
 
-**33** If a person makes oil with the same mixture, or puts it on a person who is not a priest, remove that person from his people.'"
+**33** A person can make oil with the same mixture, or put it on a person who is not a priest. Remove that person from his people.'"
 
 **34** Then the LORD said to Moses, "Take sweet spices: stacte, onycha, galbanum, and pure frankincense. Use the same weight of each spice.
 
@@ -1842,7 +1842,7 @@
 
 **2** "Look, I chose Bezalel, the son of Uri, the son of Hur, from the tribe of Judah.
 
-**3** I filled him with the Spirit of God. I gave him wisdom, understanding, knowledge, and skill in all types of work.
+**3** I filled him with the Spirit of God. I gave him wisdom, good sense, knowledge, and skill in all types of work.
 
 **4** He can make artistic designs. He can work with gold, silver, and bronze.
 
@@ -1858,7 +1858,7 @@
 
 **10** They will make the woven clothes. They will make the holy clothes for Aaron the priest and the clothes for his sons when they serve as priests.
 
-**11** They will make the anointing oil and the sweet incense for the Holy Place. They must make all these things as I told you."
+**11** They will make the holy oil to anoint and the sweet incense for the Holy Place. They must make all these things as I told you."
 
 **12** Then the LORD spoke to Moses. He said,
 
@@ -1872,7 +1872,7 @@
 
 **17** The Sabbath is a permanent sign between me and the Israelites. In 6 days the LORD made the sky and the earth. On the seventh day he stopped his work and rested.'"
 
-**18** The LORD finished his talk with Moses on Mount Sinai. Then he gave Moses the 2 tablets of the testimony. The tablets were made of stone. God wrote the words on them with his own finger.
+**18** The LORD finished his talk with Moses on Mount Sinai. Then he gave Moses the 2 tablets of the testimony. The tablets were stone. God wrote the words on them with his own finger.
 
 ## Chapter 32
 
@@ -1890,7 +1890,7 @@
 
 **7** The LORD said to Moses, "Go down, because your people, whom you brought out of Egypt, became corrupt.
 
-**8** They quickly stopped obeying my commands. They made a metal statue of a calf for themselves. They worshipped it and offered sacrifices to it. They said, 'Israel, these are your gods who brought you out of Egypt.'"
+**8** They quickly stopped and did not obey my commands. They made a metal statue of a calf for themselves. They worshipped it and offered sacrifices to it. They said, 'Israel, these are your gods who brought you out of Egypt.'"
 
 **9** The LORD also said to Moses, "I watched these people. They are very stubborn people.
 
@@ -1902,15 +1902,15 @@
 
 **13** Remember your servants Abraham, Isaac, and Israel. You made a solemn promise to them in your own name. You told them, 'I will make your descendants as many as the stars in the sky. I will give your descendants all this land that I promised. It will always be their land.'"
 
-**14** Then the LORD changed his mind. He did not do the evil thing that he said he would do to his people.
+**14** Then the LORD changed his mind. He did not do the evil thing that he said he will do to his people.
 
-**15** Moses turned and went down the mountain. He held the 2 tablets of the testimony in his hands. There was writing on both sides of the tablets, on the front and on the back.
+**15** Moses turned and went down the mountain. He held the 2 tablets of the testimony in his hands. There were words on both sides of the tablets, on the front and on the back.
 
-**16** God made the tablets. God also wrote the words that were cut into the tablets.
+**16** God made the tablets. God also wrote the words that he cut into the tablets.
 
 **17** Joshua heard the noise of the people as they shouted. He said to Moses, "There is a sound of war in the camp."
 
-**18** Moses said, "It is not the sound of victory. It is not the sound of defeat. I hear the sound of singing."
+**18** Moses said, "It is not the sound of victory. It is not the sound of defeat. I hear the sound of people who sing."
 
 **19** Moses came near the camp. He saw the calf and the people who danced. Then Moses became very angry. He threw the tablets down and broke them at the bottom of the mountain.
 
@@ -1970,17 +1970,17 @@
 
 **11** The LORD spoke to Moses face to face, as a man speaks to his friend. Then Moses went back into the camp. But his servant Joshua, the son of Nun, a young man, did not leave the tent.
 
-**12** Moses said to the LORD, "Look, you tell me, 'Lead these people.' But you did not tell me who you will send with me. You said, 'I know you by name, and I am pleased with you.'
+**12** Moses said to the LORD, "Look, you tell me, 'Lead these people.' But you did not tell me who you will send with me. You said, 'I know you by name, and I am happy with you.'
 
-**13** If you are pleased with me, show me your ways. Then I will know you, and you will continue to be pleased with me. Remember that this nation is your people."
+**13** If you are happy with me, show me your ways. Then I will know you, and you will continue to be happy with me. Remember that this nation is your people."
 
 **14** The LORD said, "I will go with you. I will give you rest."
 
 **15** Moses said to him, "If you do not go with us, do not send us from this place.
 
-**16** If you do not go with us, how will people know that you are pleased with me and with your people? Your presence makes us different. It makes me and your people different from all the other people on the earth."
+**16** If you do not go with us, how will people know that you are happy with me and with your people? Your presence makes us different. It makes me and your people different from all the other people on the earth."
 
-**17** The LORD said to Moses, "I will also do this thing that you ask. I am pleased with you, and I know you by name."
+**17** The LORD said to Moses, "I will also do this thing that you ask. I am happy with you, and I know you by name."
 
 **18** Moses said, "Please show me your glory."
 
@@ -2012,7 +2012,7 @@
 
 **8** Moses quickly bowed his head to the ground and worshipped.
 
-**9** He said, "Lord, if you are pleased with me, please go with us. These people are stubborn. But forgive our wrong actions and our sin. Take us as your own people."
+**9** He said, "Lord, if you are happy with me, please go with us. These people are stubborn. But forgive our wrong actions and our sin. Take us as your own people."
 
 **10** The LORD said, "Look, I make an agreement (covenant). In front of all your people, I will do wonderful things. No person did such things on all the earth or in any nation before. All the people near you will see the work of the LORD. The thing that I will do for you will cause fear.
 
@@ -2060,7 +2060,7 @@
 
 **32** After that, all the people of Israel came near. Moses gave them all the commands that the LORD told him on Mount Sinai.
 
-**33** When Moses stopped speaking with them, he put a cloth (veil) on his face.
+**33** When Moses stopped and did not speak with them more, he put a cloth (veil) on his face.
 
 **34** When Moses went in to speak with the LORD, he removed the veil until he came out. Then he came out and told the people of Israel what the LORD commanded.
 
@@ -2082,13 +2082,13 @@
 
 **7** Bring ram skins that have a red color, fine leather, and acacia wood.
 
-**8** Bring olive oil for the light. Bring spices for the anointing oil and for the sweet incense.
+**8** Bring olive oil for the light. Bring spices for the holy oil to anoint and for the sweet incense.
 
 **9** Bring onyx stones and other stones to put on the ephod and on the breastplate.
 
 **10** Each skilled person among you must come. He must make all the things that the LORD commands.
 
-**11** Make the tabernacle, its tent, and its covering. Make its hooks, frames, bars, posts, and bases.
+**11** Make the tabernacle, its tent, and its cover. Make its hooks, frames, bars, posts, and bases.
 
 **12** Make the ark and its poles, the mercy seat, and the curtain that hangs in front of the ark.
 
@@ -2096,7 +2096,7 @@
 
 **14** Make the lampstand for the light, its equipment, its lamps, and the oil for the light.
 
-**15** Make the incense altar and its poles. Make the anointing oil and the sweet incense. Make the curtain for the door at the entrance of the tabernacle.
+**15** Make the incense altar and its poles. Make the holy oil to anoint and the sweet incense. Make the curtain for the door at the entrance of the tabernacle.
 
 **16** Make the altar of burnt offering, its bronze grate, its poles, and all its equipment. Make the basin and its base.
 
@@ -2122,13 +2122,13 @@
 
 **27** The leaders brought onyx stones and other stones to put on the ephod and on the breastplate.
 
-**28** They brought spices and olive oil for the light, for the anointing oil, and for the sweet incense.
+**28** They brought spices and olive oil for the light, for the holy oil to anoint, and for the sweet incense.
 
 **29** All the men and women of Israel who wanted to give brought gifts to the LORD. They brought these gifts for all the work that the LORD told Moses to do.
 
 **30** Then Moses said to the people of Israel, "Look, the LORD chose Bezalel by name. Bezalel is the son of Uri, the son of Hur, of the tribe of Judah.
 
-**31** The LORD filled Bezalel with the Spirit of God. He gave him skill, understanding, and knowledge for all types of work.
+**31** The LORD filled Bezalel with the Spirit of God. He gave him skill, good sense, and knowledge for all types of work.
 
 **32** Bezalel can make good designs. He can work with gold, silver, and bronze.
 
@@ -2140,7 +2140,7 @@
 
 ## Chapter 36
 
-**1** Bezalel, Oholiab, and each skilled man worked. The LORD gave these men skill and understanding to do all the work for the holy place. They did all the work as the LORD commanded.
+**1** Bezalel, Oholiab, and each skilled man worked. The LORD gave these men skill and good sense to do all the work for the holy place. They did all the work as the LORD commanded.
 
 **2** Moses called Bezalel, Oholiab, and each skilled man. The LORD gave these men skill. Each of them wanted to come and do the work.
 
@@ -2150,9 +2150,9 @@
 
 **5** They said to Moses, "The people bring much more than we need. We need less for the work that the LORD commanded."
 
-**6** Moses gave a command, and the men sent a message through the camp. The message said, "Men and women, do not make more things for the offering of the holy place." Thus, the people stopped bringing things.
+**6** Moses gave a command, and the men sent a message through the camp. The message said, "Men and women, do not make more things for the offering of the holy place." Thus, the people stopped and did not bring more things.
 
-**7** The people had brought more than enough material to do all the work.
+**7** The people had more than enough material to do all the work.
 
 **8** All the skilled men made the tabernacle with 10 curtains. They made the curtains of fine linen and blue, purple, and red yarn. Bezalel put designs of cherubim (winged beings) in the curtains.
 
@@ -2176,7 +2176,7 @@
 
 **18** He made 50 bronze hooks to join the tent together. Thus, the tent was 1 unit.
 
-**19** He made a covering for the tent from ram skins with a red color. Above that, he put a covering of fine leather.
+**19** He made a cover for the tent from ram skins with a red color. Above that, he put a cover of fine leather.
 
 **20** He made upright frames of acacia wood for the tabernacle.
 
@@ -2274,7 +2274,7 @@
 
 **28** He made the poles of acacia wood and put a layer of gold on them.
 
-**29** He made the holy anointing oil and the pure, sweet incense. He made them as a skilled perfume maker does.
+**29** He made the holy oil to anoint and the pure, sweet incense. He made them as a skilled perfume maker does.
 
 ## Chapter 38
 
@@ -2408,7 +2408,7 @@
 
 **33** They brought the tabernacle to Moses. They brought the tent and all its equipment, its hooks, its frames, its bars, its posts, and its bases.
 
-**34** They brought the covering of red ram skins, the covering of fine leather, and the curtain that hangs in front of the ark.
+**34** They brought the cover of red ram skins, the cover of fine leather, and the curtain that hangs in front of the ark.
 
 **35** They brought the ark of the testimony, its poles, and the mercy seat.
 
@@ -2416,7 +2416,7 @@
 
 **37** They brought the pure gold lampstand, its lamps in their positions, all its equipment, and the oil for the light.
 
-**38** They brought the gold altar, the anointing oil, the sweet incense, and the curtain for the entrance of the tent.
+**38** They brought the gold altar, the holy oil to anoint, the sweet incense, and the curtain for the entrance of the tent.
 
 **39** They brought the bronze altar, its bronze grate, its poles, and all its equipment. They brought the basin and its base.
 
@@ -2446,19 +2446,19 @@
 
 **8** Set up the courtyard around the tabernacle. Hang the curtain at the gate of the courtyard.
 
-**9** Take the anointing oil. Pour it on the tabernacle and on all the things in it. Make the tabernacle and all its equipment holy. Then it will be holy.
+**9** Take the holy oil to anoint. Pour it on the tabernacle and on all the things in it. Make the tabernacle and all its equipment holy. Then it will be holy.
 
-**10** Pour the anointing oil on the altar of burnt offering and on all its equipment. Make the altar holy. Then the altar will be most holy.
+**10** Pour the holy oil to anoint on the altar of burnt offering and on all its equipment. Make the altar holy. Then the altar will be most holy.
 
-**11** Pour the anointing oil on the basin and its base. Make them holy.
+**11** Pour the holy oil to anoint on the basin and its base. Make them holy.
 
 **12** Bring Aaron and his sons to the entrance of the Tent of Meeting. Wash them with water.
 
-**13** Put the holy clothes on Aaron. Pour the anointing oil on him and make him holy. Then he will serve me as priest.
+**13** Put the holy clothes on Aaron. Pour the holy oil to anoint on him and make him holy. Then he will serve me as priest.
 
 **14** Bring his sons and put coats on them.
 
-**15** Pour the anointing oil on them, as you did on their father. Then they will serve me as priests. Because of this anointing, they and their descendants will be priests for all time."
+**15** Pour the holy oil to anoint on them, as you did on their father. Then they will serve me as priests. Because of this oil, they and their descendants will be priests for all time."
 
 **16** Moses did all the things that the LORD commanded him.
 
@@ -2466,7 +2466,7 @@
 
 **18** Moses set up the tabernacle. He put its bases in position and set up its frames. He put in its bars and set up its posts.
 
-**19** He spread the tent over the tabernacle. He put the covering on top of the tent, as the LORD commanded Moses.
+**19** He spread the tent over the tabernacle. He put the cover on top of the tent, as the LORD commanded Moses.
 
 **20** He took the testimony (the stone tablets) and put it into the ark. He put the poles on the ark. He put the mercy seat on top of the ark.
 
@@ -2488,7 +2488,7 @@
 
 **29** He put the altar of burnt offering near the entrance of the tabernacle, the Tent of Meeting. He offered the burnt offering and the grain offering on it, as the LORD commanded Moses.
 
-**30** He put the basin between the Tent of Meeting and the altar. He put water in the basin for washing.
+**30** He put the basin between the Tent of Meeting and the altar. He put water in the basin to wash.
 
 **31** Moses, Aaron, and the sons of Aaron washed their hands and their feet with the water.
 

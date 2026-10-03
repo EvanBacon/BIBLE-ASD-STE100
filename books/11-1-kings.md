@@ -42,7 +42,7 @@
 
 **20** My lord the king, all the people of Israel look at you. They wait for you to tell them who will sit on your throne after you.
 
-**21** If you do not tell them, then my son Solomon and I will be treated as criminals when you die."
+**21** If you do not tell them, then people will think that my son Solomon and I are criminals when you die."
 
 **22** While she still spoke with the king, Nathan the prophet came in.
 
@@ -114,7 +114,7 @@
 
 **2** "I will soon die, as all people die. Be strong and show that you are a man.
 
-**3** Obey the instructions of the LORD your God. Live in the way that he shows you. Obey his laws, his commands, his rules, and his statements, as they are written in the law of Moses. Then you will be successful in all that you do and in all places that you go.
+**3** Obey the instructions of the LORD your God. Live in the way that he shows you. Obey his laws, his commands, his rules, and his statements, as the law of Moses tells. Then you will be successful in all that you do and in all places that you go.
 
 **4** Then the LORD will keep the promise that he made to me. He said, 'Your sons must be careful in the way that they live. They must obey me faithfully with all their heart and all their soul. If they do this, then a man from your family will always sit on the throne of Israel.'
 
@@ -172,7 +172,7 @@
 
 **31** The king said to Benaiah, "Do as Joab said. Attack him and kill him, and bury him. Joab killed innocent people. Then my family and I will not be guilty for that blood.
 
-**32** The LORD will punish Joab for the people that he killed. Joab attacked 2 men who were better and more honest than he was. He killed them with the sword, and my father David did not know about it. The 2 men were Abner the son of Ner, commander of the army of Israel, and Amasa the son of Jether, commander of the army of Judah.
+**32** The LORD will punish Joab for the people that he killed. Joab attacked 2 men who were better and more honest than he was. He killed them with the sword, and my father David did not know about it. The first man was Abner the son of Ner, commander of the army of Israel. The second man was Amasa the son of Jether, commander of the army of Judah.
 
 **33** The guilt for their deaths will always be on Joab and on his descendants. But the LORD will always give peace to David, his descendants, his family, and his throne."
 
@@ -192,7 +192,7 @@
 
 **41** Someone told Solomon that Shimei went from Jerusalem to Gath and came back.
 
-**42** The king sent for Shimei. He said to him, "I made you promise in the name of the LORD, and I gave you a warning. I said, 'On the day that you go out to any other place, you will surely die. Know this for certain.' And you said to me, 'Your words are good. I will obey.'
+**42** The king sent for Shimei. He said to him, "I made you promise in the name of the LORD, and I told you clearly what will happen. I said, 'On the day that you go out to any other place, you will surely die. Know this for certain.' And you said to me, 'Your words are good. I will obey.'
 
 **43** Why did you not keep your promise to the LORD? Why did you not obey the command that I gave you?"
 
@@ -230,7 +230,7 @@
 
 **13** I will also give you what you did not ask for. I will give you riches and honor. No other king will be like you during all of your life.
 
-**14** If you live in my way and obey my laws and my commands, as your father David did, then I will give you a long life."
+**14** Live in my way and obey my laws and my commands, as your father David did. If you do this, I will give you a long life."
 
 **15** Then Solomon woke up. He knew that it was a dream. He went to Jerusalem and stood in front of the ark of the covenant of the LORD. He gave burnt offerings and peace offerings. Then he made a feast for all his servants.
 
@@ -246,17 +246,17 @@
 
 **21** In the morning, I got up to feed my son, but he was dead. Then I looked at him carefully in the light. He was not the son that I gave birth to."
 
-**22** The other woman said, "No! The living son is mine, and the dead son is yours." But the first woman said, "No! The dead son is yours, and the living son is mine." So they argued in front of the king.
+**22** The other woman said, "No! The son who lives is mine, and the dead son is yours." But the first woman said, "No! The dead son is yours, and the son who lives is mine." So they argued in front of the king.
 
 **23** Then the king said, "This woman says, 'My son is alive and your son is dead.' The other woman says, 'No! Your son is dead and my son is alive.'"
 
 **24** Then the king said, "Bring me a sword." So they brought a sword to the king.
 
-**25** The king said, "Cut the living child into 2 parts. Give half to one woman and half to the other woman."
+**25** The king said, "Cut the child who lives into 2 parts. Give half to one woman and half to the other woman."
 
-**26** The mother of the living child loved her son very much. She said to the king, "My lord, give her the living child! Do not kill him!" But the other woman said, "The child will be neither mine nor yours. Cut him in 2!"
+**26** The real mother of the child who lived loved her son very much. She said to the king, "My lord, give her the child who lives! Do not kill him!" But the other woman said, "The child will be neither mine nor yours. Cut him in 2!"
 
-**27** Then the king said, "Give the living child to the first woman. Do not kill him. She is his mother."
+**27** Then the king said, "Give the child who lives to the first woman. Do not kill him. She is his mother."
 
 **28** All the people of Israel heard about the decision of the king. They respected the king very much. They saw that he had wisdom from God to judge correctly.
 
@@ -314,11 +314,11 @@
 
 **26** Solomon had 40,000 stalls of horses for his chariots, and 12,000 horsemen.
 
-**27** The district officials supplied food for King Solomon and for all the people who ate at his table. Each official supplied food for his month. They made sure that nothing was missing.
+**27** The district officials supplied food for King Solomon and for all the people who ate at his table. Each official supplied food for his month. They made sure that the king had all that he needed.
 
 **28** They also brought barley and straw for the horses and the fast horses. Each official brought these to the correct place, as instructed.
 
-**29** God gave Solomon very much wisdom and understanding. His knowledge was as large as the sand on the seashore.
+**29** God gave Solomon very much wisdom and knowledge. His knowledge was as large as the sand on the seashore.
 
 **30** The wisdom of Solomon was greater than the wisdom of all the people of the east. It was greater than all the wisdom of Egypt.
 
@@ -388,11 +388,11 @@
 
 **9** So Solomon built the house and finished it. He made the roof of the house with beams and boards of cedar.
 
-**10** He built the side rooms against all the house. Each floor was 5 cubits high. The rooms were connected to the house with cedar beams.
+**10** He built the side rooms against all the house. Each floor was 5 cubits high. Cedar beams attached the rooms to the house.
 
 **11** Then the word of the LORD came to Solomon. The LORD said,
 
-**12** "You build this house now. If you obey my laws, do what I command, and keep all my commands, then I will keep the promise that I made to your father David.
+**12** "You build this house now. Obey my laws, do what I command, and keep all my commands. If you do this, then I will keep the promise that I made to your father David.
 
 **13** I will live among the people of Israel. I will not leave my people Israel."
 
@@ -462,19 +462,19 @@
 
 **7** He made the Hall of the Throne, where he judged the people. This was the Hall of Judgment. He covered it with cedar from the floor to the ceiling.
 
-**8** His own palace, where he lived, was in another courtyard behind the hall. It was made in the same way. Solomon also made a palace like this hall for the daughter of Pharaoh, his wife.
+**8** His own palace, where he lived, was in another courtyard behind the hall. The workers made it in the same way. Solomon also made a palace like this hall for the daughter of Pharaoh, his wife.
 
-**9** All these buildings were made of expensive stones. The workers cut the stones to the correct size with saws on the inside and the outside. They used these stones from the foundation to the top of the walls, and outside to the great courtyard.
+**9** The workers made all these buildings of expensive stones. They cut the stones to the correct size with saws on the inside and the outside. They used these stones from the foundation to the top of the walls, and outside to the great courtyard.
 
-**10** The foundation was made of large, expensive stones. Some stones were 10 cubits long and some were 8 cubits long.
+**10** The workers made the foundation of large, expensive stones. Some stones were 10 cubits long and some were 8 cubits long.
 
 **11** Above the foundation were expensive stones, cut to the correct size, and cedar beams.
 
-**12** The great courtyard had 3 rows of cut stone and 1 row of cedar beams around it. The inner courtyard of the house of the LORD and the porch of the house were also made in this way.
+**12** The great courtyard had 3 rows of cut stone and 1 row of cedar beams around it. The workers also made the inner courtyard of the house of the LORD and the porch of the house in this way.
 
 **13** King Solomon sent men to bring Hiram from Tyre.
 
-**14** Hiram was the son of a widow from the tribe of Naphtali. His father was a man from Tyre who made things from bronze. Hiram had much wisdom, understanding, and skill to make all kinds of bronze work. He came to King Solomon and did all his work.
+**14** Hiram was the son of a widow from the tribe of Naphtali. His father was a man from Tyre who made things from bronze. Hiram had much wisdom, knowledge, and skill to make all kinds of bronze work. He came to King Solomon and did all his work.
 
 **15** He made 2 bronze pillars. Each pillar was 18 cubits high and 12 cubits around.
 
@@ -506,13 +506,13 @@
 
 **29** On the panels between the frames there were lions, oxen, and cherubim. On the frames there was a stand above. Above and below the lions and oxen there were decorations.
 
-**30** Each stand had 4 bronze wheels with bronze axles. At the 4 corners there were supports for a basin. The supports were made of cast bronze, with decorations on each side.
+**30** Each stand had 4 bronze wheels with bronze axles. At the 4 corners there were supports for a basin. Hiram made the supports of cast bronze, with decorations on each side.
 
-**31** On the stand there was a round opening for the basin. The opening was 1 cubit deep and 1.5 cubits wide. There were carvings around the opening. The side panels were square, not round.
+**31** On the stand there was a round hole for the basin. The hole was 1 cubit deep and 1.5 cubits wide. There were carvings around the hole. The side panels were square, not round.
 
-**32** The 4 wheels were under the side panels. The axles of the wheels were connected to the stand. Each wheel was 1.5 cubits high.
+**32** The 4 wheels were under the side panels. Hiram attached the axles of the wheels to the stand. Each wheel was 1.5 cubits high.
 
-**33** The wheels were made like the wheels of a chariot. Their axles, hubs, rims, and spokes were all made of cast bronze.
+**33** Hiram made the wheels like the wheels of a chariot. He made their axles, hubs, rims, and spokes all of cast bronze.
 
 **34** Each stand had 4 supports at its 4 corners. The supports were part of the stand.
 
@@ -520,7 +520,7 @@
 
 **36** On the surfaces of the supports and side panels, he carved cherubim, lions, and palm trees. He put them where there was space, with decorations all around.
 
-**37** He made the 10 stands in this way. All of them had the same casting, the same measurements, and the same shape.
+**37** He made the 10 stands in this way. All of them had the same mold, the same measurements, and the same shape.
 
 **38** Then he made 10 bronze basins. Each basin held 40 baths of water. Each basin was 4 cubits wide. He put 1 basin on each of the 10 stands.
 
@@ -558,7 +558,7 @@
 
 **3** All the elders of Israel came, and the priests lifted up the ark.
 
-**4** The priests and the Levites brought up the ark of the LORD and the tent of meeting. They also brought up all the holy items that were in the tent.
+**4** The priests and the Levites brought up the ark of the LORD and the tent where the people came together. They also brought up all the holy items that were in the tent.
 
 **5** King Solomon and all the people of Israel who came to him were in front of the ark. They killed sheep and oxen as sacrifices. There were too many to count.
 
@@ -700,7 +700,7 @@
 
 **7** If you do this, then I will remove Israel from the land that I gave them. I will reject this house that I made holy for my name. All the nations will make jokes about Israel and insult Israel.
 
-**8** This house is now very great. But all people who go past it will be shocked. They will make sounds to show their contempt. They will ask, 'Why did the LORD do this to this land and to this house?'
+**8** This house is now very great. But all people who go past it will be very surprised and afraid. They will make sounds to show their contempt. They will ask, 'Why did the LORD do this to this land and to this house?'
 
 **9** Other people will answer, 'The people left the LORD their God. The LORD brought their ancestors out of Egypt. But the people followed other gods. They worshipped and served those gods. Thus the LORD brought all this disaster on them.'"
 
@@ -772,7 +772,7 @@
 
 **14** Each year Solomon received 666 talents of gold.
 
-**15** He also received money from the traders, from the business of the merchants, from all the kings of Arabia, and from the governors of the land.
+**15** He also received money from the traders and from the business of the merchants. He received money from all the kings of Arabia and from the governors of the land.
 
 **16** King Solomon made 200 large shields of hammered gold. He used 600 shekels of gold for each shield.
 
@@ -784,7 +784,7 @@
 
 **20** 12 lions stood on the 6 steps, 1 at each end of each step. No other kingdom had a throne like this one.
 
-**21** All the cups of King Solomon were made of gold. All the dishes in the House of the Forest of Lebanon were made of pure gold. No item was made of silver, because silver had little value in the time of Solomon.
+**21** All the cups of King Solomon were of gold. All the dishes in the House of the Forest of Lebanon were of pure gold. No item was of silver, because silver had little value in the time of Solomon.
 
 **22** The king had ships of Tarshish at sea, with the ships of Hiram. Each 3 years the ships of Tarshish came back. They brought gold, silver, ivory, monkeys, and peacocks.
 
@@ -884,7 +884,7 @@
 
 **40** So Solomon tried to kill Jeroboam. But Jeroboam ran away to Egypt, to Shishak, the king of Egypt. He stayed in Egypt until Solomon died.
 
-**41** The other events of the life of Solomon, all that he did, and his wisdom are written in the Book of the Acts of Solomon.
+**41** The other events of the life of Solomon, all that he did, and his wisdom are in the Book of the Acts of Solomon.
 
 **42** Solomon ruled in Jerusalem over all Israel for 40 years.
 
@@ -910,7 +910,7 @@
 
 **9** He said to them, "These people said to me, 'Make the load that your father put on us lighter.' What answer do you tell me to give to them?"
 
-**10** The young men who grew up with him said to him, "These people said to you, 'Your father made our load heavy, but make it lighter for us.' Tell them this: 'My little finger is thicker than the waist of my father.
+**10** The young men who grew up with him gave him their advice. They said, "These people said to you, 'Your father made our load heavy, but make it lighter for us.' Tell them this: 'My little finger is thicker than the waist of my father.
 
 **11** My father put a heavy load on you, but I will make your load heavier. My father punished you with whips, but I will punish you with whips that have sharp metal points.'"
 
@@ -962,7 +962,7 @@
 
 **1** A man of God came from Judah to Bethel because of a command from the LORD. Jeroboam stood next to the altar to burn incense.
 
-**2** The man of God spoke loudly against the altar, as the LORD told him. He said, "Altar, altar! The LORD says this: 'A son with the name Josiah will be born into the family of David. On you, Josiah will kill the priests of the high places who now burn incense on you. Josiah will burn human bones on you.'"
+**2** The man of God spoke loudly against the altar, as the LORD told him. He said, "Altar, altar! The LORD says this: 'A woman in the family of David will give birth to a son with the name Josiah. On you, Josiah will kill the priests of the high places who now burn incense on you. Josiah will burn human bones on you.'"
 
 **3** That same day the man of God gave a sign. He said, "This is the sign that the LORD gives: The altar will break apart. The ashes on it will fall out."
 
@@ -974,7 +974,7 @@
 
 **7** The king said to the man of God, "Come home with me and eat. I will give you a gift."
 
-**8** But the man of God said to the king, "Even if you give me half of all that you have, I will not go with you. I will not eat food or drink water in this place.
+**8** But the man of God answered the king. He said, "Even if you give me half of all that you have, I will not go with you. I will not eat food or drink water in this place.
 
 **9** The LORD gave me a command. He said, 'Do not eat food or drink water. Do not go back on the same road that you came on.'"
 
@@ -1002,7 +1002,7 @@
 
 **21** The old prophet shouted to the man of God who came from Judah, "The LORD says this: 'You disobeyed the word of the LORD. You did not obey the command that the LORD your God gave you.
 
-**22** You came back and ate food and drank water in the place where the LORD told you not to eat or drink. Thus your body will not be buried in the tomb of your ancestors.'"
+**22** You came back and ate food and drank water in the place where the LORD told you not to eat or drink. Thus no one will put your body in the tomb of your ancestors.'"
 
 **23** The man of God finished his food and drink. Then the old prophet put a saddle on the donkey for the prophet that he brought back.
 
@@ -1020,7 +1020,7 @@
 
 **30** He put the body in his own tomb. The people mourned for the man of God. They said, "Oh, my brother!"
 
-**31** After the old prophet buried him, he said to his sons, "When I die, bury me in the tomb where the man of God is buried. Put my bones next to his bones.
+**31** After the old prophet buried him, he spoke to his sons. He said, "When I die, bury me in the tomb where I buried the man of God. Put my bones next to his bones.
 
 **32** The LORD told him to speak against the altar in Bethel and against all the shrines on the high places in the cities of Samaria. What he said will surely come true."
 
@@ -1054,7 +1054,7 @@
 
 **12** Now get up and go to your home. When you go into the city, the boy will die.
 
-**13** All the people of Israel will mourn for him and bury him. He is the only person in the family of Jeroboam who will be buried in a grave. He is the only person in the family of Jeroboam in whom the LORD, the God of Israel, found something good.
+**13** All the people of Israel will mourn for him and bury him. He is the only person in the family of Jeroboam who will go into a grave. He is the only person in the family of Jeroboam in whom the LORD, the God of Israel, found something good.
 
 **14** The LORD will choose another king over Israel. That king will destroy the family of Jeroboam. This will start now.
 
@@ -1066,7 +1066,7 @@
 
 **18** The people of Israel buried him and mourned for him. This was what the LORD said through his servant Ahijah the prophet.
 
-**19** The other events of the life of Jeroboam, his wars and how he ruled, are written in the Book of the History of the Kings of Israel.
+**19** The Book of the History of the Kings of Israel tells the other events of the life of Jeroboam. It tells about his wars and how he ruled.
 
 **20** Jeroboam ruled for 22 years. Then he died, and his son Nadab became king in his place.
 
@@ -1086,7 +1086,7 @@
 
 **28** Each time that the king went into the house of the LORD, the guards carried the shields. Then they brought the shields back to the room of the guards.
 
-**29** The other events of the life of Rehoboam and all that he did are written in the Book of the History of the Kings of Judah.
+**29** The Book of the History of the Kings of Judah tells the other events of the life of Rehoboam and all that he did.
 
 **30** There was war between Rehoboam and Jeroboam during all their lives.
 
@@ -1106,7 +1106,7 @@
 
 **6** There was war between Rehoboam and Jeroboam during all the life of Abijam.
 
-**7** The other events of the life of Abijam and all that he did are written in the Book of the History of the Kings of Judah. There was war between Abijam and Jeroboam.
+**7** The Book of the History of the Kings of Judah tells the other events of the life of Abijam and all that he did. There was war between Abijam and Jeroboam.
 
 **8** Abijam died and they buried him in the City of David. His son Asa became king in his place.
 
@@ -1126,9 +1126,9 @@
 
 **16** There was war between Asa and Baasha, the king of Israel, during all their lives.
 
-**17** Baasha, the king of Israel, attacked Judah. He built the city of Ramah with strong walls. He did this to stop people from going to Asa, the king of Judah, or from coming from him.
+**17** Baasha, the king of Israel, attacked Judah. He built the city of Ramah with strong walls. He did this to stop people who wanted to go to Asa, the king of Judah, or come from him.
 
-**18** Then Asa took all the silver and gold that were still in the treasuries of the house of the LORD and of the palace of the king. He gave them to his officials. King Asa sent them to Ben-hadad, king of Syria, who lived in Damascus. Ben-hadad was the son of Tabrimmon, the son of Hezion. Asa told them to say,
+**18** Then Asa took all the silver and gold that were still in the treasuries of the house of the LORD. He also took the silver and gold from the palace of the king. He gave them to his officials. King Asa sent them to Ben-hadad, king of Syria, who lived in Damascus. Ben-hadad was the son of Tabrimmon, the son of Hezion. Asa told them to say,
 
 **19** "There is a treaty between you and me, as there was between my father and your father. I send you a gift of silver and gold. Stop your treaty with Baasha, king of Israel. Then he will go away from me."
 
@@ -1136,9 +1136,9 @@
 
 **21** Baasha heard about this. He stopped the work on Ramah and went to live in Tirzah.
 
-**22** Then King Asa gave a command to all the people of Judah. No person was excused. They took away the stones and the wood that Baasha used to build Ramah. King Asa used these to build Geba in Benjamin and Mizpah.
+**22** Then King Asa gave a command to all the people of Judah. Every person had to obey. They took away the stones and the wood that Baasha used to build Ramah. King Asa used these to build Geba in Benjamin and Mizpah.
 
-**23** The other events of the life of Asa, all his power, all that he did, and the cities that he built are written in the Book of the History of the Kings of Judah. But when he was old, he had a disease in his feet.
+**23** The Book of the History of the Kings of Judah tells the other events of the life of Asa. It tells about all his power, all that he did, and the cities that he built. But when he was old, he had a disease in his feet.
 
 **24** Asa died and they buried him with his ancestors in the City of David, his ancestor. His son Jehoshaphat became king in his place.
 
@@ -1154,7 +1154,7 @@
 
 **30** This occurred because of the sins of Jeroboam. Jeroboam sinned and caused Israel to sin. He made the LORD, the God of Israel, very angry.
 
-**31** The other events of the life of Nadab and all that he did are written in the Book of the History of the Kings of Israel.
+**31** The Book of the History of the Kings of Israel tells the other events of the life of Nadab and all that he did.
 
 **32** There was war between Asa and Baasha, the king of Israel, during all their lives.
 
@@ -1172,7 +1172,7 @@
 
 **4** Dogs will eat the people of the family of Baasha who die in the city. Birds will eat the people of his family who die in the fields."
 
-**5** The other events of the life of Baasha, all that he did, and his power are written in the Book of the History of the Kings of Israel.
+**5** The Book of the History of the Kings of Israel tells the other events of the life of Baasha. It tells about all that he did and about his power.
 
 **6** Baasha died and they buried him in Tirzah. His son Elah became king in his place.
 
@@ -1190,9 +1190,9 @@
 
 **13** This occurred because of all the sins of Baasha and his son Elah. They sinned and caused Israel to sin. Their worthless idols made the LORD, the God of Israel, angry.
 
-**14** The other events of the life of Elah and all that he did are written in the Book of the History of the Kings of Israel.
+**14** The Book of the History of the Kings of Israel tells the other events of the life of Elah and all that he did.
 
-**15** Zimri ruled in Tirzah for 7 days, in the 27th year that Asa was king of Judah. At that time the army of Israel was camped near Gibbethon, a town of the Philistines.
+**15** Zimri ruled in Tirzah for 7 days, in the 27th year that Asa was king of Judah. At that time the army of Israel had its camp near Gibbethon, a town of the Philistines.
 
 **16** The soldiers in the camp heard that Zimri made a secret plan and killed the king. So that day, in the camp, all the soldiers of Israel made Omri king over Israel. Omri was the commander of the army.
 
@@ -1202,7 +1202,7 @@
 
 **19** He died because of his sins. He did evil in the sight of the LORD. He lived as Jeroboam did. He did the same sin that Jeroboam caused Israel to do.
 
-**20** The other events of the life of Zimri and his secret plan are written in the Book of the History of the Kings of Israel.
+**20** The Book of the History of the Kings of Israel tells the other events of the life of Zimri and his secret plan.
 
 **21** Then the people of Israel separated into 2 groups. Half of the people followed Tibni the son of Ginath and wanted to make him king. The other half followed Omri.
 
@@ -1216,7 +1216,7 @@
 
 **26** He lived as Jeroboam the son of Nebat did. He did the same sin that Jeroboam caused Israel to do. Their worthless idols made the LORD, the God of Israel, angry.
 
-**27** The other events of the life of Omri, all that he did, and the power that he showed are written in the Book of the History of the Kings of Israel.
+**27** The Book of the History of the Kings of Israel tells the other events of the life of Omri. It tells about all that he did and the power that he showed.
 
 **28** Omri died and they buried him in Samaria. His son Ahab became king in his place.
 
@@ -1266,7 +1266,7 @@
 
 **16** The jar of flour did not become empty. The jar of oil did not become empty. This was what the LORD said through Elijah.
 
-**17** After this, the son of the woman became sick. She was the owner of the house. His sickness became worse and worse until he stopped breathing.
+**17** After this, the son of the woman became sick. She was the owner of the house. His sickness became worse and worse until he had no breath in him.
 
 **18** She said to Elijah, "Man of God, what do you have against me? Did you come to remind God of my sin and to kill my son?"
 
@@ -1342,7 +1342,7 @@
 
 **29** Noon went past, and they continued to shout like prophets until the time of the evening sacrifice. But there was no voice. No one answered. No one paid attention.
 
-**30** Then Elijah said to all the people, "Come near to me." All the people came near to him. Elijah repaired the altar of the LORD, which was broken.
+**30** Then Elijah said to all the people, "Come near to me." All the people came near to him. Elijah repaired the altar of the LORD, which someone broke down.
 
 **31** Elijah took 12 stones, 1 stone for each tribe of the sons of Jacob. The LORD spoke to Jacob and said, "Your name will be Israel."
 
@@ -1388,7 +1388,7 @@
 
 **5** He lay down under the broom tree and slept. Then an angel touched him and said, "Get up and eat."
 
-**6** Elijah looked around. Near his head there was bread that was baked on hot stones, and a jar of water. He ate and drank, and then he lay down again.
+**6** Elijah looked around. Near his head there was bread that someone baked on hot stones, and a jar of water. He ate and drank, and then he lay down again.
 
 **7** The angel of the LORD came again a 2nd time. He touched Elijah and said, "Get up and eat. If you do not eat, the trip will be too long for you."
 
@@ -1442,7 +1442,7 @@
 
 **10** Then Ben-hadad sent another message to Ahab. He said, "Let the gods punish me very much if I do not destroy Samaria. There will not be sufficient dust in Samaria to give a handful to each of my soldiers."
 
-**11** The king of Israel answered, "Tell him this: 'A soldier who puts on his armor must not boast like a soldier who takes off his armor after the battle.'"
+**11** The king of Israel answered, "Tell him this: 'A soldier who puts on his armor must not boast.' Only a soldier who takes off his armor after the battle can boast."
 
 **12** Ben-hadad and the kings drank in their tents when Ben-hadad heard this message. He said to his men, "Prepare to attack!" So they prepared to attack the city.
 
@@ -1454,7 +1454,7 @@
 
 **16** They went out at noon. At that time, Ben-hadad and the 32 kings who helped him were in their tents. They drank wine and became drunk.
 
-**17** The young soldiers of the district governors went out first. Ben-hadad sent men to look, and they told him, "Men are coming out of Samaria."
+**17** The young soldiers of the district governors went out first. Ben-hadad sent men to look, and they told him, "Men come out of Samaria."
 
 **18** Ben-hadad said, "If they come out for peace, catch them alive. If they come out for war, catch them alive."
 
@@ -1476,7 +1476,7 @@
 
 **27** The people of Israel also collected their army and got supplies. They went out to fight against the Syrians. The army of Israel camped in front of the Syrians. The army of Israel was like 2 small groups of goats. But the Syrians filled all the land.
 
-**28** A man of God came to the king of Israel. He said, "The LORD says this: 'The Syrians said, "The LORD is a god of the hills, but he is not a god of the valleys." So I will give all this large army to you. Then you will know that I am the LORD.'"
+**28** A man of God came to the king of Israel. He said, "The LORD says this: 'The Syrians said this. "The LORD is a god of the hills, but he is not a god of the valleys." So I will give all this large army to you. Then you will know that I am the LORD.'"
 
 **29** The 2 armies camped across from each other for 7 days. On the 7th day the battle started. In 1 day the army of Israel killed 100,000 soldiers of the Syrians.
 
@@ -1588,7 +1588,7 @@
 
 **9** So the king of Israel called an official. He said, "Bring Micaiah the son of Imlah quickly."
 
-**10** The king of Israel and Jehoshaphat, the king of Judah, wore their royal clothes. They sat on their thrones at the threshing floor near the entrance of the gate of Samaria. All the prophets spoke as prophets in front of them.
+**10** The king of Israel and Jehoshaphat, the king of Judah, wore their royal clothes. They sat on their thrones at the floor for grain near the entrance of the gate of Samaria. All the prophets spoke as prophets in front of them.
 
 **11** Zedekiah the son of Chenaanah made horns of iron for himself. He said, "The LORD says this: 'With these horns you will attack the Syrians until you destroy them.'"
 
@@ -1600,7 +1600,7 @@
 
 **15** Micaiah came to the king. The king asked him, "Micaiah, must we attack Ramoth-gilead or not?" Micaiah answered, "Attack and win. The LORD will give it to the king."
 
-**16** But the king said to him, "How many times must I tell you to speak only the truth to me in the name of the LORD?"
+**16** But the king spoke to him again. He said, "How many times must I tell you to speak only the truth to me in the name of the LORD?"
 
 **17** So Micaiah said, "I saw all the army of Israel on the hills. They were like sheep with no shepherd. The LORD said, 'These people have no leader. Let each man go home in peace.'"
 
@@ -1620,7 +1620,7 @@
 
 **25** Micaiah said, "You will find out on the day that you go into an inner room to hide."
 
-**26** Then the king of Israel said, "Take Micaiah and bring him back to Amon, the governor of the city, and to Joash, the son of the king.
+**26** Then the king of Israel said, "Take Micaiah. Bring him back to Amon, the governor of the city, and to Joash, the son of the king.
 
 **27** Tell them, 'The king says this: Put this man in prison. Give him only a little bread and water until I come back safely.'"
 
@@ -1636,7 +1636,7 @@
 
 **33** The chariot commanders saw that he was not the king of Israel. So they stopped and did not chase him.
 
-**34** But a soldier shot an arrow without a specific target. The arrow hit the king of Israel between the plates of his armor. The king said to the driver of his chariot, "Turn around and take me out of the battle. I am wounded."
+**34** But a soldier shot an arrow without a specific target. The arrow hit the king of Israel between the plates of his armor. The king said to the driver of his chariot, "Turn around and take me out of the battle. I have a wound."
 
 **35** The battle was very fierce that day. Soldiers held the king up in his chariot, with his face toward the Syrians. In the evening he died. The blood from his wound flowed into the bottom of the chariot.
 
@@ -1646,7 +1646,7 @@
 
 **38** They washed the chariot at the pool of Samaria, where the prostitutes washed. Dogs licked up his blood. This was what the LORD said.
 
-**39** The other events of the life of Ahab, all that he did, the palace that he decorated with ivory, and all the cities that he built are written in the Book of the History of the Kings of Israel.
+**39** The Book of the History of the Kings of Israel tells the other events of the life of Ahab. It tells about all that he did and the palace that he decorated with ivory. It also tells about all the cities that he built.
 
 **40** Ahab died, and his son Ahaziah became king in his place.
 
@@ -1658,13 +1658,13 @@
 
 **44** Jehoshaphat also made peace with the king of Israel.
 
-**45** The other events of the life of Jehoshaphat, the power that he showed, and his wars are written in the Book of the History of the Kings of Judah.
+**45** The Book of the History of the Kings of Judah tells the other events of the life of Jehoshaphat. It tells about the power that he showed and about his wars.
 
 **46** He removed from the land the male prostitutes of the shrines who stayed after the time of his father Asa.
 
 **47** At that time there was no king in Edom. A governor ruled Edom.
 
-**48** Jehoshaphat made ships of Tarshish to go to Ophir for gold. But the ships did not go, because they were destroyed at Ezion-geber.
+**48** Jehoshaphat made ships of Tarshish to go to Ophir for gold. But the ships did not go, because they broke at Ezion-geber.
 
 **49** Then Ahaziah the son of Ahab said to Jehoshaphat, "Let my sailors go with your sailors in the ships." But Jehoshaphat refused.
 

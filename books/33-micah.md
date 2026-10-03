@@ -18,7 +18,7 @@
 
 **8** Because of this, I will cry loudly. I will walk without shoes and without clothes. I will cry like a jackal. I will make a sad sound like an owl.
 
-**9** The wound of Samaria cannot be cured. The disaster comes to Judah. The disaster comes to the gate of my people, to Jerusalem.
+**9** Nobody can cure the wound of Samaria. The disaster comes to Judah. The disaster comes to the gate of my people, to Jerusalem.
 
 **10** Do not tell the news in Gath. Do not cry at all. In Beth-le-aphrah, roll in the dust.
 
@@ -26,7 +26,7 @@
 
 **12** The people of Maroth wait anxiously for good things. But the LORD sent disaster down to the gate of Jerusalem.
 
-**13** People of Lachish, attach fast horses to your chariots. Lachish started the sin of the people of Zion. The sins of Israel were found in Lachish.
+**13** People of Lachish, attach fast horses to your chariots. Lachish started the sin of the people of Zion. The sins of Israel were in Lachish.
 
 **14** Thus you will give farewell gifts to Moresheth-gath. The towns of Achzib will not help the kings of Israel. Achzib will disappoint them.
 
@@ -68,15 +68,15 @@
 
 **2** But you hate good and love evil. You pull the skin off my people. You pull the flesh off their bones.
 
-**3** You eat the flesh of my people. You pull off their skin and break their bones. You cut them into pieces like meat for a cooking pot."
+**3** You eat the flesh of my people. You pull off their skin and break their bones. You cut them into pieces like meat for a pot."
 
 **4** Then these leaders will call to the LORD for help. But the LORD will not answer them. At that time he will hide his face from them, because they did evil things.
 
-**5** The LORD says this about the prophets who lead my people the wrong way: "When people give these prophets food, the prophets say, 'You will have peace.' When people do not give them food, the prophets start a war against them.
+**5** The prophets lead my people the wrong way. The LORD says this about them: "When people give these prophets food, the prophets say, 'You will have peace.' When people do not give them food, the prophets start a war against them.
 
 **6** Thus night will come on you, and you will not see visions. Darkness will come on you, and you will not tell the future. The sun will go down on the prophets. The day will become dark for them.
 
-**7** The seers will be ashamed. The people who tell the future will be disgraced. They will all cover their faces, because God will not answer them."
+**7** The seers will feel shame. The people who tell the future will lose their honor. They will all cover their faces, because God will not answer them."
 
 **8** But the Spirit of the LORD fills me with power. He gives me justice and strength. Thus I can tell Jacob about his crimes. I can tell Israel about his sin.
 
@@ -100,7 +100,7 @@
 
 **5** All the nations follow their own gods. But we will follow the LORD our God for all time.
 
-**6** "On that day," says the LORD, "I will bring together the people who are lame. I will collect the people who were sent away. I will collect the people whom I punished.
+**6** "On that day," says the LORD, "I will bring together the people who are lame. I will collect the people whom enemies sent away. I will collect the people whom I punished.
 
 **7** I will make the lame people a remnant. I will make the people who were far away a strong nation. The LORD will rule them on Mount Zion from that time and for all time.
 
@@ -112,7 +112,7 @@
 
 **11** Now many nations are together against you. They say, "Let Zion become unclean. We want to look at Zion and be glad."
 
-**12** But they do not know the thoughts of the LORD. They do not understand his plan. He will collect them like bundles of grain on the threshing floor.
+**12** But they do not know the thoughts of the LORD. They do not understand his plan. He will collect them like bundles of grain on the floor where people beat the grain.
 
 **13** "People of Zion, get up and crush them! I will make you strong like an ox with horns of iron. I will make your hooves of bronze. You will break many nations into pieces. You will give their stolen wealth to the LORD. You will give their property to the Lord of all the earth."
 
@@ -134,7 +134,7 @@
 
 **8** The remnant of Jacob will live among the nations. They will be like a lion among the animals of the forest. They will be like a young lion among flocks of sheep. When the lion goes through, it pushes the sheep down and tears them. No one can save the sheep.
 
-**9** You will defeat your enemies. All your enemies will be destroyed.
+**9** You will defeat your enemies. You will destroy all your enemies.
 
 **10** "On that day," says the LORD, "I will take your horses away from you. I will destroy your chariots.
 
@@ -162,7 +162,7 @@
 
 **6** What must I bring when I come to the LORD? What must I bring when I bow down to God most high? Must I come with burnt offerings? Must I bring calves that are 1 year old?
 
-**7** Will the LORD be pleased with 1,000s of rams? Will he be pleased with 10,000s of rivers of olive oil? Must I give my firstborn child for my sins? Must I give my child for the sin of my soul?
+**7** Will the LORD be happy with 1,000s of rams? Will he be happy with 10,000s of rivers of olive oil? Must I give my firstborn child for my sins? Must I give my child for the sin of my soul?
 
 **8** Man, the LORD showed you what is good. The LORD wants you to do what is right. He wants you to love mercy. He wants you to live humbly with your God.
 
@@ -176,7 +176,7 @@
 
 **13** Thus I will hit you and make you sick. I will destroy you because of your sins.
 
-**14** You will eat, but you will not be satisfied. Your stomach will stay empty. You will try to save your property, but you will not save it. I will give to the sword the things that you save.
+**14** You will eat, but you will not be full. Your stomach will stay empty. You will try to save your property, but you will not save it. I will give to the sword the things that you save.
 
 **15** You will plant seeds, but you will not harvest the crops. You will crush olives, but you will not put the oil on your body. You will crush grapes, but you will not drink the wine.
 
@@ -186,11 +186,11 @@
 
 **1** I am very sad! I am like a person who comes after the summer harvest. The workers collected all the grapes. There is no fruit to eat. I want to eat the first figs, but there are none.
 
-**2** All the good people are gone from the land. No honest person remains. All the people wait in hiding to kill. Each man hunts his brother with a net.
+**2** All the good people are gone from the land. No honest person remains. All the people hide and wait to kill. Each man hunts his brother with a net.
 
-**3** The people are skilled at doing evil things with both hands. The ruler and the judge ask for bribes. The important man tells what he wants. Together they plan evil.
+**3** The people are good at evil things with both hands. The ruler and the judge ask for bribes. The important man tells what he wants. Together they plan evil.
 
-**4** The best of them is like a thorny bush. The most honest of them is worse than a thorn hedge. The day of your punishment comes. Your watchmen told you about this day. Now the people will be confused.
+**4** The best of them is like a thorny bush. The most honest of them is worse than a thorn hedge. The day of your punishment comes. Your watchmen told you about this day. Now the people will not know what to do.
 
 **5** Do not trust a neighbor. Do not trust a friend. Be careful what you say, even to your wife.
 
@@ -214,7 +214,7 @@
 
 **15** "I will show them wonderful things, as when you came out of the land of Egypt."
 
-**16** The nations will see this and be ashamed of all their power. They will put their hands over their mouths. Their ears will become deaf.
+**16** The nations will see this and feel shame for all their power. They will put their hands over their mouths. Their ears will become deaf.
 
 **17** They will lick the dust like a snake. They will come out of their holes like worms. They will come to the LORD our God in fear. They will be afraid of you.
 

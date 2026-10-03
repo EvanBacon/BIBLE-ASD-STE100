@@ -6,13 +6,13 @@
 
 **2** Solomon spoke to all Israel. He spoke to the commanders of 1,000 men and of 100 men, to the judges, and to all the leaders in Israel. These leaders were the heads of the families.
 
-**3** Solomon and all the assembly with him went to the high place at Gibeon. The tent of meeting of God was there. Moses, the servant of the LORD, made that tent in the wilderness.
+**3** Solomon and all the assembly with him went to the high place at Gibeon. The tent of assembly of God was there. Moses, the servant of the LORD, made that tent in the wilderness.
 
 **4** But David brought the ark of God up from Kirjath-jearim to the place that he prepared for it. David put up a tent for the ark in Jerusalem.
 
 **5** Bezaleel, the son of Uri, the son of Hur, made the bronze altar. The bronze altar was in front of the tabernacle of the LORD. Solomon and the assembly went there to ask for the help of the LORD.
 
-**6** Solomon went up to the bronze altar in front of the LORD at the tent of meeting. He offered 1,000 burnt offerings on the altar.
+**6** Solomon went up to the bronze altar in front of the LORD at the tent of assembly. He offered 1,000 burnt offerings on the altar.
 
 **7** That night God appeared to Solomon. God said to him, "Ask for what you want me to give you."
 
@@ -26,7 +26,7 @@
 
 **12** Thus I will give you wisdom and knowledge. I will also give you riches, possessions, and honor. No king before you had such things. No king after you will have such things."
 
-**13** Then Solomon came back to Jerusalem from the high place at Gibeon, from the front of the tent of meeting. He ruled over Israel.
+**13** Then Solomon came back to Jerusalem from the high place at Gibeon, from the front of the tent of assembly. He ruled over Israel.
 
 **14** Solomon collected chariots and horsemen. He had 1,400 chariots and 12,000 horsemen. He put them in the chariot cities and with the king at Jerusalem.
 
@@ -60,9 +60,9 @@
 
 **11** Then Huram, the king of Tyre, wrote a letter and sent it to Solomon. Huram wrote, "The LORD loves his people. Thus he made you king over them."
 
-**12** Huram also wrote, "Praise the LORD, the God of Israel, who made heaven and earth. He gave King David a wise son. This son has good judgment and understanding. He will build a house for the LORD and a palace for himself.
+**12** Huram also wrote, "Praise the LORD, the God of Israel, who made heaven and earth. He gave King David a wise son. This son has good judgment and wisdom. He will build a house for the LORD and a palace for himself.
 
-**13** Now I send you a skilled man with much understanding. His name is Huram-abi.
+**13** Now I send you a skilled man who understands much. His name is Huram-abi.
 
 **14** His mother is from the tribe of Dan, and his father is a man from Tyre. He has skill to work in gold, silver, bronze, iron, stone, and wood. He can work in purple, blue, and red cloth and in fine linen. He can cut all types of designs. He can make each plan that you give him. He will work with your skilled men and with the skilled men of my lord David, your father.
 
@@ -76,7 +76,7 @@
 
 ## Chapter 3
 
-**1** Then Solomon started to build the house of the LORD at Jerusalem on Mount Moriah. The LORD appeared to David his father there. David prepared that place on the threshing floor of Ornan the Jebusite.
+**1** Then Solomon started to build the house of the LORD at Jerusalem on Mount Moriah. The LORD appeared to David his father there. David prepared that place on the grain floor of Ornan the Jebusite.
 
 **2** Solomon started to build on the second day of the second month, in the fourth year of his rule.
 
@@ -116,13 +116,13 @@
 
 **2** He also made a large round tank of metal, called the Sea. It was 10 cubits from rim to rim and 5 cubits high. The distance around it was 30 cubits.
 
-**3** Below the rim there were figures of oxen around the Sea, 10 for each cubit. The workers made 2 rows of oxen in the same casting as the Sea.
+**3** Below the rim there were figures of oxen around the Sea, 10 for each cubit. The workers made 2 rows of oxen when they cast the Sea, as one piece with it.
 
 **4** The Sea stood on 12 oxen. 3 oxen looked north, 3 looked west, 3 looked south, and 3 looked east. The Sea was on top of them, and the back parts of the oxen were toward the center.
 
 **5** The metal of the Sea was the width of a hand thick. Its rim was like the rim of a cup, with the shape of a lily flower. The Sea held 3,000 baths of water.
 
-**6** He also made 10 basins for washing. He put 5 on the right side and 5 on the left side. The priests washed the parts of the burnt offerings in them. But the priests used the Sea to wash themselves.
+**6** He also made 10 basins for washes. He put 5 on the right side and 5 on the left side. The priests washed the parts of the burnt offerings in them. But the priests used the Sea to wash themselves.
 
 **7** He made 10 gold lampstands, as the plan told him. He put them in the temple, 5 on the right side and 5 on the left side.
 
@@ -134,7 +134,7 @@
 
 **11** Huram also made the pots, the shovels, and the bowls. Thus Huram completed the work that he did for King Solomon in the house of God:
 
-**12** the 2 pillars, the 2 bowl-shaped capitals on the tops of the pillars, and the 2 networks of chains to cover the 2 capitals on the tops of the pillars;
+**12** He made the 2 pillars and the 2 bowl-shaped capitals on the tops of the pillars. He also made the 2 networks of chains to cover the 2 capitals on the tops of the pillars.
 
 **13** the 400 pomegranates for the 2 networks, 2 rows of pomegranates for each network, to cover the 2 bowl-shaped capitals on the pillars;
 
@@ -154,7 +154,7 @@
 
 **21** He made the flowers, the lamps, and the tongs of gold, the purest gold.
 
-**22** He made the wick cutters, the bowls, the spoons, and the fire pans of pure gold. The entrance of the house, the inner doors to the most holy place, and the doors of the main room of the temple were of gold.
+**22** He made the wick cutters, the bowls, the spoons, and the fire pans of pure gold. The entrance of the house was of gold. The inner doors to the most holy place and the doors of the main room of the temple were also of gold.
 
 ## Chapter 5
 
@@ -166,13 +166,13 @@
 
 **4** All the elders of Israel came, and the Levites lifted up the ark.
 
-**5** They brought up the ark, the tent of meeting, and all the holy items in the tent. The priests and the Levites carried them up.
+**5** They brought up the ark, the tent of the assembly, and all the holy items in the tent. The priests and the Levites carried them up.
 
 **6** King Solomon and all the assembly of Israel with him stood in front of the ark. They sacrificed sheep and oxen. There were so many animals that nobody could count them.
 
 **7** The priests brought the ark of the covenant of the LORD to its place in the inner room of the house. They put it in the most holy place, under the wings of the cherubim.
 
-**8** The cherubim spread their wings over the place of the ark. Thus the cherubim covered the ark and its carrying poles from above.
+**8** The cherubim spread their wings over the place of the ark. Thus the cherubim covered the ark and its poles from above.
 
 **9** The poles were very long. People could see the ends of the poles from the front of the inner room, but not from outside. The poles are there to this day.
 
@@ -196,7 +196,7 @@
 
 **4** He said, "Praise the LORD, the God of Israel. With his power he did the thing that he promised to my father David. He said,
 
-**5** 'Since the day that I brought my people out of the land of Egypt, I did not choose a city in a tribe of Israel to build a house for my name. I did not choose a man to rule my people Israel.
+**5** 'I brought my people out of the land of Egypt. Since that day, I did not choose a city in a tribe of Israel for a house for my name. Also, I did not choose a man to rule my people Israel.
 
 **6** But now I chose Jerusalem as the place for my name. I chose David to rule my people Israel.'
 
@@ -204,7 +204,7 @@
 
 **8** But the LORD said to David my father, 'You wanted to build a house for my name. It was good that you wanted to do this.
 
-**9** But you will not build the house. Your son, who will be born to you, will build the house for my name.'
+**9** But you will not build the house. Your son, who will come from your body, will build the house for my name.'
 
 **10** Now the LORD did the thing that he promised. I became king after David my father. I sit on the throne of Israel, as the LORD promised. I built the house for the name of the LORD, the God of Israel.
 
@@ -268,7 +268,7 @@
 
 **40** Now, my God, watch and listen to the prayers that people pray in this place.
 
-**41** Now, LORD God, go up to your resting place, you and the ark of your power. LORD God, let your priests wear salvation as clothes. Let your faithful people be happy because of your goodness.
+**41** Now, LORD God, go up to the place where you rest, you and the ark of your power. LORD God, let your priests wear salvation as clothes. Let your faithful people be happy because of your goodness.
 
 **42** LORD God, do not turn away from your anointed king. Remember your love for David your servant."
 
@@ -310,11 +310,11 @@
 
 **18** Then I will make your royal throne strong. I made this covenant with David your father. I said, 'A man from your family will always rule Israel.'
 
-**19** But you and your people can turn away from me. You can stop obeying my laws and my commands that I gave you. You can go and serve other gods and worship them.
+**19** But you and your people can turn away from me. You can reject my laws and my commands that I gave you. You can go and serve other gods and worship them.
 
 **20** If you do these things, then I will pull my people out of my land that I gave them. I will reject this house that I made holy for my name. All nations will laugh at this house and use it as an example of disaster.
 
-**21** This house is now great. But each person who goes past it will be shocked. He will say, 'Why did the LORD do this to this land and to this house?'
+**21** This house is now great. But each person who goes past it will feel horror. He will say, 'Why did the LORD do this to this land and to this house?'
 
 **22** People will answer, 'They left the LORD, the God of their ancestors, who brought them out of the land of Egypt. They took other gods, worshiped them, and served them. Thus the LORD brought all this disaster on them.'"
 
@@ -372,7 +372,7 @@
 
 **7** Your men are happy! These servants of yours are happy! They always stand in front of you and hear your wisdom.
 
-**8** Praise the LORD your God! He was pleased with you and put you on his throne as king for the LORD your God. Your God loves Israel and will make Israel strong forever. Thus he made you king over them. You will do what is fair and right."
+**8** Praise the LORD your God! He was happy with you and put you on his throne as king for the LORD your God. Your God loves Israel and will make Israel strong forever. Thus he made you king over them. You will do what is fair and right."
 
 **9** Then she gave the king 120 talents of gold, very many spices, and valuable stones. Nobody ever gave King Solomon spices like the spices from the queen of Sheba.
 
@@ -392,7 +392,7 @@
 
 **17** The king also made a large throne of ivory and covered it with pure gold.
 
-**18** The throne had 6 steps and a gold footstool. The steps and the footstool were attached to the throne. There were armrests on each side of the seat. 2 lions stood next to the armrests.
+**18** The throne had 6 steps and a gold footstool, which joined to the throne. There were armrests on each side of the seat. 2 lions stood next to the armrests.
 
 **19** 12 lions stood on the 6 steps, one at each end of each step. Nobody made a throne like this in any other kingdom.
 
@@ -440,7 +440,7 @@
 
 **9** He said to them, "What answer do you tell me to give to these people? They said to me, 'Make the load that your father put on us lighter.'"
 
-**10** The young men who grew up with him said to him, "The people said to you, 'Your father made our load heavy, but make it lighter for us.' Tell them this: 'My little finger is thicker than the waist of my father.
+**10** The young men who grew up with him spoke to him. They said, "The people said to you, 'Your father made our load heavy. Make it lighter for us.' Tell them this: 'My little finger is thicker than the waist of my father.
 
 **11** My father put a heavy load on you, but I will make your load heavier. My father punished you with whips, but I will punish you with scorpions.'"
 
@@ -510,7 +510,7 @@
 
 ## Chapter 12
 
-**1** Rehoboam made his kingdom firm and became strong. Then he stopped obeying the law of the LORD, and all Israel stopped with him.
+**1** Rehoboam made his kingdom firm and became strong. Then he left the law of the LORD, and all Israel left it with him.
 
 **2** In the fifth year of King Rehoboam, Shishak, the king of Egypt, attacked Jerusalem. This occurred because the people were not faithful to the LORD.
 
@@ -552,7 +552,7 @@
 
 **4** Abijah stood on Mount Zemaraim in the hill country of Ephraim. He said, "Jeroboam and all Israel, listen to me!
 
-**5** You must know that the LORD, the God of Israel, gave the rule over Israel to David and his sons forever. He did this with a covenant that cannot be broken.
+**5** You must know that the LORD, the God of Israel, gave the rule over Israel to David and his sons forever. He did this with a covenant of salt. No one can break this covenant.
 
 **6** But Jeroboam, the son of Nebat, rebelled against his master. Jeroboam was the servant of Solomon, the son of David.
 
@@ -636,7 +636,7 @@
 
 **7** But you must be strong. Do not stop your work, because God will reward your work."
 
-**8** Asa heard these words, the prophecy of Azariah, the son of Oded the prophet. Then he became brave. He removed the disgusting idols from all the land of Judah and Benjamin. He also removed them from the cities that he took in the hill country of Ephraim. He repaired the altar of the LORD in front of the porch of the house of the LORD.
+**8** Asa heard these words, the prophecy of Azariah, the son of Oded the prophet. Then he became brave. He removed the detestable idols from all the land of Judah and Benjamin. He also removed them from the cities that he took in the hill country of Ephraim. He repaired the altar of the LORD in front of the porch of the house of the LORD.
 
 **9** He collected all the people of Judah and Benjamin. He also collected the people from Ephraim, Manasseh, and Simeon who lived with them. Many people from Israel came to Asa, because they saw that the LORD his God was with him.
 
@@ -652,7 +652,7 @@
 
 **15** All Judah was happy about the oath, because they made the oath with all their heart. They looked for the LORD with all their desire, and they found him. The LORD gave them peace on all sides.
 
-**16** King Asa also removed Maachah, his grandmother, from her position as queen mother. He did this because she made a disgusting Asherah idol. Asa cut down her idol, broke it into pieces, and burned it at the Kidron Valley.
+**16** King Asa also removed Maachah, his grandmother, from her position as queen mother. He did this because she made a horrible Asherah idol. Asa cut down her idol, broke it into pieces, and burned it at the Kidron Valley.
 
 **17** Asa did not remove the high places from Israel. But the heart of Asa was completely faithful to the LORD all his life.
 
@@ -662,7 +662,7 @@
 
 ## Chapter 16
 
-**1** In the thirty-sixth year of the rule of Asa, Baasha, the king of Israel, attacked Judah. He built a fort at Ramah. He did this to stop all people from going to Asa, the king of Judah, or from coming out from him.
+**1** In the 36th year of the rule of Asa, Baasha, the king of Israel, attacked Judah. He built a fort at Ramah. He did this to stop all people who wanted to go to Asa, the king of Judah, or come out from him.
 
 **2** Then Asa took silver and gold from the treasuries of the house of the LORD and of the palace of the king. He sent it to Ben-hadad, the king of Syria, who lived in Damascus. Asa said,
 
@@ -758,7 +758,7 @@
 
 **13** But Micaiah said, "The LORD is alive. As surely as he lives, I will say what my God tells me."
 
-**14** Micaiah came to the king. The king said to him, "Micaiah, must we go to fight at Ramoth-gilead, or must I not go?" Micaiah said, "Go up and win. The enemy will be given into your power."
+**14** Micaiah came to the king. The king said to him, "Micaiah, must we go to fight at Ramoth-gilead, or must I not go?" Micaiah said, "Go up and win. The LORD will give the enemy into your power."
 
 **15** The king said to him, "How many times must I tell you to make an oath? Tell me only the truth in the name of the LORD."
 
@@ -796,7 +796,7 @@
 
 **32** The commanders of the chariots saw that he was not the king of Israel. Then they stopped their chase of him.
 
-**33** But a man shot an arrow at random. The arrow hit the king of Israel between the parts of his armor. The king said to his chariot driver, "Turn around and take me out of the battle. I am wounded."
+**33** But a man shot an arrow at random. The arrow hit the king of Israel between the parts of his armor. The king said to his chariot driver, "Turn around and take me out of the battle. I have a bad wound."
 
 **34** The battle became worse all that day. The king of Israel stayed up in his chariot and faced the Syrians until the evening. At sunset he died.
 
@@ -868,7 +868,7 @@
 
 **21** Jehoshaphat talked with the people. Then he chose men to sing to the LORD and to praise him for his holy beauty. The singers went in front of the army. They sang, "Thank the LORD, because his love continues forever."
 
-**22** When they started to sing and praise, the LORD put an ambush against the people of Ammon, Moab, and Mount Seir. These people came to attack Judah, and they were defeated.
+**22** When they started to sing and praise, the LORD put an ambush against the people of Ammon, Moab, and Mount Seir. These people came to attack Judah, and the ambush defeated them.
 
 **23** The people of Ammon and Moab attacked the people of Mount Seir. They killed them and destroyed them completely. After they destroyed the people of Seir, they attacked and destroyed each other.
 
@@ -898,7 +898,7 @@
 
 **36** Jehoshaphat agreed with Ahaziah to build ships to go to Tarshish. They built the ships in Ezion-geber.
 
-**37** Then Eliezer, the son of Dodavah from Mareshah, spoke a prophecy against Jehoshaphat. He said, "You made an alliance with Ahaziah. Thus the LORD will destroy the things that you made." The ships were wrecked and could not go to Tarshish.
+**37** Then Eliezer, the son of Dodavah from Mareshah, spoke a prophecy against Jehoshaphat. He said, "You made an alliance with Ahaziah. Thus the LORD will destroy the things that you made." The ships broke apart and could not go to Tarshish.
 
 ## Chapter 21
 
@@ -924,7 +924,7 @@
 
 **11** Jehoram also made high places in the hill country of Judah. He caused the people of Jerusalem to be unfaithful to God. He made the people of Judah turn away from God.
 
-**12** Then a letter came to Jehoram from Elijah the prophet. The letter said, "The LORD, the God of your ancestor David, says this: 'You did not live in the ways of Jehoshaphat your father or in the ways of Asa, the king of Judah.
+**12** Then a letter came to Jehoram from Elijah the prophet. The letter said, "The LORD, the God of your ancestor David, says this. 'You did not live in the ways of Jehoshaphat your father. You did not live in the ways of Asa, the king of Judah.
 
 **13** But you lived in the way of the kings of Israel. You caused Judah and the people of Jerusalem to be unfaithful to God, as the family of Ahab did. You also killed your brothers, the family of your father. They were better than you.
 
@@ -964,13 +964,13 @@
 
 **10** Athaliah, the mother of Ahaziah, saw that her son was dead. Then she killed all the royal family of Judah.
 
-**11** But Jehoshabeath, the daughter of the king, took Joash, the son of Ahaziah. She took him secretly from among the sons of the king who were killed. She put him and his nurse in a bedroom. Jehoshabeath was the daughter of King Jehoram and the wife of Jehoiada the priest. She was also the sister of Ahaziah. She hid Joash from Athaliah, and thus Athaliah did not kill him.
+**11** But Jehoshabeath, the daughter of the king, took Joash, the son of Ahaziah. She took him secretly from among the sons of the king, when Athaliah killed them. She put him and his nurse in a bedroom. Jehoshabeath was the daughter of King Jehoram and the wife of Jehoiada the priest. She was also the sister of Ahaziah. She hid Joash from Athaliah, and thus Athaliah did not kill him.
 
 **12** Joash stayed hidden with them in the house of God for 6 years. During this time Athaliah ruled the land.
 
 ## Chapter 23
 
-**1** In the seventh year, Jehoiada became brave. He made a covenant with the commanders of groups of 100 men. These commanders were Azariah, the son of Jeroham; Ishmael, the son of Jehohanan; Azariah, the son of Obed; Maaseiah, the son of Adaiah; and Elishaphat, the son of Zichri.
+**1** In the 7th year, Jehoiada became brave. He made a covenant with the commanders of groups of 100 men. These commanders were Azariah, the son of Jeroham, and Ishmael, the son of Jehohanan. The other commanders were Azariah, the son of Obed, Maaseiah, the son of Adaiah, and Elishaphat, the son of Zichri.
 
 **2** They went through Judah. They collected the Levites from all the cities of Judah and the heads of the families of Israel. These people came to Jerusalem.
 
@@ -1040,11 +1040,11 @@
 
 **13** The workers did their work, and the repairs continued well under their control. They made the house of God as it was before and made it strong.
 
-**14** When they completed the work, they brought the remaining money to the king and Jehoiada. With the money they made items for the house of the LORD. They made items for the service and for the burnt offerings. They also made spoons and other items of gold and silver. While Jehoiada lived, the people offered burnt offerings in the house of the LORD all the time.
+**14** When they completed the work, they brought the rest of the money to the king and Jehoiada. With the money they made items for the house of the LORD. They made items for the service and for the burnt offerings. They also made spoons and other items of gold and silver. While Jehoiada lived, the people offered burnt offerings in the house of the LORD all the time.
 
 **15** Jehoiada became very old and died. He was 130 years old when he died.
 
-**16** The people buried him with the kings in the City of David, because he did good things in Israel for God and for the house of God.
+**16** The people buried him with the kings in the City of David. They did this because he did good things in Israel for God and for the house of God.
 
 **17** After the death of Jehoiada, the leaders of Judah came and bowed in front of the king. Then the king listened to them.
 
@@ -1064,7 +1064,7 @@
 
 **25** The Syrians went away and left Joash badly wounded. Then his own servants made a plan against him because he killed the son of Jehoiada the priest. They killed Joash on his bed, and he died. The people buried him in the City of David, but not in the tombs of the kings.
 
-**26** These are the men who made the plan against him: Zabad, the son of Shimeath, an Ammonite woman, and Jehozabad, the son of Shimrith, a Moabite woman.
+**26** These are the men who made the plan against him. One was Zabad, the son of Shimeath, an Ammonite woman. The other was Jehozabad, the son of Shimrith, a Moabite woman.
 
 **27** The record of his sons, the many prophecies against him, and the repairs of the house of God are in the book of the kings. Amaziah his son became king after him.
 
@@ -1104,7 +1104,7 @@
 
 **17** Then Amaziah, the king of Judah, got advice. He sent a message to Joash, the son of Jehoahaz, the son of Jehu, the king of Israel. The message said, "Come, we will meet in battle."
 
-**18** But Joash, the king of Israel, sent this answer to Amaziah, the king of Judah: "A thistle in Lebanon sent a message to a cedar in Lebanon. The thistle said, 'Give your daughter to my son as a wife.' Then a wild animal in Lebanon went past and walked on the thistle.
+**18** Joash, the king of Israel, sent an answer to Amaziah, the king of Judah. He said, "A thistle in Lebanon sent a message to a cedar in Lebanon. The thistle said, 'Give your daughter to my son as a wife.' Then a wild animal in Lebanon went past and walked on the thistle.
 
 **19** You say that you defeated Edom. Now you are proud and you boast. Stay at home! Why do you cause trouble for yourself? You will fall, and Judah will fall with you."
 
@@ -1146,7 +1146,7 @@
 
 **9** Uzziah built towers in Jerusalem at the Corner Gate, at the Valley Gate, and at the corner of the wall. He made these towers strong.
 
-**10** He also built towers in the wilderness and dug many wells, because he had many animals in the low hills and in the plains. He had farmers and vineyard workers in the hills and in the fertile land, because he loved farming.
+**10** He also built towers in the wilderness and dug many wells, because he had many animals in the low hills and in the plains. He had farmers and vineyard workers in the hills and in the fertile land, because he loved to work the soil.
 
 **11** Uzziah had an army of soldiers ready for war. They went out to battle in divisions. Jeiel the secretary and Maaseiah the officer counted them. Hananiah, one of the commanders of the king, controlled them.
 
@@ -1200,7 +1200,7 @@
 
 **2** He lived in the ways of the kings of Israel. He also made metal idols of the Baals.
 
-**3** He burned incense in the Valley of the Son of Hinnom. He burned his sons as sacrifices in the fire. He did the disgusting things of the nations that the LORD pushed out in front of the people of Israel.
+**3** He burned incense in the Valley of the Son of Hinnom. He burned his sons as sacrifices in the fire. He did the detestable things of the nations that the LORD pushed out in front of the people of Israel.
 
 **4** He offered sacrifices and burned incense at the high places, on the hills, and under each green tree.
 
@@ -1246,7 +1246,7 @@
 
 **25** In each city of Judah he made high places to burn incense to other gods. Thus he made the LORD, the God of his ancestors, angry.
 
-**26** The other actions of Ahaz and all his ways, from the start to the end, are in the book of the kings of Judah and Israel.
+**26** The other actions of Ahaz and all his ways, from the start to the end, are in a book. It is the book of the kings of Judah and Israel.
 
 **27** Then Ahaz died. The people buried him in the city of Jerusalem. But they did not put him in the tombs of the kings of Israel. Hezekiah his son became king after him.
 
@@ -1292,7 +1292,7 @@
 
 **20** King Hezekiah got up early. He collected the leaders of the city and went up to the house of the LORD.
 
-**21** They brought 7 bulls, 7 rams, 7 lambs, and 7 male goats as a sin offering for the kingdom, for the holy place, and for Judah. The king commanded the priests, the descendants of Aaron, to offer them on the altar of the LORD.
+**21** They brought 7 bulls, 7 rams, 7 lambs, and 7 male goats. These were a sin offering for the kingdom, for the holy place, and for Judah. The king commanded the priests, the descendants of Aaron, to offer them on the altar of the LORD.
 
 **22** Thus the priests killed the bulls, took the blood, and put it on the altar. Then they killed the rams and put the blood on the altar. They also killed the lambs and put the blood on the altar.
 
@@ -1314,7 +1314,7 @@
 
 **31** Then Hezekiah said, "Now you gave yourselves to the LORD. Come near and bring sacrifices and thank offerings to the house of the LORD." The assembly brought sacrifices and thank offerings. All the people who wanted to give also brought burnt offerings.
 
-**32** The assembly brought 70 bulls, 100 rams, and 200 lambs. All these were burnt offerings to the LORD.
+**32** The assembly brought 70 bulls, 100 rams, and 200 lambs as burnt offerings to the LORD.
 
 **33** The holy offerings were 600 oxen and 3,000 sheep.
 
@@ -1354,7 +1354,7 @@
 
 **14** They removed the altars in Jerusalem. They also removed all the incense altars and threw them into the Kidron Valley.
 
-**15** Then they killed the Passover lambs on the fourteenth day of the second month. The priests and the Levites were ashamed, and they made themselves holy. They brought burnt offerings to the house of the LORD.
+**15** Then they killed the Passover lambs on the 14th day of the 2nd month. The priests and the Levites felt shame, and they made themselves holy. They brought burnt offerings to the house of the LORD.
 
 **16** They stood in their usual places, as the law of Moses, the man of God, told. The Levites gave the blood to the priests, and the priests put the blood on the altar.
 
@@ -1390,7 +1390,7 @@
 
 **4** He commanded the people who lived in Jerusalem to give the priests and the Levites their share. Then the priests and the Levites could give all their time to the law of the LORD.
 
-**5** When the command went out, the Israelites quickly gave much of the first part of their grain, new wine, olive oil, honey, and all the crops of the field. They brought a large quantity of the tenth part of all things.
+**5** When the command went out, the Israelites quickly gave much of their first harvest. They gave the first part of their grain, new wine, olive oil, honey, and all the crops of the field. They brought a large quantity of the tenth part of all things.
 
 **6** The people of Israel and Judah who lived in the cities of Judah also brought the tenth part of their oxen and sheep. They also brought the tenth part of the holy things that they gave to the LORD their God. They put these things in piles.
 
@@ -1496,7 +1496,7 @@
 
 **1** Manasseh was 12 years old when he became king. He ruled for 55 years in Jerusalem.
 
-**2** He did evil in the sight of the LORD. He did the disgusting things of the nations that the LORD pushed out in front of the people of Israel.
+**2** He did evil in the sight of the LORD. He did the detestable things of the nations that the LORD pushed out in front of the people of Israel.
 
 **3** He built again the high places that his father Hezekiah destroyed. He built altars for the Baals and made Asherah poles. He worshiped and served all the stars in the sky.
 
@@ -1504,7 +1504,7 @@
 
 **5** He built altars for all the stars in the sky in the 2 courts of the house of the LORD.
 
-**6** He burned his sons as sacrifices in the Valley of the Son of Hinnom. He used magic and fortune-telling and witchcraft. He asked for advice from people who talked to the spirits of the dead. He did much evil in the sight of the LORD and made him angry.
+**6** He burned his sons as sacrifices in the Valley of the Son of Hinnom. He used magic, divination, and witchcraft. He asked for advice from people who talked to the spirits of the dead. He did much evil in the sight of the LORD and made him angry.
 
 **7** He made an idol and put it in the house of God. God said about this house to David and to his son Solomon, "I chose Jerusalem from all the tribes of Israel. I will put my name forever in this house and in Jerusalem.
 
@@ -1528,7 +1528,7 @@
 
 **17** But the people still offered sacrifices at the high places, but only to the LORD their God.
 
-**18** The other actions of Manasseh, his prayer to his God, and the words of the seers who spoke to him in the name of the LORD, the God of Israel, are in the records of the kings of Israel.
+**18** Manasseh did other things. His other actions, his prayer to his God, and the words of the seers are in the records of the kings of Israel. These seers spoke to him in the name of the LORD, the God of Israel.
 
 **19** His prayer and how God heard him are in the records of the seers. All his sins and his unfaithfulness are also there. These records also tell about the places where he built high places and put up Asherah poles and idols before he made himself humble.
 
@@ -1562,7 +1562,7 @@
 
 **8** In the eighteenth year of his rule, Josiah made the land and the house of the LORD clean. Then he sent Shaphan, the son of Azaliah, Maaseiah, the governor of the city, and Joah, the son of Joahaz, the record keeper. He sent them to repair the house of the LORD his God.
 
-**9** They came to Hilkiah, the high priest. They gave him the money that the people brought into the house of God. The Levites who guarded the doors collected this money. They collected it from the people of Manasseh, Ephraim, and all the rest of Israel, and from all Judah and Benjamin, and from the people of Jerusalem.
+**9** They came to Hilkiah, the high priest. They gave him the money that the people brought into the house of God. The Levites who guarded the doors collected this money. They collected it from the people of Manasseh, Ephraim, and all the rest of Israel. They also collected it from all Judah and Benjamin. Then they went back to Jerusalem.
 
 **10** They gave the money to the men who supervised the work on the house of the LORD. These men paid the workers who repaired the house of the LORD.
 
@@ -1584,7 +1584,7 @@
 
 **19** The king heard the words of the law. Then he tore his clothes.
 
-**20** The king gave a command to Hilkiah, Ahikam, the son of Shaphan, Abdon, the son of Micah, Shaphan the secretary, and Asaiah, the servant of the king. He said,
+**20** The king gave a command to Hilkiah, to Ahikam the son of Shaphan, and to Abdon the son of Micah. He also gave it to Shaphan the secretary and to Asaiah, the servant of the king. He said,
 
 **21** "Go and ask the LORD for me and for the people who remain in Israel and in Judah. Ask about the words of this book that Hilkiah found. The LORD is very angry with us. Our ancestors did not obey the word of the LORD. They did not do all the things that this book tells."
 
@@ -1596,21 +1596,21 @@
 
 **25** The people left me. They burned incense to other gods. They made me angry with all the idols that they made with their hands. Thus my anger will come on this place, and nothing will stop it."'
 
-**26** But tell the king of Judah, who sent you to ask the LORD, 'The LORD, the God of Israel, says this about the words that you heard:
+**26** The king of Judah sent you to ask the LORD. Tell him, 'The LORD, the God of Israel, says this about the words that you heard:
 
 **27** "Your heart was sensitive, and you made yourself humble in front of God. You heard his words against this place and against its people. You made yourself humble in front of me, tore your clothes, and cried in front of me. Thus I heard you," says the LORD.
 
-**28** "Look, I will let you die and join your ancestors. You will be buried in peace. You will not see all the disaster that I will bring on this place and on its people."'" Then the men took her answer back to the king.
+**28** "Look, I will let you die and join your ancestors. You will go to your grave in peace. You will not see the disaster that I will bring on this place and its people."'" The men took her answer back to the king.
 
 **29** Then the king sent messengers and collected all the elders of Judah and Jerusalem.
 
-**30** The king went up to the house of the LORD. All the men of Judah, the people of Jerusalem, the priests, the Levites, and all the people, from the least important to the most important, went with him. The king read to them all the words of the book of the covenant that Hilkiah found in the house of the LORD.
+**30** The king went up to the house of the LORD. All the men of Judah, the people of Jerusalem, the priests, and the Levites went with him. All the people, from the least important to the most important, also went. The king read to them all the words of the book of the covenant. Hilkiah found this book in the house of the LORD.
 
 **31** The king stood in his place. He made a covenant in front of the LORD. He agreed to follow the LORD and to obey his commands, his laws, and his rules with all his heart and all his soul. He agreed to obey the words of the covenant in this book.
 
 **32** Then he made all the people in Jerusalem and Benjamin agree to the covenant. The people of Jerusalem obeyed the covenant of God, the God of their ancestors.
 
-**33** Josiah removed all the disgusting idols from all the land of the Israelites. He made all the people in Israel serve the LORD their God. While Josiah lived, they did not stop obeying the LORD, the God of their ancestors.
+**33** Josiah removed all the detestable idols from all the land of the Israelites. He made all the people in Israel serve the LORD their God. While Josiah lived, they did not turn away from the LORD, the God of their ancestors.
 
 ## Chapter 35
 
@@ -1618,7 +1618,7 @@
 
 **2** He put the priests in their positions and encouraged them in the service of the house of the LORD.
 
-**3** He said to the Levites who taught all Israel and who were holy to the LORD, "Put the holy ark in the house that Solomon, the son of David, the king of Israel, built. You do not have to carry the ark on your shoulders. Now serve the LORD your God and his people Israel.
+**3** He spoke to the Levites who taught all Israel. These Levites were holy to the LORD. He said, "Put the holy ark in the house that Solomon built. Solomon was the son of David, the king of Israel. You do not have to carry the ark on your shoulders. Now serve the LORD your God and his people Israel.
 
 **4** Prepare yourselves by your families and by your divisions. Obey the written rules of David, the king of Israel, and of his son Solomon.
 
@@ -1628,7 +1628,7 @@
 
 **7** Josiah gave to the people 30,000 lambs and young goats from his own flocks for the Passover offerings. He also gave 3,000 bulls. He gave these animals to all the people who were there. These animals were from the possessions of the king.
 
-**8** His officials also gave willingly to the people, to the priests, and to the Levites. Hilkiah, Zechariah, and Jehiel, the officials in charge of the house of God, gave the priests 2,600 lambs and young goats and 300 oxen for the Passover offerings.
+**8** His officials also gave willingly to the people, to the priests, and to the Levites. Hilkiah, Zechariah, and Jehiel were the officials in charge of the house of God. They gave the priests 2,600 lambs and young goats and 300 oxen for the Passover offerings.
 
 **9** Conaniah and his brothers Shemaiah and Nethaneel, and Hashabiah, Jeiel, and Jozabad, the leaders of the Levites, also gave animals. They gave the Levites 5,000 lambs and young goats and 500 oxen for the Passover offerings.
 
@@ -1662,7 +1662,7 @@
 
 **24** Thus his servants took him out of his chariot. They put him in his second chariot and brought him to Jerusalem. There he died. The people buried him in the tombs of his ancestors. All Judah and Jerusalem mourned for Josiah.
 
-**25** Jeremiah wrote songs of grief for Josiah. To this day, all the male and female singers sing about Josiah in their songs of grief. These songs became a custom in Israel. They are written in the book of Laments.
+**25** Jeremiah wrote songs of grief for Josiah. To this day, all the male and female singers sing about Josiah in their songs of grief. These songs became a custom in Israel. People wrote them in the book of Laments.
 
 **26** The other actions of Josiah and his good deeds in obedience to the law of the LORD
 
@@ -1684,7 +1684,7 @@
 
 **7** Nebuchadnezzar also took some items from the house of the LORD to Babylon. He put them in his temple in Babylon.
 
-**8** The other actions of Jehoiakim, the disgusting things that he did, and the evil in him are in the book of the kings of Israel and Judah. Jehoiachin his son became king after him.
+**8** The other actions of Jehoiakim, the detestable things that he did, and the evil in him are in a book. It is the book of the kings of Israel and Judah. Jehoiachin his son became king after him.
 
 **9** Jehoiachin was 8 years old when he became king. He ruled for 3 months and 10 days in Jerusalem. He did evil in the sight of the LORD.
 
@@ -1696,7 +1696,7 @@
 
 **13** Zedekiah also rebelled against King Nebuchadnezzar. Nebuchadnezzar made him promise loyalty with an oath in the name of God. But Zedekiah was stubborn. He refused to turn back to the LORD, the God of Israel.
 
-**14** Also, all the leaders of the priests and the people became more and more unfaithful. They did all the disgusting things of the other nations. They made the house of the LORD unclean. The LORD made this house holy in Jerusalem.
+**14** Also, all the leaders of the priests and the people became more and more unfaithful. They did all the detestable things of the other nations. They made the house of the LORD unclean. The LORD made this house holy in Jerusalem.
 
 **15** The LORD, the God of their ancestors, sent his messengers to them again and again. He did this because he had pity on his people and on his house.
 

@@ -12,7 +12,7 @@
 
 **5** Give glory to God forever and ever. Amen.
 
-**6** I am surprised that you leave God so quickly. God called you through the grace of Christ. But now you turn to a different gospel.
+**6** It is a surprise to me that you leave God so quickly. God called you through the grace of Christ. But now you turn to a different gospel.
 
 **7** That gospel is not really a gospel. But some people cause you trouble. They want to change the gospel of Christ.
 
@@ -20,7 +20,7 @@
 
 **9** We said this before, and now I say it again. If a person preaches to you a gospel that is different from the gospel that you received, let God curse that person.
 
-**10** Do I try to get the approval of people, or the approval of God? Do I try to please people? If I continued to please people, I would not be a servant of Christ.
+**10** Do I try to get the approval of people, or the approval of God? Do I try to please people? If I continue to please people, I am not a servant of Christ.
 
 **11** Brothers, I want you to know this: The gospel that I preached does not come from people.
 
@@ -30,7 +30,7 @@
 
 **14** In the Jewish religion I was better than many people of my age in my nation. I had a very strong devotion to the traditions of my ancestors.
 
-**15** But God chose me before I was born. He called me through his grace. Then God decided
+**15** But God chose me before my mother gave birth to me. He called me through his grace. Then God decided
 
 **16** to show his Son to me. God wanted me to preach about his Son among the Gentiles (people who are not Jews). At that time I did not ask any person for advice.
 
@@ -64,7 +64,7 @@
 
 **6** Some men seemed to be important leaders. What they were before is not important to me, because God does not judge by appearance. These leaders added nothing to my message.
 
-**7** But they saw that God gave me the work of preaching the gospel to the Gentiles. In the same way, God gave Peter the work of preaching to the Jews.
+**7** But they saw that God gave me the work to preach the gospel to the Gentiles. In the same way, God gave Peter the work to preach to the Jews.
 
 **8** God worked through Peter to make him an apostle to the Jews. God also worked through me to make me an apostle to the Gentiles.
 
@@ -82,7 +82,7 @@
 
 **15** We are Jews by birth. We are not Gentile sinners.
 
-**16** But we know that a person does not become righteous before God by obeying the law. He becomes righteous by faith in Jesus Christ. So we also believed in Christ Jesus. We wanted God to make us righteous by faith in Christ, not by the law. No person will become righteous by obeying the law.
+**16** But we know that a person does not become righteous before God when he obeys the law. He becomes righteous by faith in Jesus Christ. So we also believed in Christ Jesus. We wanted God to make us righteous by faith in Christ, not by the law. No person will become righteous because he obeys the law.
 
 **17** We try to become righteous through Christ. But possibly people find that we are still sinners. Does that mean that Christ causes sin? No!
 
@@ -110,11 +110,11 @@
 
 **7** Thus, you know that the people who have faith are the children of Abraham.
 
-**8** The scripture said before that God would make the Gentiles righteous through faith. So the scripture told the good news to Abraham before: "Through you, God will bless all nations."
+**8** The scripture said before that God will make the Gentiles righteous through faith. So the scripture told the good news to Abraham before: "Through you, God will bless all nations."
 
 **9** Thus, the people who have faith receive the blessing with Abraham, who had faith.
 
-**10** All people who depend on obeying the law are under a curse. The scripture says, "God curses each person who does not obey all the things in the book of the law."
+**10** All people who depend on the works of the law are under a curse. The scripture says, "God curses each person who does not obey all the things in the book of the law."
 
 **11** It is clear that no person becomes righteous before God by the law. The scripture says, "The righteous person will live by faith."
 
@@ -122,7 +122,7 @@
 
 **13** Christ made us free from the curse of the law. He took the curse on himself for us. The scripture says, "God curses each person who hangs on a tree."
 
-**14** Christ did this so that the blessing of Abraham would come to the Gentiles through Christ Jesus. Thus, we can receive the promised Spirit through faith.
+**14** Christ did this so that the blessing of Abraham can come to the Gentiles through Christ Jesus. Thus, we can receive the promised Spirit through faith.
 
 **15** Brothers, I will use an example from daily life. When people agree to a covenant (agreement) and confirm it, no person can cancel it. And no person can add to it.
 
@@ -136,7 +136,7 @@
 
 **20** A man who goes between 2 groups does not act for 1 group only. But God is one.
 
-**21** Is the law against the promises of God? No! If God gave a law that could give life, then people would become righteous by the law.
+**21** Is the law against the promises of God? No! If God gave a law that could give life, then people became righteous by the law.
 
 **22** But the scripture says that all people are prisoners of sin. Thus, God gives the promise to the people who believe in Jesus Christ.
 
@@ -184,7 +184,7 @@
 
 **14** My sickness was a test for you. But you did not hate me or reject me. You received me as an angel of God. You received me as if I was Christ Jesus.
 
-**15** You were very happy then. What happened to that joy? I am a witness that you would have removed your own eyes and given them to me, if possible.
+**15** You were very happy then. What happened to that joy? I am a witness of this: if you could, you were ready to take out your own eyes and give them to me.
 
 **16** Did I become your enemy because I tell you the truth?
 
@@ -200,9 +200,9 @@
 
 **22** The scripture says that Abraham had 2 sons. 1 son was from a slave woman. The other son was from a free woman.
 
-**23** The son of the slave woman was born in the natural way. But the son of the free woman was born because of the promise of God.
+**23** The son of the slave woman came into the world in the natural way. But the son of the free woman came because of the promise of God.
 
-**24** These things are an example. The 2 women are like 2 covenants. One covenant is from Mount Sinai. Its children are born as slaves. This covenant is Hagar.
+**24** These things are an example. The 2 women are like 2 covenants. One covenant is from Mount Sinai. Its children become slaves. This covenant is Hagar.
 
 **25** Hagar is like Mount Sinai in Arabia. She is like the city of Jerusalem now. Jerusalem and her children are slaves.
 
@@ -212,7 +212,7 @@
 
 **28** Brothers, you are children of the promise, as Isaac was.
 
-**29** At that time, the son who was born in the natural way attacked the son who was born by the Spirit. It is the same now.
+**29** At that time, the son who came in the natural way attacked the son who came by the Spirit. It is the same now.
 
 **30** But what does the scripture say? "Send away the slave woman and her son. The son of the slave woman will not share the inheritance with the son of the free woman."
 
@@ -232,7 +232,7 @@
 
 **6** In Christ Jesus, circumcision has no value. And no circumcision has no value. The important thing is faith that shows itself through love.
 
-**7** You lived very well. Who stopped you from obeying the truth?
+**7** You lived very well. Who stopped you? Who caused you to not obey the truth?
 
 **8** That persuasion does not come from God, who calls you.
 
@@ -242,7 +242,7 @@
 
 **11** Brothers, if I still preach circumcision, then why do people still attack me? If I preach circumcision, then the cross no longer offends people.
 
-**12** I wish that the people who cause you trouble would cut themselves off completely!
+**12** I wish that the people who cause you trouble will cut themselves off completely!
 
 **13** Brothers, God called you to be free. But do not use your freedom as an opportunity to sin. Serve each other with love.
 
@@ -274,7 +274,7 @@
 
 ## Chapter 6
 
-**1** Brothers, possibly a person does a sin. Then you who are spiritual must help that person to come back. Help him gently. Be careful, because you can also be tempted.
+**1** Brothers, possibly a person does a sin. Then you who are spiritual must help that person to come back. Help him gently. Be careful, because temptation can also come to you.
 
 **2** Help each other with your difficulties. Thus, you will obey the law of Christ.
 

@@ -42,7 +42,7 @@
 
 **20** Peter said, "The Book of Psalms says, 'Let his house become empty. Let no person live in it.' It also says, 'Let a different man take his position.'
 
-**21** Thus we must choose 1 of the men who were with us during all the time that the Lord Jesus went in and out among us.
+**21** Thus we must choose 1 of the men who were with us. They were with us all the time that the Lord Jesus went in and out among us.
 
 **22** That time started when John baptized Jesus. It continued until the day when God took Jesus up from us. The man that we choose must speak with us about the resurrection of Jesus."
 
@@ -66,11 +66,11 @@
 
 **5** Jews lived in Jerusalem at that time. They were religious men from each nation of the world.
 
-**6** When they heard this sound, a large crowd came together. The people were confused, because each man heard them speak in his own language.
+**6** When they heard this sound, a large crowd came together. The people did not understand what occurred, because each man heard them speak in his own language.
 
 **7** All of them were very surprised. They said to each other, "Look, are all these men who speak not from Galilee?
 
-**8** Then how does each of us hear them speak in the language of the country where we were born?
+**8** Then how does each of us hear them speak in the language of our own birthplace?
 
 **9** We are Parthians, Medes, and Elamites. We are people who live in Mesopotamia, Judea, Cappadocia, Pontus, and Asia.
 
@@ -78,7 +78,7 @@
 
 **11** We are Cretans and Arabians. We hear them speak in our own languages about the great works of God."
 
-**12** All of them were surprised and confused. They said to each other, "What does this mean?"
+**12** All of them were full of wonder and doubt. They said to each other, "What does this mean?"
 
 **13** Other people laughed at them and said, "These men drank too much new wine."
 
@@ -100,7 +100,7 @@
 
 **22** Men of Israel, listen to these words. Jesus of Nazareth was a man whom God showed to you. God did miracles, wonders, and signs through him among you. You know this.
 
-**23** God planned and knew before that Jesus was to be given to you. You took him. With the help of evil men, you crucified him and killed him.
+**23** God planned this and knew it before. He let people give Jesus to you. You took him. With the help of evil men, you crucified him and killed him.
 
 **24** But God brought him back to life. God made him free from the pain of death. Death could not keep him.
 
@@ -138,7 +138,7 @@
 
 **41** Then the people who received his message got baptism. About 3,000 people joined them on that day.
 
-**42** They continued in the teaching of the apostles and in their fellowship. They continued to break bread together and to pray.
+**42** They continued to learn from the words of the apostles. They continued in their fellowship. They continued to break bread together and to pray.
 
 **43** All the people felt fear. The apostles did many wonders and signs.
 
@@ -160,7 +160,7 @@
 
 **4** Peter and John looked at him. Peter said, "Look at us."
 
-**5** The man looked at them, because he thought that he would get something from them.
+**5** The man looked at them. He thought, "I will get something from them."
 
 **6** Then Peter said, "I have no silver or gold. But I give you the thing that I have. In the name of Jesus Christ of Nazareth, get up and walk."
 
@@ -230,7 +230,7 @@
 
 **12** No other person can save us. There is no other name under heaven that God gave to people to save us."
 
-**13** The leaders saw that Peter and John were brave. They knew that Peter and John did not go to school and were ordinary men. The leaders were surprised. They knew that these men were with Jesus.
+**13** The leaders saw that Peter and John were brave. They knew that Peter and John did not go to school and were ordinary men. The leaders were full of wonder. They knew that these men were with Jesus.
 
 **14** They saw the healed man stand with Peter and John. Thus they could say nothing against them.
 
@@ -250,7 +250,7 @@
 
 **22** The man whom they healed by this miracle was more than 40 years old.
 
-**23** After they were released, Peter and John went to their own people. They told them all the things that the chief priests and elders said to them.
+**23** After the leaders let them go, Peter and John went to their own people. They told them all the things that the chief priests and elders said to them.
 
 **24** When the people heard this, they spoke to God together with 1 purpose. They said, "Lord, you are God. You made heaven, earth, the sea, and all the things in them.
 
@@ -328,15 +328,15 @@
 
 **23** They said, "We found the jail fully locked. The guards stood outside at the doors. But when we opened the doors, we found no person inside."
 
-**24** The high priest, the captain of the temple, and the chief priests heard these words. They were confused about the apostles. They did not know what was to occur.
+**24** The high priest, the captain of the temple, and the chief priests heard these words. They did not understand what occurred with the apostles. They asked, "What will occur next?"
 
 **25** Then a man came and told them, "Look, the men that you put in jail stand in the temple. They teach the people."
 
-**26** Then the captain went with the officers and brought the apostles. They did not use force, because they were afraid that the people would throw stones at them.
+**26** Then the captain went with the officers and brought the apostles. They did not use force, because they were afraid of the people. They thought, "The people can throw stones at us."
 
 **27** They brought the apostles and put them in front of the council. The high priest asked them questions.
 
-**28** He said, "We gave you a strong order not to teach in this name. But you filled Jerusalem with your teaching. You want to make us responsible for the death of this man."
+**28** He said, "We gave you a strong order not to teach in this name. But you filled Jerusalem with your message. You want to make us responsible for the death of this man."
 
 **29** Then Peter and the other apostles answered, "We must obey God more than men.
 
@@ -368,9 +368,9 @@
 
 ## Chapter 6
 
-**1** In those days the number of the disciples became larger. Then the Greek-speaking Jews complained against the Hebrew-speaking Jews. They complained because the believers did not give food to their widows each day.
+**1** In those days the number of the disciples became larger. Then the Jews who spoke Greek complained against the Jews who spoke Hebrew. They complained because the believers did not give food to their widows each day.
 
-**2** Then the 12 apostles called all the disciples together. They said, "It is not correct for us to stop teaching the word of God to serve food.
+**2** Then the 12 apostles called all the disciples together. They said, "It is not correct for us to leave the word of God to serve food at tables.
 
 **3** Thus, brothers, choose 7 men from among you. These men must have a good reputation and be full of the Holy Spirit and wisdom. We will give them this work.
 
@@ -436,9 +436,9 @@
 
 **18** Then a different king started to rule over Egypt. He did not know Joseph.
 
-**19** This king tricked our people and treated our fathers badly. He forced them to throw out their babies so that the babies would die.
+**19** This king tricked our people and treated our fathers badly. He forced them to throw out their babies so that the babies died.
 
-**20** At that time Moses was born. He was a very beautiful child in the eyes of God. His parents cared for him in the house of his father for 3 months.
+**20** At that time the mother of Moses gave birth to him. He was a very beautiful child in the eyes of God. His parents cared for him in the house of his father for 3 months.
 
 **21** Then they put him outside. The daughter of Pharaoh took him and cared for him as her own son.
 
@@ -448,7 +448,7 @@
 
 **24** He saw an Egyptian treat one of them badly. Moses defended the man. He killed the Egyptian to punish him for the man.
 
-**25** Moses thought that his brothers would understand that God used him to save them. But they did not understand.
+**25** Moses thought, "My brothers will understand that God uses me to save them." But they did not understand.
 
 **26** On the next day, Moses saw 2 of them fight. He tried to make peace between them. He said, 'Men, you are brothers. Why do you hurt each other?'
 
@@ -460,21 +460,21 @@
 
 **30** After 40 years, an angel of the Lord came to him in the desert near Mount Sinai. The angel was in a fire in a bush.
 
-**31** When Moses saw this, he was surprised. He went near to look at it. Then the voice of the Lord came to him.
+**31** When Moses saw this, he wondered at it. He went near to look at it. Then the voice of the Lord came to him.
 
 **32** The voice said, 'I am the God of your fathers, the God of Abraham, Isaac, and Jacob.' Moses shook with fear. He was too afraid to look.
 
 **33** Then the Lord said to him, 'Take off your shoes. The place where you stand is holy ground.
 
-**34** I truly saw the suffering of my people in Egypt. I heard their cries. I came down to save them. Now come, I will send you into Egypt.'
+**34** I truly saw how my people in Egypt suffer. I heard their cries. I came down to save them. Now come, I will send you into Egypt.'
 
 **35** The people of Israel rejected this Moses. They said, 'Who made you a ruler and a judge?' But God sent him to be a ruler and a deliverer. God sent him through the angel that he saw in the bush.
 
 **36** Moses brought the people out. He did wonders and signs in Egypt, at the Red Sea, and in the desert for 40 years.
 
-**37** This is the Moses who said to the people of Israel, 'The Lord your God will cause a prophet like me to come from among your brothers. Listen to him.'
+**37** This is the Moses who said to the people of Israel, 'The Lord your God will send you a prophet like me. He will come from among your brothers. Listen to him.'
 
-**38** Moses was with the congregation in the desert. He was with the angel who spoke to him on Mount Sinai. He was with our fathers. He received living words to give to us.
+**38** Moses was with the congregation in the desert. He was with the angel who spoke to him on Mount Sinai. He was with our fathers. He received words of life to give to us.
 
 **39** But our fathers did not want to obey him. They pushed him away. In their hearts they turned back to Egypt.
 
@@ -502,7 +502,7 @@
 
 **51** You are stubborn people. Your hearts and ears are like the hearts and ears of the people who do not know God. You always resist the Holy Spirit. You do the same as your fathers did.
 
-**52** Your fathers caused all the prophets to suffer. They killed the prophets who told before about the coming of the Righteous One. Now you betrayed him and killed him.
+**52** Your fathers caused all the prophets to suffer. They killed the prophets who told before that the Righteous One will come. Now you betrayed him and killed him.
 
 **53** You received the law through angels, but you did not obey it."
 
@@ -522,7 +522,7 @@
 
 ## Chapter 8
 
-**1** Saul agreed with the killing of Stephen. On that day the people started to attack the church in Jerusalem very strongly. All the believers except the apostles went to different places in Judea and Samaria.
+**1** Saul agreed that it was correct to kill Stephen. On that day the people started to attack the church in Jerusalem very strongly. All the believers except the apostles went to different places in Judea and Samaria.
 
 **2** Religious men buried Stephen. They cried very much for him.
 
@@ -534,7 +534,7 @@
 
 **6** The crowds heard Philip and saw the miracles that he did. All of them listened carefully to what he said.
 
-**7** Unclean spirits came out of many people. The spirits shouted with a loud voice. Many people who were paralyzed or could not walk got their health again.
+**7** Unclean spirits came out of many people. The spirits shouted with a loud voice. Many people who could not move or could not walk got their health again.
 
 **8** There was much joy in that city.
 
@@ -550,7 +550,7 @@
 
 **14** The apostles in Jerusalem heard that the people of Samaria received the word of God. They sent Peter and John to them.
 
-**15** When Peter and John came, they prayed for the people. They prayed that the people would receive the Holy Spirit.
+**15** When Peter and John came, they prayed for the people. They asked God to give the Holy Spirit to the people.
 
 **16** The Holy Spirit did not come on any of them yet. They only got baptism in the name of the Lord Jesus.
 
@@ -560,7 +560,7 @@
 
 **19** He said, "Give me this power also. Then each person on whom I put my hands will receive the Holy Spirit."
 
-**20** But Peter said to him, "Let your money be destroyed with you. You thought that you could buy the gift of God with money.
+**20** But Peter said to him, "You and your money will go to destruction together. You thought that you could buy the gift of God with money.
 
 **21** You have no part in this work, because your heart is not correct in the eyes of God.
 
@@ -584,7 +584,7 @@
 
 **31** The man said, "How can I understand if no man guides me?" He asked Philip to come up and sit with him.
 
-**32** The man read this part of the scripture: "People led him like a sheep to be killed. A lamb is silent when a man cuts its wool. In the same way he did not open his mouth.
+**32** The man read this part of the scripture: "People led him like a sheep to the place where they kill sheep. A lamb is silent when a man cuts its wool. In the same way he did not open his mouth.
 
 **33** People humiliated him and did not give him justice. Who will tell about his descendants? People took his life from the earth."
 
@@ -638,7 +638,7 @@
 
 **17** Ananias went and entered the house. He put his hands on Saul and said, "Brother Saul, the Lord Jesus sent me. Jesus appeared to you on the road when you came here. He sent me so that you can see again. He also sent me so that the Holy Spirit will fill you."
 
-**18** Immediately something like scales fell from the eyes of Saul. He could see again. He got up and was baptized.
+**18** Immediately something like scales fell from the eyes of Saul. He could see again. He got up and received baptism.
 
 **19** Saul ate food and became strong again. Saul stayed for some days with the disciples in Damascus.
 
@@ -652,7 +652,7 @@
 
 **24** But Saul learned about their plan. Day and night, the Jews watched the city gates so that they could kill him.
 
-**25** But the disciples took Saul at night. They put him in a basket and lowered him through an opening in the city wall.
+**25** But the disciples took Saul at night. They put him in a basket and lowered him through a hole in the city wall.
 
 **26** Saul came to Jerusalem. He tried to join the disciples. But they were all afraid of him. They did not believe that he was a disciple.
 
@@ -702,7 +702,7 @@
 
 **5** Now send men to Joppa. Tell them to bring back a man with the name Simon. His other name is Peter.
 
-**6** Peter stays with a man who makes leather. This man is also named Simon. His house is near the sea."
+**6** Peter stays with a man who makes leather. The name of this man is also Simon. His house is near the sea."
 
 **7** The angel who spoke to Cornelius went away. Then Cornelius called 2 of his servants. He also called a devout soldier from his personal guard.
 
@@ -774,7 +774,7 @@
 
 **41** All the people did not see him. Only the witnesses that God chose before saw him. We are those witnesses. We ate and drank with him after he rose from the dead.
 
-**42** Jesus told us to preach to the people. He told us to tell them this: God chose Jesus to be the Judge of the living and the dead.
+**42** Jesus told us to preach to the people. He told us to tell them this: God chose Jesus to be the Judge of the people who live and the people who are dead.
 
 **43** All the prophets speak about Jesus. They say that God will forgive the sins of each person who believes in him. God will do this through the name of Jesus."
 
@@ -786,7 +786,7 @@
 
 **47** "These people received the Holy Spirit as we did. Nobody can stop them from baptism with water."
 
-**48** So Peter told them to be baptized in the name of Jesus Christ. Then the people asked Peter to stay with them for some days.
+**48** So Peter told them to receive baptism in the name of Jesus Christ. Then the people asked Peter to stay with them for some days.
 
 ## Chapter 11
 
@@ -794,7 +794,7 @@
 
 **2** Peter went up to Jerusalem. There, the Jewish believers who wanted circumcision for all believers criticized him.
 
-**3** They said, "You went into the house of men who are not circumcised. You ate with them."
+**3** They said, "You went into the house of men who did not receive circumcision. You ate with them."
 
 **4** Then Peter told them all that occurred, from the start. He said,
 
@@ -860,7 +860,7 @@
 
 **4** Herod arrested Peter and put him in prison. He gave Peter to 4 groups of soldiers to guard him. Each group had 4 soldiers. Herod wanted to bring Peter out to the people after the Passover.
 
-**5** So the soldiers kept Peter in prison. But the church prayed to God for Peter without stopping.
+**5** So the soldiers kept Peter in prison. But the church prayed to God for Peter all the time.
 
 **6** The night before Herod wanted to bring Peter out, Peter slept between 2 soldiers. 2 chains held him. Guards in front of the door watched the prison.
 
@@ -918,15 +918,15 @@
 
 **7** He was with the governor, Sergius Paulus. The governor was an intelligent man. He sent for Barnabas and Saul because he wanted to hear the word of God.
 
-**8** But the magician fought against Barnabas and Saul. In Greek, his name is Elymas. He tried to stop the governor from believing.
+**8** But the magician fought against Barnabas and Saul. In Greek, his name is Elymas. He tried to turn the governor away from the faith.
 
-**9** But Saul, who is also called Paul, was full of the Holy Spirit. He looked directly at Elymas.
+**9** But Saul, whose other name is Paul, was full of the Holy Spirit. He looked directly at Elymas.
 
-**10** Paul said, "You are full of lies and evil. You are a son of the devil. You are an enemy of all that is right. You must stop changing the true ways of the Lord into false ways!
+**10** Paul said, "You are full of lies and evil. You are a son of the devil. You are an enemy of all that is right. You always change the true ways of the Lord into false ways. Will you not stop?
 
 **11** Now the Lord will punish you. You will be blind. For some time, you will not see the sun." Immediately a dark mist came over Elymas. He went around and looked for a person to hold his hand and lead him.
 
-**12** The governor saw what occurred and believed. He was very surprised at the teaching about the Lord.
+**12** The governor saw what occurred and believed. He was full of wonder at the message about the Lord.
 
 **13** Paul and his group sailed from Paphos and came to Perga in Pamphylia. There, John Mark left them and went back to Jerusalem.
 
@@ -950,7 +950,7 @@
 
 **23** God promised to send a Savior to Israel from the descendants of David. God did this. The Savior is Jesus.
 
-**24** Before Jesus came, John preached to all the people of Israel. He told them to repent and be baptized.
+**24** Before Jesus came, John preached to all the people of Israel. He told them to repent and receive baptism.
 
 **25** When John almost completed his work, he said, 'Who do you think that I am? I am not the Christ. But a man will come after me. I am not good enough to untie his sandals.'
 
@@ -974,7 +974,7 @@
 
 **35** In another psalm God also says, 'You will not let your Holy One decay.'
 
-**36** David did what God wanted during his life. Then David died and was buried with his ancestors. His body decayed.
+**36** David did what God wanted during his life. Then David died, and people put him in the grave with his ancestors. His body decayed.
 
 **37** But God raised Jesus from the dead, and his body did not decay.
 
@@ -984,11 +984,11 @@
 
 **40** Be careful! Do not let the words of the prophets come true for you. They said,
 
-**41** 'Look, you people who laugh at God! Be surprised and die! In your time I will do something. You will not believe it, even if someone tells you about it.'"
+**41** 'Look, you people who laugh at God! Wonder and die! In your time I will do something. You will not believe it, even if someone tells you about it.'"
 
 **42** Paul and Barnabas went out of the synagogue. The people asked them to speak about these things again on the next Sabbath.
 
-**43** The meeting ended. Many Jews and many converts to the Jewish religion followed Paul and Barnabas. Paul and Barnabas spoke to them. They told them to continue in the grace of God.
+**43** The assembly ended. Many Jews and many converts to the Jewish religion followed Paul and Barnabas. Paul and Barnabas spoke to them. They told them to continue in the grace of God.
 
 **44** On the next Sabbath day, almost all the city came to hear the word of the Lord.
 
@@ -1004,7 +1004,7 @@
 
 **50** But the Jews caused trouble. They spoke to the devout women of high position and to the leaders of the city. These people attacked Paul and Barnabas. They forced Paul and Barnabas out of their area.
 
-**51** So Paul and Barnabas shook the dust from their feet as a warning to these people. Then they went to Iconium.
+**51** So Paul and Barnabas shook the dust from their feet to warn these people. Then they went to Iconium.
 
 **52** The disciples were full of joy and full of the Holy Spirit.
 
@@ -1024,7 +1024,7 @@
 
 **7** There they continued to preach the gospel.
 
-**8** In Lystra there was a man who could not use his feet. He was born that way and never walked. He sat there.
+**8** In Lystra there was a man who could not use his feet. He had this problem from the time of his birth, and he never walked. He sat there.
 
 **9** The man listened to Paul when Paul spoke. Paul looked directly at him. Paul saw that the man had faith that God could heal him.
 
@@ -1038,13 +1038,13 @@
 
 **14** The apostles Barnabas and Paul heard about this. They tore their clothes. They ran into the crowd and shouted,
 
-**15** "Men, why do you do these things? We are only men, as you are. We bring you good news. We tell you to turn away from these useless things. Turn to the living God. He made the heavens, the earth, the sea and all things in them.
+**15** "Men, why do you do these things? We are only men, as you are. We bring you good news. We tell you to turn away from these useless things. Turn to the God who lives. He made the heavens, the earth, the sea and all things in them.
 
 **16** In the past, God let all nations go their own ways.
 
 **17** But God always showed that he is real. He does good things for you. He gives you rain from the sky and crops in their seasons. He gives you much food and makes you happy."
 
-**18** Paul and Barnabas said these things. But it was very difficult to stop the people from making a sacrifice to them.
+**18** Paul and Barnabas said these things. But it was very difficult to stop the people. The people wanted to make a sacrifice to them.
 
 **19** Then some Jews came from Antioch and Iconium. They changed the minds of the crowd. The people threw stones at Paul. They pulled him out of the city because they thought that he was dead.
 
@@ -1068,7 +1068,7 @@
 
 ## Chapter 15
 
-**1** Some men came down from Judea to Antioch. They taught the brothers, "God will not save you if you are not circumcised. You must obey the law of Moses about circumcision."
+**1** Some men came down from Judea to Antioch. They taught the brothers, "God will not save you if you do not receive circumcision. You must obey the law of Moses about circumcision."
 
 **2** Paul and Barnabas argued strongly with these men. Thus, the church decided to send Paul, Barnabas and some other believers to Jerusalem. They had to speak with the apostles and elders about this question.
 
@@ -1076,7 +1076,7 @@
 
 **4** They arrived in Jerusalem. The church, the apostles and the elders received them. Paul and Barnabas told them all that God did through them.
 
-**5** But some believers from the group of the Pharisees stood up. They said, "The Gentile believers must be circumcised. They must obey the law of Moses."
+**5** But some believers from the group of the Pharisees stood up. They said, "The Gentile believers must receive circumcision. They must obey the law of Moses."
 
 **6** The apostles and elders met to think about this question.
 
@@ -1092,11 +1092,11 @@
 
 **12** All the people became quiet. They listened to Barnabas and Paul. Barnabas and Paul told them about the miracles and wonders that God did through them among the Gentiles.
 
-**13** Barnabas and Paul stopped speaking. Then James said, "Brothers, listen to me.
+**13** Barnabas and Paul became silent. Then James said, "Brothers, listen to me.
 
 **14** Simon Peter told us how God first showed his care for the Gentiles. God took from the Gentiles a people for himself.
 
-**15** The words of the prophets agree with this. It is written:
+**15** The words of the prophets agree with this. The scripture says:
 
 **16** 'After this I will come back. I will build again the house of David, which fell down. I will build again its ruins, and I will make it stand again.
 
@@ -1106,11 +1106,11 @@
 
 **19** Thus, I decide this: We must not make it difficult for the Gentiles who turn to God.
 
-**20** But we must write a letter to them. We must tell them not to eat food that people gave to idols. They must not commit sexual sin. They must not eat the meat of animals that people killed by strangling. They must not eat blood.
+**20** But we must write a letter to them. We must tell them not to eat food that people gave to idols. They must not commit sexual sin. They must not eat the meat of animals that people choked to death. They must not eat blood.
 
 **21** For a long time, people in every city preached the law of Moses. They read it in the synagogues every Sabbath day."
 
-**22** Then the apostles and elders and all the church decided to choose some men from among them. They decided to send these men to Antioch with Paul and Barnabas. They chose Judas, who was also called Barsabbas, and Silas. These men were leaders among the brothers.
+**22** Then the apostles and elders and all the church decided to choose some men from among them. They decided to send these men to Antioch with Paul and Barnabas. They chose Judas, whose other name was Barsabbas, and Silas. These men were leaders among the brothers.
 
 **23** They sent this letter with them: "From the apostles and elders, your brothers. To the Gentile brothers in Antioch, Syria and Cilicia. Greetings.
 
@@ -1124,7 +1124,7 @@
 
 **28** The Holy Spirit and we decided this: We will not put a heavy load on you. You must only obey these necessary rules.
 
-**29** Do not eat food that people gave to idols. Do not eat blood. Do not eat the meat of animals that people killed by strangling. Do not commit sexual sin. If you obey these rules, you will do well. Goodbye."
+**29** Do not eat food that people gave to idols. Do not eat blood. Do not eat the meat of animals that people choked to death. Do not commit sexual sin. If you obey these rules, you will do well. Goodbye."
 
 **30** The church sent the men away, and they went to Antioch. There they brought the believers together and gave them the letter.
 
@@ -1138,7 +1138,7 @@
 
 **35** Paul and Barnabas stayed in Antioch. With many other people, they taught and preached the word of the Lord.
 
-**36** After some days, Paul said to Barnabas, "We must go back and visit the brothers in all the cities where we preached the word of the Lord. We will see how they are."
+**36** After some days, Paul said to Barnabas, "We must go back and visit the brothers in all the cities. We preached the word of the Lord in those cities. We will see how they are."
 
 **37** Barnabas wanted to take John Mark with them.
 
@@ -1180,7 +1180,7 @@
 
 **14** One of the women was Lydia, from the city of Thyatira. She sold purple cloth. She worshipped God. She listened to us. The Lord opened her heart so that she accepted the words of Paul.
 
-**15** Lydia and the people in her house were baptized. Then she asked us to come to her house. She said, "If you think that I am a true believer in the Lord, come and stay in my house." She made us agree to go.
+**15** Lydia and the people in her house received baptism. Then she asked us to come to her house. She said, "If you think that I am a true believer in the Lord, come and stay in my house." She made us agree to go.
 
 **16** One day we went to the place for prayer. A slave girl met us. She had an evil spirit that let her tell the future. She got much money for her owners when she told the future.
 
@@ -1210,13 +1210,13 @@
 
 **29** The jailer asked for a light and ran in. He shook with fear. He fell down in front of Paul and Silas.
 
-**30** Then he brought them out and said, "Sirs, what must I do to be saved?"
+**30** Then he brought them out and said, "Sirs, what must I do so that God saves me?"
 
 **31** They said, "Believe in the Lord Jesus. Then God will save you and the people in your house."
 
 **32** Paul and Silas told the word of the Lord to the jailer and to all the people in his house.
 
-**33** At that time of the night, the jailer took Paul and Silas and washed their wounds. Immediately the jailer and all his family were baptized.
+**33** At that time of the night, the jailer took Paul and Silas and washed their wounds. Immediately the jailer and all his family received baptism.
 
 **34** The jailer took Paul and Silas into his house and gave them food. He and all his family were very happy because they believed in God.
 
@@ -1254,7 +1254,7 @@
 
 **10** That night, the brothers immediately sent Paul and Silas to Berea. When Paul and Silas arrived there, they went to the Jewish synagogue.
 
-**11** The Jews in Berea were better people than the Jews in Thessalonica. They were very willing to receive the message. Each day they studied the Scriptures. They wanted to know if the words of Paul were true.
+**11** The Jews in Berea were better people than the Jews in Thessalonica. They were very ready to receive the message. Each day they studied the Scriptures. They wanted to know if the words of Paul were true.
 
 **12** Thus, many of them believed. Many important Greek women and many Greek men also believed.
 
@@ -1270,7 +1270,7 @@
 
 **18** Some Epicurean and Stoic philosophers argued with Paul. Some of them said, "This man talks too much. What does he try to say?" Other people said, "He seems to tell us about foreign gods." They said this because Paul preached about Jesus and the resurrection.
 
-**19** They took Paul to a meeting of the Areopagus (the city council). They said, "Tell us about this new teaching.
+**19** They took Paul to the Areopagus (the city council). They said, "Can we know what this new message is that you speak about?
 
 **20** You tell us strange things. We want to know the meaning of these things."
 
@@ -1306,7 +1306,7 @@
 
 **1** After this, Paul left Athens and went to Corinth.
 
-**2** In Corinth, Paul met a Jew with the name Aquila. Aquila was born in Pontus. Aquila and his wife Priscilla came from Italy a short time before. They left Italy because Claudius ordered all the Jews to leave Rome. Paul went to visit them.
+**2** In Corinth, Paul met a Jew with the name Aquila. Aquila came from Pontus. Aquila and his wife Priscilla came from Italy a short time before. They left Italy because Claudius ordered all the Jews to leave Rome. Paul went to visit them.
 
 **3** Aquila and Priscilla made tents, and Paul did the same work. So he stayed with them and worked with them.
 
@@ -1314,11 +1314,11 @@
 
 **5** Silas and Timothy came from Macedonia. Then Paul used all his time to preach. He told the Jews that Jesus is the Christ.
 
-**6** But the Jews spoke against Paul and insulted him. So he shook the dust from his clothes as a warning. He said to them, "If God punishes you, it is your own fault. I am not responsible. From now on I will go to the Gentiles."
+**6** But the Jews spoke against Paul and insulted him. So he shook the dust from his clothes to warn them. He said to them, "If God punishes you, it is your own fault. I am not responsible. From now on I will go to the Gentiles."
 
 **7** Paul left the synagogue and went to the house of a man with the name Titius Justus. Justus worshipped God. His house was next to the synagogue.
 
-**8** Crispus was the leader of the synagogue. He and all his family believed in the Lord. Many people in Corinth heard Paul. They believed and were baptized.
+**8** Crispus was the leader of the synagogue. He and all his family believed in the Lord. Many people in Corinth heard Paul. They believed and received baptism.
 
 **9** One night the Lord spoke to Paul in a vision. The Lord said, "Do not be afraid. Continue to speak and do not stop.
 
@@ -1350,9 +1350,9 @@
 
 **23** Paul stayed in Antioch for some time. Then he left and went from place to place through Galatia and Phrygia. He made all the disciples strong.
 
-**24** A Jew with the name Apollos came to Ephesus. He was born in Alexandria. He was a good speaker and knew the Scriptures very well.
+**24** A Jew with the name Apollos came to Ephesus. His birthplace was Alexandria. He was a good speaker and knew the Scriptures very well.
 
-**25** Apollos received teaching about the way of the Lord. He spoke with much enthusiasm. He taught correctly about Jesus. But he knew only about the baptism of John.
+**25** Apollos learned about the way of the Lord. He spoke with much enthusiasm. He taught correctly about Jesus. But he knew only about the baptism of John.
 
 **26** Apollos started to speak boldly in the synagogue. Priscilla and Aquila heard him. They took him aside. They explained the way of God to him more correctly.
 
@@ -1370,7 +1370,7 @@
 
 **4** Paul said, "John baptized people who repented. He told the people to believe in the man who will come after him. That man is Jesus."
 
-**5** The disciples heard this. Then they were baptized in the name of the Lord Jesus.
+**5** The disciples heard this. Then they received baptism in the name of the Lord Jesus.
 
 **6** Paul put his hands on them, and the Holy Spirit came on them. They spoke in other languages and prophesied.
 
@@ -1424,7 +1424,7 @@
 
 **31** Some officials of the province of Asia were friends of Paul. They sent him a message. They asked him not to go into the theater.
 
-**32** Some people in the crowd shouted one thing, and other people shouted a different thing. The crowd was confused. Most of the people did not know why they came together.
+**32** Some people in the crowd shouted one thing, and other people shouted a different thing. There was much confusion in the crowd. Most of the people did not know why they came together.
 
 **33** The Jews pushed a man with the name Alexander to the front. Some people in the crowd told him what to say. Alexander moved his hand because he wanted to make a defense to the people.
 
@@ -1432,13 +1432,13 @@
 
 **35** Then the city clerk made the crowd quiet. He said, "Men of Ephesus, all people know that Ephesus guards the temple of the great Artemis. All people know that our city also guards her sacred stone that fell from the sky.
 
-**36** Nobody can say that these things are not true. Thus, you must be calm. Do not do anything quickly without thinking.
+**36** Nobody can say that these things are not true. Thus, you must be calm. Do not do anything quickly. First think carefully.
 
 **37** You brought these men here. But they did not rob temples. They did not insult our goddess.
 
-**38** Demetrius and his workers may have a complaint against someone. If so, the courts are open, and there are governors. They can take their complaints to the courts.
+**38** Maybe Demetrius and his workers have a complaint against someone. If so, the courts are open, and there are governors. They can take their complaints to the courts.
 
-**39** If you want something more, the official meeting of the citizens must decide it.
+**39** If you want something more, the official assembly of the citizens must decide it.
 
 **40** There is a danger that the government will accuse us of a riot because of today. We have no reason for this disorder. We cannot explain this crowd."
 
@@ -1464,7 +1464,7 @@
 
 **9** A young man with the name Eutychus sat in a window. Paul spoke for a long time, and Eutychus became very sleepy. He fell asleep and fell from the third floor to the ground. The people picked him up, and he was dead.
 
-**10** Paul went down and lay on the young man. He held him and said, "Do not be troubled. He is alive."
+**10** Paul went down and lay on the young man. He held him and said, "Do not worry. He is alive."
 
 **11** Paul went upstairs again. He broke the bread and ate. He talked with them for a long time, until the sun came up. Then he left.
 
@@ -1496,7 +1496,7 @@
 
 **25** I went among you all and preached the kingdom of God. Now I know that you will never see me again.
 
-**26** So today I tell you this: If any of you is lost, it is not my fault.
+**26** So today I tell you this: I am not guilty of the blood of any person.
 
 **27** I did not stop. I told you all that God wants you to know.
 
@@ -1540,7 +1540,7 @@
 
 **8** On the next day we left and went to Caesarea. We went to the house of Philip the evangelist and stayed with him. He was one of the 7 helpers.
 
-**9** Philip had 4 daughters who were not married. They prophesied.
+**9** Philip had 4 daughters. They were virgins. They prophesied.
 
 **10** We stayed there for many days. Then a prophet with the name Agabus came from Judea.
 
@@ -1572,7 +1572,7 @@
 
 **24** Take these men and do the purification ceremony with them. Pay the cost for them so that they can shave their heads. Then all the people will know that the reports about you are not true. They will know that you also obey the law.
 
-**25** About the Gentile believers, we wrote a letter to them. We told them that they must not eat food that people gave to idols. They must not eat blood or the meat of animals that people killed by strangling. They must not commit sexual sin."
+**25** About the Gentile believers, we wrote a letter to them. We told them that they must not eat food that people gave to idols. They must not eat blood or the meat of animals that people choked to death. They must not commit sexual sin."
 
 **26** On the next day, Paul took the men and did the purification ceremony with them. Then he went into the temple. He told the priests the day when the time of purification will end. On that day, the priests will make an offering for each of the men.
 
@@ -1586,7 +1586,7 @@
 
 **31** The people tried to kill Paul. Then the commander of the Roman soldiers heard that there was a riot in all of Jerusalem.
 
-**32** Immediately the commander took soldiers and centurions and ran down to the crowd. The people saw the commander and the soldiers. Then they stopped beating Paul.
+**32** Immediately the commander took soldiers and centurions and ran down to the crowd. The people saw the commander and the soldiers. Then the people did not hit Paul any more.
 
 **33** The commander came to Paul and arrested him. He told the soldiers to put 2 chains on Paul. Then he asked, "Who is this man? What did he do?"
 
@@ -1610,7 +1610,7 @@
 
 **2** The people heard that Paul spoke to them in the Hebrew language. So they became more quiet. Paul said,
 
-**3** "I am a Jew. I was born in Tarsus in Cilicia, but I grew up in this city. Gamaliel was my teacher. He taught me carefully about the law of our ancestors. I worked hard for God, as all of you do today.
+**3** "I am a Jew. My mother gave birth to me in Tarsus in Cilicia, but I grew up in this city. Gamaliel was my teacher. He taught me carefully about the law of our ancestors. I worked hard for God, as all of you do today.
 
 **4** I attacked the people who followed this Way. I caused some of them to die. I arrested men and women and put them in prison.
 
@@ -1636,7 +1636,7 @@
 
 **15** You will tell all people about the things that you saw and heard.
 
-**16** Now, do not wait. Get up and be baptized. Call on the name of the Lord, and he will wash away your sins.'
+**16** Now, do not wait. Get up and receive baptism. Call on the name of the Lord, and he will wash away your sins.'
 
 **17** I went back to Jerusalem. One day I prayed in the temple, and I had a vision.
 
@@ -1660,7 +1660,7 @@
 
 **27** The commander came to Paul and said, "Tell me, are you a Roman citizen?" Paul said, "Yes."
 
-**28** The commander said, "I paid much money to become a citizen." Paul said, "But I was born a citizen."
+**28** The commander said, "I paid much money to become a citizen." Paul said, "But I was a citizen from my birth."
 
 **29** Immediately the men who wanted to question Paul went away from him. The commander was also afraid. He knew that Paul was a Roman citizen, and the commander put him in chains.
 
@@ -1684,7 +1684,7 @@
 
 **8** The Sadducees say that there is no resurrection. They also say that there are no angels and no spirits. But the Pharisees believe in all these things.
 
-**9** There was much shouting. Some teachers of the law from the Pharisees stood up and argued strongly. They said, "We find nothing wrong with this man. Maybe a spirit or an angel spoke to him."
+**9** There was a loud noise. Some teachers of the law from the Pharisees stood up and argued strongly. They said, "We find nothing wrong with this man. Maybe a spirit or an angel spoke to him."
 
 **10** The argument became violent. The commander was afraid that they will pull Paul into pieces. So he told the soldiers to go down and take Paul away from them. He told them to take Paul into the fortress.
 
@@ -1960,7 +1960,7 @@
 
 **21** The men did not eat for a long time. Then Paul stood up among them and said, "Men, you did not listen to me. You sailed from Crete. Thus, you have this damage and loss.
 
-**22** But now I tell you to be brave. None of you will die. Only the ship will be lost.
+**22** But now I tell you to be brave. None of you will die. We will lose only the ship.
 
 **23** Last night an angel of God stood near me. I am his servant, and I worship him.
 
@@ -1988,7 +1988,7 @@
 
 **35** After Paul said this, he took some bread. He thanked God in front of all of them. He broke the bread and started to eat.
 
-**36** Then all the people were encouraged, and they also ate some food.
+**36** Then all the people became brave again, and they also ate some food.
 
 **37** There were 276 people on the ship.
 
@@ -2036,7 +2036,7 @@
 
 **14** There we found some brothers. They asked us to stay with them for 7 days. Then we went to Rome.
 
-**15** The brothers in Rome heard about us. They came to meet us at the Market of Appius and at the Three Taverns. Paul saw them. He thanked God and was encouraged.
+**15** The brothers in Rome heard about us. They came to meet us at the Market of Appius and at the Three Taverns. Paul saw them. He thanked God and became brave.
 
 **16** We arrived in Rome. The centurion gave the prisoners to the captain of the guard. But the officials let Paul live by himself with a soldier who guarded him.
 

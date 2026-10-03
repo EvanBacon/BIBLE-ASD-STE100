@@ -6,7 +6,7 @@
 
 **2** "The LORD was very angry with your ancestors.
 
-**3** Thus tell the people, 'The LORD of armies says this: "Come back to me," says the LORD of armies, "and I will come back to you," says the LORD of armies.
+**3** Thus tell the people this. The LORD of armies says, 'Come back to me.' The LORD of armies says, 'Then I will come back to you.'
 
 **4** Do not be like your ancestors. The prophets before you called out to them. The prophets said, "The LORD of armies says this: Turn away from your evil ways and your evil actions." But your ancestors did not listen. They did not obey me,' says the LORD.
 
@@ -14,7 +14,7 @@
 
 **6** I gave my words and my laws to my servants the prophets. My words and laws came true against your ancestors. Then your ancestors turned back. They said, "The LORD of armies did to us what he decided to do. He punished us because of our ways and our actions."'"
 
-**7** On the 24th day of the eleventh month, the month Shebat, in the second year of Darius, the LORD gave a message to the prophet Zechariah. Zechariah was the son of Berechiah, the son of Iddo. Zechariah said:
+**7** It was the second year of Darius. On the 24th day of the eleventh month, the month Shebat, the LORD gave a message to the prophet Zechariah. Zechariah was the son of Berechiah, the son of Iddo. Zechariah said:
 
 **8** In the night I saw a vision. A man sat on a red horse. He stood among the myrtle trees in a valley. Behind him were red horses, brown horses, and white horses.
 
@@ -28,11 +28,11 @@
 
 **13** The LORD answered the angel who spoke with me. The LORD spoke good words and words of comfort.
 
-**14** Then the angel who spoke with me said to me, "Call out this message: 'The LORD of armies says this: I have a very strong love for Jerusalem and for Zion. I will protect them.
+**14** Then the angel who spoke with me said to me, "Call out this message. 'The LORD of armies says this. I have a very strong love for Jerusalem and for Zion.
 
 **15** I am very angry with the nations that feel safe. I was only a little angry with my people. But the nations made the punishment worse than I wanted.'
 
-**16** Thus the LORD says this: 'I will come back to Jerusalem with mercy. The people will build my house in Jerusalem,' says the LORD of armies. 'A builder will put a measuring line across Jerusalem.'
+**16** Thus the LORD says this: 'I will come back to Jerusalem with mercy. The people will build my house in Jerusalem,' says the LORD of armies. 'A builder will put a line across Jerusalem to measure it.'
 
 **17** Call out again: 'The LORD of armies says this: My cities will again have many good things. The LORD will again comfort Zion. He will again choose Jerusalem.'"
 
@@ -46,7 +46,7 @@
 
 ## Chapter 2
 
-**1** I looked up again and saw a man with a measuring line in his hand.
+**1** I looked up again and saw a man with a line in his hand. He used the line to measure things.
 
 **2** I asked, "Where are you going?" He said to me, "I will measure Jerusalem. I will find its width and its length."
 
@@ -76,7 +76,7 @@
 
 **1** Then the angel showed me Joshua the high priest. Joshua stood in front of the angel of the LORD. Satan stood at the right side of Joshua to accuse him.
 
-**2** The LORD said to Satan, "The LORD tells you to stop, Satan! The LORD who chose Jerusalem tells you to stop! This man is like a burning stick that someone pulled out of the fire."
+**2** The LORD said to Satan, "The LORD tells you to stop, Satan! The LORD who chose Jerusalem tells you to stop! This man is like a stick that someone pulled out of the fire."
 
 **3** Joshua wore very dirty clothes. He stood in front of the angel.
 
@@ -84,7 +84,7 @@
 
 **5** Then I said, "Put a clean turban on his head." So they put a clean turban on his head and put clothes on him. The angel of the LORD stood near.
 
-**6** Then the angel of the LORD gave a serious warning to Joshua. He said:
+**6** Then the angel of the LORD spoke strongly to Joshua. He said:
 
 **7** "The LORD of armies says this: 'Live as I tell you, and do the work that I give you. Then you will rule my house and keep my courtyards. I will let you go among these angels who stand here.
 
@@ -92,7 +92,7 @@
 
 **9** Look at the stone that I put in front of Joshua. The stone has 7 eyes. I will cut words into the stone,' says the LORD of armies. 'I will take away the sin of this land in one day.
 
-**10** At that time,' says the LORD of armies, 'each one of you will invite his neighbor to sit under his vine and under his fig tree.'"
+**10** At that time,' says the LORD of armies, 'each one of you will invite his neighbor. You will sit together under your vine and under your fig tree.'"
 
 ## Chapter 4
 
@@ -136,7 +136,7 @@
 
 **5** Then the angel who spoke with me came forward. He said to me, "Look up and see this thing that comes out."
 
-**6** I asked, "What is it?" He said, "It is a basket for measuring (an ephah). It shows the sin of the people in all the land."
+**6** I asked, "What is it?" He said, "It is a basket that people use to measure grain (an ephah). It shows the sin of the people in all the land."
 
 **7** Then someone lifted a lead cover off the basket. A woman sat in the basket.
 
@@ -218,7 +218,7 @@
 
 **3** The LORD says this: 'I will come back to Zion. I will live in Jerusalem. People will call Jerusalem the City of Truth. They will call the mountain of the LORD of armies the Holy Mountain.'
 
-**4** The LORD of armies says this: 'Old men and old women will again sit in the streets of Jerusalem. Each one will hold a walking stick because of his old age.
+**4** The LORD of armies says this: 'Old men and old women will again sit in the streets of Jerusalem. Each one will hold a stick in his hand because of his old age.
 
 **5** The streets of the city will be full of boys and girls who play there.'
 
@@ -228,7 +228,7 @@
 
 **8** I will bring them back. They will live in Jerusalem. They will be my people, and I will be their God. I will be faithful and good to them.'
 
-**9** The LORD of armies says this: 'Be strong! At this time you hear the words of the prophets. The prophets spoke on the day when the people put down the base of the house of the LORD of armies. They spoke so that you would build the temple.
+**9** The LORD of armies says this: 'Be strong! At this time you hear the words of the prophets. The prophets spoke on the day when the people put down the base of the house of the LORD of armies. They spoke so that you will build the temple.
 
 **10** Before that time, no person got pay for his work or for the work of his animals. Enemies caused trouble, and thus no person could travel safely. I made each man fight against his neighbor.
 
@@ -304,7 +304,7 @@
 
 **4** From Judah will come the cornerstone. From Judah will come the tent peg. From Judah will come the bow of war. From Judah will come every ruler.
 
-**5** The people of Judah will be like strong soldiers in a battle. They will push their enemies down into the mud of the streets. They will fight, because the LORD is with them. They will cause the enemy riders on horses to be ashamed.
+**5** The people of Judah will be like strong soldiers in a battle. They will push their enemies down into the mud of the streets. They will fight, because the LORD is with them. They will put the enemy riders on horses to shame.
 
 **6** I will make the people of Judah strong. I will save the people of Joseph. I will bring them back, because I have mercy on them. They will be as if I did not send them away. I am the LORD their God, and I will answer them.
 
@@ -324,9 +324,9 @@
 
 **1** Open your gates, Lebanon, so that fire can burn your cedar trees.
 
-**2** Cry aloud, you cypress trees, because the cedar tree fell. The strong trees are destroyed. Cry aloud, you oak trees of Bashan, because the thick forest fell.
+**2** Cry aloud, you cypress trees, because the cedar tree fell. Enemies destroyed the strong trees. Cry aloud, you oak trees of Bashan, because the thick forest fell.
 
-**3** Listen to the shepherds who cry aloud. Their good fields are destroyed. Listen to the young lions that roar. The thick plants near the Jordan River are destroyed.
+**3** Listen to the shepherds who cry aloud. Their good fields are ruins. Listen to the young lions that roar. The thick plants near the Jordan River are ruins.
 
 **4** The LORD my God says this: "Be the shepherd of the flock that the owners will kill.
 
@@ -334,11 +334,11 @@
 
 **6** I will not feel sorry for the people of the land again," says the LORD. "I will put each person into the power of his neighbor and of his king. They will destroy the land. I will not save the people from their power."
 
-**7** So I became the shepherd of the flock that the owners would kill. I took care of the weakest sheep in the flock. I took 2 sticks. I called one stick Favor and the other stick Union. Then I took care of the flock.
+**7** So I became the shepherd of the flock that the owners will kill. I took care of the weakest sheep in the flock. I took 2 sticks. I called one stick Favor and the other stick Union. Then I took care of the flock.
 
 **8** In one month I removed 3 shepherds. I became tired of the sheep, and the sheep hated me.
 
-**9** Then I said, "I will not be your shepherd. Let the sheep that are dying die. Let the sheep that are lost be lost. Let the sheep that remain eat each other."
+**9** Then I said, "I will not be your shepherd. Let the sheep that die, die. Let the enemy destroy the sheep that he wants to destroy. Let the sheep that remain eat each other."
 
 **10** I took my stick named Favor and broke it. Thus I broke the agreement that I made with all the nations.
 
@@ -352,7 +352,7 @@
 
 **15** Then the LORD said to me, "Again take the equipment of a foolish shepherd.
 
-**16** I will put a new shepherd over the land. He will not take care of the sheep that are lost. He will not look for the young sheep. He will not heal the hurt sheep. He will not feed the healthy sheep. But he will eat the meat of the fat sheep and tear off their feet.
+**16** I will put a new shepherd over the land. He will not take care of the sheep that go away. He will not look for the young sheep. He will not heal the hurt sheep. He will not feed the healthy sheep. But he will eat the meat of the fat sheep and tear off their feet.
 
 **17** Terrible things will occur to the bad shepherd who leaves the flock! A sword will cut his arm and his right eye. His arm will become fully weak. His right eye will become fully blind."
 
@@ -368,7 +368,7 @@
 
 **5** Then the leaders of Judah will say to themselves, 'The people of Jerusalem are strong, because the LORD of armies is their God.'
 
-**6** At that time, I will make the leaders of Judah like a fire in a pile of wood. They will be like a burning torch among dry grain. They will destroy all the nations around them, on the right side and on the left side. But the people of Jerusalem will stay safe in their city.
+**6** At that time, I will make the leaders of Judah like a fire in a pile of wood. They will be like a torch of fire among dry grain. They will destroy all the nations around them, on the right side and on the left side. But the people of Jerusalem will stay safe in their city.
 
 **7** The LORD will save the homes of Judah first. Thus the family of David and the people of Jerusalem will not have more honor than the rest of Judah.
 
@@ -378,7 +378,7 @@
 
 **10** I will give a spirit of kindness and prayer to the family of David and to the people of Jerusalem. They will look at me, the one whom they stabbed. They will cry for him, as a person cries for an only son. They will feel very sad for him, as a person feels sad for a first son who died.
 
-**11** At that time, the people of Jerusalem will cry very much. It will be like the crying for Hadad Rimmon in the valley of Megiddo.
+**11** At that time, the people of Jerusalem will cry very much. It will be like the sorrow for Hadad Rimmon in the valley of Megiddo.
 
 **12** All the land will cry, each family alone. The family of David will cry alone, and their wives will cry alone. The family of Nathan will cry alone, and their wives will cry alone.
 
@@ -394,7 +394,7 @@
 
 **3** If a person continues to speak as a prophet, his own father and mother will speak to him. They will say, 'You must die, because you tell lies in the name of the LORD.' Then his own father and mother will stab him when he speaks as a prophet.
 
-**4** At that time, each prophet will be ashamed of his vision when he speaks. He will not wear a rough coat of hair to trick people.
+**4** At that time, each prophet will feel shame about his vision when he speaks. He will not wear a rough coat of hair to trick people.
 
 **5** Each one will say, 'I am not a prophet. I am a farmer. I worked on a farm since I was young.'
 
@@ -446,6 +446,6 @@
 
 **19** This will be the punishment of Egypt. It will be the punishment of all the nations that do not go up to keep the Festival of Shelters.
 
-**20** On that day, the bells of the horses will have these words on them: "HOLY TO THE LORD." The cooking pots in the house of the LORD will be as holy as the bowls in front of the altar.
+**20** On that day, the bells of the horses will have these words on them: "HOLY TO THE LORD." The pots in the house of the LORD will be as holy as the bowls in front of the altar.
 
 **21** Every pot in Jerusalem and in Judah will be holy to the LORD of armies. All the people who make sacrifices will come and use these pots to cook their meat. On that day, no trader will be in the house of the LORD of armies again.

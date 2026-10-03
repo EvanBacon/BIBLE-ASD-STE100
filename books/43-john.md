@@ -116,7 +116,7 @@
 
 **5** His mother said to the servants, "Do what he tells you."
 
-**6** There were 6 stone water jars there. The Jews used these jars for their washing ceremonies. Each jar held 80 to 120 liters.
+**6** There were 6 stone water jars there. The Jews used these jars for their ceremonies to make things clean. Each jar held 80 to 120 liters.
 
 **7** Jesus said to the servants, "Fill the jars with water." So they filled the jars to the top.
 
@@ -162,17 +162,17 @@
 
 **2** Nicodemus came to Jesus at night. He said to him, "Rabbi, we know that you are a teacher who came from God. No person can do the miraculous signs that you do if God is not with him."
 
-**3** Jesus answered him, "I tell you the truth: If a person is not born again, he cannot see the kingdom of God."
+**3** Jesus answered him, "I tell you the truth: If a person does not get a new birth, he cannot see the kingdom of God."
 
-**4** Nicodemus said to him, "How can a man be born when he is old? He cannot go into the body of his mother a second time and be born!"
+**4** Nicodemus said to him, "How can a man get a new birth when he is old? He cannot go into the body of his mother a second time and get birth again!"
 
-**5** Jesus answered, "I tell you the truth: If a person is not born of water and the Spirit, he cannot go into the kingdom of God.
+**5** Jesus answered, "I tell you the truth. If a person does not get birth from water and the Spirit, he cannot go into the kingdom of God.
 
 **6** Human parents give birth to a human body. But the Spirit gives birth to a spirit.
 
-**7** Do not be surprised that I tell you, 'You must be born again.'
+**7** Do not feel wonder that I tell you, 'You must get a new birth.'
 
-**8** The wind blows where it wants to blow. You hear its sound, but you do not know where it comes from or where it goes. All people who are born of the Spirit are like that."
+**8** The wind blows where it wants to blow. You hear its sound, but you do not know where it comes from or where it goes. All people who get birth from the Spirit are like that."
 
 **9** Nicodemus said to him, "How can these things be possible?"
 
@@ -206,9 +206,9 @@
 
 **24** This was before people put John in prison.
 
-**25** Some disciples of John argued with a Jew about the ceremonies for washing.
+**25** Some disciples of John argued with a Jew about the ceremonies to make things clean.
 
-**26** They came to John and said to him, "Rabbi, you told people about a man who was with you on the other side of the Jordan River. Look, now he baptizes people, and all people go to him."
+**26** They came to John and said to him, "Rabbi, a man was with you on the other side of the Jordan River. You told people about him. Look, now he baptizes people, and all people go to him."
 
 **27** John answered, "A person can get only what God gives him from heaven.
 
@@ -242,7 +242,7 @@
 
 **5** He came to a town in Samaria with the name Sychar. This town was near the field that Jacob gave to his son Joseph.
 
-**6** The well of Jacob was there. Jesus was tired from his journey, so he sat down next to the well. It was about 12 noon.
+**6** The well of Jacob was there. Jesus was weary from his journey, so he sat down next to the well. It was about 12 noon.
 
 **7** A woman of Samaria came to get water. Jesus said to her, "Give me some water to drink."
 
@@ -250,9 +250,9 @@
 
 **9** The woman of Samaria said to him, "You are a Jew, and I am a woman of Samaria. Why do you ask me for a drink?" She said this because the Jews do not associate with the Samaritans.
 
-**10** Jesus answered her, "You do not know the gift of God. You do not know who asks you for a drink. If you knew, you would ask him. Then he would give you living water."
+**10** Jesus answered her, "You do not know the gift of God. You do not know who asks you for a drink. If you knew, you will ask him. Then he will give you water that gives life."
 
-**11** The woman said to him, "Sir, you have no bucket, and the well is deep. Where can you get that living water?
+**11** The woman said to him, "Sir, you have no bucket, and the well is deep. Where can you get that water that gives life?
 
 **12** Our father Jacob gave us this well. He drank from it, and his sons and his animals also drank from it. Are you more important than Jacob?"
 
@@ -284,7 +284,7 @@
 
 **26** Jesus said to her, "I am the Messiah. I am the man who speaks to you now."
 
-**27** At that time, his disciples came back. They were surprised that Jesus talked with a woman. But no person asked, "What do you want?" or "Why do you talk with her?"
+**27** At that time, his disciples came back. They felt wonder that Jesus talked with a woman. But no person asked, "What do you want?" or "Why do you talk with her?"
 
 **28** Then the woman left her water jar. She went back into the town and said to the people,
 
@@ -346,7 +346,7 @@
 
 **2** In Jerusalem, near the Sheep Gate, there is a pool. In the Hebrew language, its name is Bethesda. The pool has 5 covered porches.
 
-**3** Many ill people lay in these porches. Some were blind, some were lame, and some were paralyzed. They waited for the water to move.
+**3** Many ill people lay in these porches. Some were blind, some were lame, and some could not move their bodies. They waited for the water to move.
 
 **4** At certain times an angel came down into the pool and moved the water. After the water moved, the first person who went into the pool became well. He became well from all his diseases.
 
@@ -368,7 +368,7 @@
 
 **13** But the man whom Jesus healed did not know who Jesus was. Jesus went away into the crowd in that place.
 
-**14** Later, Jesus found the man in the temple. He said to him, "Look, you are well now. Stop sinning. If you do not stop, something worse will occur to you."
+**14** Later, Jesus found the man in the temple. He said to him, "Look, you are well now. Do not sin again. If you sin, something worse will occur to you."
 
 **15** The man went away. He told the Jewish leaders that Jesus was the man who made him well.
 
@@ -380,7 +380,7 @@
 
 **19** Jesus answered them, "I tell you the truth: The Son can do nothing by himself. He can do only what he sees the Father do. The Son does the same things that the Father does.
 
-**20** The Father loves the Son and shows him all the things that he does. The Father will show the Son greater works than these. Then you will be surprised.
+**20** The Father loves the Son and shows him all the things that he does. The Father will show the Son greater works than these. Then you will feel wonder.
 
 **21** The Father brings dead people back to life and gives them life. In the same way, the Son gives life to the people whom he chooses.
 
@@ -390,13 +390,13 @@
 
 **24** I tell you the truth: A person who hears my words and believes God, who sent me, has eternal life. God will not judge him as guilty. He left death and came into life.
 
-**25** I tell you the truth: A time will come, and it is here now, when the dead will hear the voice of the Son of God. The people who hear his voice will live.
+**25** I tell you the truth. A time will come, and it is here now. Then the dead will hear the voice of the Son of God. The people who hear his voice will live.
 
 **26** The Father has life in himself. In the same way, he gave the Son life in himself.
 
 **27** The Father also gave the Son authority to judge, because he is the Son of Man.
 
-**28** Do not be surprised at this. A time will come when all the dead people in the graves will hear his voice.
+**28** Do not feel wonder at this. A time will come when all the dead people in the graves will hear his voice.
 
 **29** They will come out of the graves. The people who did good things will come back to life and live. The people who did evil things will come back to life and get judgment.
 
@@ -408,7 +408,7 @@
 
 **33** You sent messengers to John, and he told them the truth.
 
-**34** I do not need the words of a human to prove who I am. But I tell you these things so that you can be saved.
+**34** I do not need the words of a human to prove who I am. But I tell you these things so that God can save you.
 
 **35** John was like a lamp that burned and gave light. For a short time, you were happy to enjoy his light.
 
@@ -432,7 +432,7 @@
 
 **45** Do not think that I will accuse you in front of the Father. Moses will accuse you. You hope in Moses.
 
-**46** If you believed Moses, you would believe me, because Moses wrote about me.
+**46** If you believed Moses, you will believe me, because Moses wrote about me.
 
 **47** But you do not believe what Moses wrote. So you will not believe my words."
 
@@ -460,7 +460,7 @@
 
 **11** Then Jesus took the loaves and gave thanks. He gave the bread to the disciples, and the disciples gave it to the people who sat there. He did the same with the fish. All the people ate as much as they wanted.
 
-**12** When all the people had sufficient food, Jesus said to his disciples, "Gather the pieces that are left. Do not waste any food."
+**12** When all the people had sufficient food, Jesus said to his disciples, "Gather the pieces that remain. Do not waste any food."
 
 **13** So they gathered the pieces. They filled 12 baskets with the pieces of the 5 barley loaves that the people did not eat.
 
@@ -538,7 +538,7 @@
 
 **50** But here is the bread that comes down from heaven. If a person eats this bread, he will not die.
 
-**51** I am the living bread that came down from heaven. If a person eats this bread, he will live for all time. The bread that I will give is my body. I will give my body so that the world can have life."
+**51** I am the bread of life that came down from heaven. If a person eats this bread, he will live for all time. The bread that I will give is my body. I will give my body so that the world can have life."
 
 **52** Then the Jewish people argued among themselves. They said, "How can this man give us his body to eat?"
 
@@ -550,15 +550,15 @@
 
 **56** The person who eats my body and drinks my blood stays in me, and I stay in him.
 
-**57** The living Father sent me, and I live because of the Father. In the same way, the person who eats me will live because of me.
+**57** The Father who lives sent me, and I live because of the Father. In the same way, the person who eats me will live because of me.
 
 **58** This is the bread that came down from heaven. It is not like the manna that your ancestors ate. They died. But the person who eats this bread will live for all time."
 
 **59** Jesus said these things while he taught in the synagogue in Capernaum.
 
-**60** Many of his disciples heard this. They said, "This teaching is difficult. Who can accept it?"
+**60** Many of his disciples heard this. They said, "This message is difficult. Who can accept it?"
 
-**61** Jesus knew that his disciples complained about this. He said to them, "Does this teaching upset you?
+**61** Jesus knew that his disciples complained about this. He said to them, "Do these words upset you?
 
 **62** Then what will you think when you see the Son of Man go up to the place where he was before?
 
@@ -574,7 +574,7 @@
 
 **68** Simon Peter answered him, "Lord, to whom will we go? You have the words of eternal life.
 
-**69** We believe and we know that you are the Christ, the Son of the living God."
+**69** We believe and we know that you are the Christ, the Son of the God who lives."
 
 **70** Jesus answered them, "I chose you 12. But one of you is a devil."
 
@@ -610,11 +610,11 @@
 
 **14** At the middle of the feast, Jesus went up into the temple and taught.
 
-**15** The Jews were surprised. They said, "How does this man know so much? He did not study."
+**15** The Jews felt wonder. They said, "How does this man know so much? He did not study."
 
-**16** Jesus answered them, "My teaching is not mine. It comes from the one who sent me.
+**16** Jesus answered them, "My message is not mine. It comes from the one who sent me.
 
-**17** If a man wants to do God's will, he will know about the teaching. He will know if it comes from God or if I speak from myself.
+**17** If a man wants to do God's will, he will know about the message. He will know if it comes from God or if I speak from myself.
 
 **18** A man who speaks from himself tries to get glory for himself. But a man who tries to get glory for the one who sent him is true. There is nothing wrong in him.
 
@@ -622,7 +622,7 @@
 
 **20** The crowd answered, "You have a demon. Who tries to kill you?"
 
-**21** Jesus answered them, "I did 1 work, and all of you are surprised.
+**21** Jesus answered them, "I did 1 work, and all of you feel wonder.
 
 **22** Moses gave you circumcision. Circumcision did not come from Moses but from the fathers. And you circumcise a man on the Sabbath.
 
@@ -656,9 +656,9 @@
 
 **37** On the last day, the great day of the feast, Jesus stood and called out loudly. He said, "If a man is thirsty, let him come to me and drink.
 
-**38** The scripture says this about the man who believes in me: 'Rivers of living water will flow from inside him.'"
+**38** The scripture says this about the man who believes in me: 'Rivers of water that gives life will flow from inside him.'"
 
-**39** Jesus said this about the Spirit. The people who believed in him were to receive the Spirit later. The Holy Spirit was not given yet, because Jesus did not get his glory yet.
+**39** Jesus said this about the Spirit. The people who believed in him were to receive the Spirit later. God did not give the Holy Spirit yet, because Jesus did not get his glory yet.
 
 **40** Many people in the crowd heard these words. They said, "Truly this man is the Prophet."
 
@@ -726,7 +726,7 @@
 
 **18** I speak about myself, and the Father who sent me also speaks about me."
 
-**19** Then they said to him, "Where is your Father?" Jesus answered, "You do not know me or my Father. If you knew me, you would also know my Father."
+**19** Then they said to him, "Where is your Father?" Jesus answered, "You do not know me or my Father. If you knew me, you will also know my Father."
 
 **20** Jesus spoke these words in the treasury while he taught in the temple. No man seized him, because his time did not come yet.
 
@@ -766,13 +766,13 @@
 
 **38** I speak the things that I saw with my Father. And you do the things that you saw with your father."
 
-**39** They answered him, "Abraham is our father." Jesus said to them, "If you were the children of Abraham, you would do the works of Abraham.
+**39** They answered him, "Abraham is our father." Jesus said to them, "If you are the children of Abraham, you will do the works of Abraham.
 
 **40** But now you try to kill me. I am a man who told you the truth that I heard from God. Abraham did not do this.
 
 **41** You do the works of your father." Then they said to him, "We are not children of sexual sin. We have 1 Father, God."
 
-**42** Jesus said to them, "If God were your Father, you would love me. I came from God. I did not come from myself. God sent me.
+**42** Jesus said to them, "If God is your Father, you will love me. I came from God. I did not come from myself. God sent me.
 
 **43** Why do you not understand what I say? Because you cannot hear my word.
 
@@ -798,13 +798,13 @@
 
 **54** Jesus answered, "If I give glory to myself, my glory is nothing. My Father gives me glory. You say that he is your God.
 
-**55** But you do not know him. I know him. If I said that I do not know him, I would be a liar like you. But I know him, and I obey his word.
+**55** But you do not know him. I know him. If I say that I do not know him, I will be a liar like you. But I know him, and I obey his word.
 
 **56** Your father Abraham was glad that he was to see my day. He saw it and he was glad."
 
 **57** Then the Jews said to him, "You are not 50 years old yet. Did you see Abraham?"
 
-**58** Jesus said to them, "I tell you the truth. Before Abraham was born, I am."
+**58** Jesus said to them, "I tell you the truth. Before Abraham lived, I am."
 
 **59** Then they took up stones to throw at him. But Jesus hid himself and went out of the temple. He went through the middle of them and went away.
 
@@ -814,7 +814,7 @@
 
 **2** His disciples asked him, "Teacher, who sinned, this man or his parents? Why was he born blind?"
 
-**3** Jesus answered, "This man did not sin, and his parents did not sin. He was born blind so that the people can see the works of God in him.
+**3** Jesus answered, "This man did not sin, and his parents did not sin. His mother gave birth to him blind so that the people can see the works of God in him.
 
 **4** I must do the works of the one who sent me while it is day. The night comes, and then no man can work.
 
@@ -846,13 +846,13 @@
 
 **18** But the Jews did not believe that the man was blind and then got his sight. Thus they called the parents of the man.
 
-**19** They asked the parents, "Is this your son? Do you say that he was born blind? How does he see now?"
+**19** They asked the parents, "Is this your son? Do you say that he was blind from birth? How does he see now?"
 
-**20** His parents answered them, "We know that this is our son. We know that he was born blind.
+**20** His parents answered them, "We know that this is our son. We know that he was blind from birth.
 
 **21** But we do not know how he sees now. We do not know who opened his eyes. He is an adult. Ask him. He will speak for himself."
 
-**22** His parents said these words because they were afraid of the Jews. The Jews agreed before that they would put a man out of the synagogue if he said that Jesus was the Christ.
+**22** His parents said these words because they were afraid of the Jews. The Jews agreed before to put a man out of the synagogue if he said that Jesus was the Christ.
 
 **23** Thus his parents said, "He is an adult. Ask him."
 
@@ -872,11 +872,11 @@
 
 **31** We know that God does not listen to sinners. But if a man worships God and does his will, God listens to him.
 
-**32** Since the start of the world, no man ever heard that a person opened the eyes of a man who was born blind.
+**32** Since the start of the world, no man ever heard that a person opened the eyes of a man who was blind from birth.
 
 **33** If this man were not from God, he could do nothing."
 
-**34** They answered him, "You were born fully in sins. Do you teach us?" Then they threw him out.
+**34** They answered him, "You were fully in sins from your birth. Do you teach us?" Then they threw him out.
 
 **35** Jesus heard that they threw him out. When Jesus found him, he said to the man, "Do you believe in the Son of God?"
 
@@ -890,7 +890,7 @@
 
 **40** Some of the Pharisees who were with him heard these words. They said to him, "Are we also blind?"
 
-**41** Jesus said to them, "If you were blind, you would have no sin. But now you say, 'We see.' Thus your sin stays."
+**41** Jesus said to them, "If you are blind, you have no sin. But now you say, 'We see.' Thus your sin stays."
 
 ## Chapter 10
 
@@ -1020,7 +1020,7 @@
 
 **20** When Martha heard that Jesus came, she went to meet him. But Mary sat in the house.
 
-**21** Martha said to Jesus, "Lord, if you were here, my brother would not have died.
+**21** Martha said to Jesus, "Lord, you were not here. If you were here, my brother did not die.
 
 **22** But I know that even now God will give you all the things that you ask from him."
 
@@ -1042,9 +1042,9 @@
 
 **31** The Jews were with Mary in the house to comfort her. They saw her get up quickly and go out. They followed her. They said, "She goes to the tomb to cry there."
 
-**32** Mary came to the place where Jesus was. When she saw him, she fell down at his feet. She said to him, "Lord, if you were here, my brother would not have died."
+**32** Mary came to the place where Jesus was. When she saw him, she fell down at his feet. She said to him, "Lord, if you were here, my brother did not die."
 
-**33** Jesus saw her cry. He saw that the Jews who came with her also cried. He felt strong emotion in his spirit, and he was troubled.
+**33** Jesus saw her cry. He saw that the Jews who came with her also cried. He felt strong emotion in his spirit, and he felt much trouble.
 
 **34** He said, "Where did you put him?" They said to him, "Lord, come and see."
 
@@ -1054,7 +1054,7 @@
 
 **37** Some of them said, "This man opened the eyes of the blind man. Could he not also stop the death of this man?"
 
-**38** Jesus again felt strong emotion in himself. He came to the tomb. The tomb was a cave, and a stone was on its opening.
+**38** Jesus again felt strong emotion in himself. He came to the tomb. The tomb was a cave, and a stone was on its entrance.
 
 **39** Jesus said, "Take away the stone." Martha, the sister of the dead man, said to him, "Lord, by now the body smells bad. He is dead for 4 days."
 
@@ -1072,7 +1072,7 @@
 
 **46** But some of them went to the Pharisees. They told the Pharisees the things that Jesus did.
 
-**47** Then the chief priests and the Pharisees called a meeting of the council. They said, "What will we do? This man does many miracles.
+**47** Then the chief priests and the Pharisees called the council together. They said, "What will we do? This man does many miracles.
 
 **48** If we let him continue, all the people will believe in him. Then the Romans will come and take away our place and our nation."
 
@@ -1148,7 +1148,7 @@
 
 **26** If a man serves me, he must follow me. My servant will be in the place where I am. If a man serves me, my Father will honor him.
 
-**27** Now I am troubled in my soul. What will I say? 'Father, save me from this time'? No. I came for this time.
+**27** Now my soul has much trouble. What will I say? 'Father, save me from this time'? No. I came for this time.
 
 **28** Father, give glory to your name." Then a voice came from heaven. The voice said, "I gave it glory, and I will give it glory again."
 
@@ -1162,7 +1162,7 @@
 
 **33** He said this to show what type of death he was to die.
 
-**34** The crowd answered him, "The law tells us that the Christ stays always. Then why do you say, 'The Son of Man must be lifted up'? Who is this Son of Man?"
+**34** The crowd answered him, "The law tells us that the Christ stays always. Then why do you say, 'People must lift up the Son of Man'? Who is this Son of Man?"
 
 **35** Then Jesus said to them, "The light will be with you a short time more. Walk while you have the light, so that darkness does not catch you. The man who walks in darkness does not know where he goes.
 
@@ -1238,7 +1238,7 @@
 
 **20** I tell you the truth. A man who receives the person that I send receives me. And a man who receives me receives the one who sent me."
 
-**21** After Jesus said these things, he was troubled in his spirit. He spoke clearly. He said, "I tell you the truth. One of you will betray me."
+**21** After Jesus said these things, he felt much trouble in his spirit. He spoke clearly. He said, "I tell you the truth. One of you will betray me."
 
 **22** Then the disciples looked at each other. They did not know about whom he spoke.
 
@@ -1276,9 +1276,9 @@
 
 ## Chapter 14
 
-**1** "Do not let your heart be troubled. Believe in God. Also believe in me.
+**1** "Do not let your heart have trouble. Believe in God. Also believe in me.
 
-**2** There are many rooms in the house of my Father. If this were not true, I would tell you. I go to make a place ready for you.
+**2** There are many rooms in the house of my Father. If this is not true, I will tell you. I go to make a place ready for you.
 
 **3** If I go and make a place ready for you, I will come again. I will take you to be with me. Then you will also be in the place where I am.
 
@@ -1288,7 +1288,7 @@
 
 **6** Jesus said to him, "I am the way, the truth, and the life. No man comes to the Father if he does not come through me.
 
-**7** If you knew me, you would also know my Father. From now on you know him and you saw him."
+**7** If you knew me, you will also know my Father. From now on you know him and you saw him."
 
 **8** Philip said to him, "Lord, show us the Father. That is enough for us."
 
@@ -1328,9 +1328,9 @@
 
 **26** But the Father will send the Helper, the Holy Spirit, in my name. The Holy Spirit will teach you all things. He will help you remember all the things that I told you.
 
-**27** I leave peace with you. I give my peace to you. I do not give it to you as the world gives. Do not let your heart be troubled, and do not be afraid.
+**27** I leave peace with you. I give my peace to you. I do not give it to you as the world gives. Do not let your heart have trouble, and do not be afraid.
 
-**28** You heard me say to you, 'I go away, and I will come back to you.' If you loved me, you would be glad that I go to the Father. The Father is greater than I am.
+**28** You heard me say to you, 'I go away, and I will come back to you.' If you love me, you will be glad that I go to the Father. The Father is greater than I am.
 
 **29** I told you now, before it occurs. Then when it occurs, you will believe.
 
@@ -1376,17 +1376,17 @@
 
 **18** If the world hates you, know that it hated me before it hated you.
 
-**19** If you were from the world, the world would love its own people. But you are not from the world. I chose you out of the world. Thus the world hates you.
+**19** If you were from the world, the world will love its own people. But you are not from the world. I chose you out of the world. Thus the world hates you.
 
 **20** Remember the word that I told you: 'A servant is not greater than his master.' If they caused me to suffer, they will also cause you to suffer. If they obeyed my word, they will also obey your word.
 
 **21** But they will do all these things to you because of my name. They do not know the one who sent me.
 
-**22** If I did not come and speak to them, they would have no sin. But now they have no excuse for their sin.
+**22** If I did not come and speak to them, they have no sin. But now they have no excuse for their sin.
 
 **23** The man who hates me also hates my Father.
 
-**24** I did works among them that no other man did. If I did not do these works, they would have no sin. But now they saw these works, and they hated me and my Father.
+**24** I did works among them that no other man did. If I did not do these works, they have no sin. But now they saw these works, and they hated me and my Father.
 
 **25** This occurred so that the word in their law came true: 'They hated me with no reason.'
 
@@ -1436,7 +1436,7 @@
 
 **20** I tell you the truth. You will cry and be sad, but the world will be glad. You will be sad, but your sadness will change into joy.
 
-**21** When a woman gives birth, she has pain, because her time came. But after she gives birth to the child, she does not remember the pain. She is glad that a person was born into the world.
+**21** When a woman gives birth, she has pain, because her time came. But after she gives birth to the child, she does not remember the pain. She is glad that a new person came into the world.
 
 **22** Thus you are sad now. But I will see you again, and your heart will be glad. No man will take your joy from you.
 
@@ -1486,7 +1486,7 @@
 
 **11** I will not be in the world again, but they are in the world. I come to you. Holy Father, keep them safe through your name, the name that you gave me. Then they will be one, as we are one.
 
-**12** While I was with them in the world, I kept them safe in your name. I protected the people that you gave me. None of them was lost except the son of destruction. Thus the scripture came true.
+**12** While I was with them in the world, I kept them safe in your name. I protected the people that you gave me. I lost none of them except the son of destruction. Thus the scripture came true.
 
 **13** Now I come to you. I say these things in the world so that they have my joy fully in them.
 
@@ -1538,7 +1538,7 @@
 
 **10** Then Simon Peter had a sword. He took it out and hit the servant of the high priest. He cut off the right ear of the servant. The name of the servant was Malchus.
 
-**11** Then Jesus said to Peter, "Put your sword back into its cover. The Father gave me this cup of suffering. Must I not drink it?"
+**11** Then Jesus said to Peter, "Put your sword back into its cover. The Father gave me this cup of pain. Must I not drink it?"
 
 **12** Then the soldiers, their commander, and the officers of the Jews seized Jesus and tied him.
 
@@ -1554,7 +1554,7 @@
 
 **18** The servants and officers stood there. They made a fire of coals, because it was cold. They stood and made themselves warm. Peter stood with them and made himself warm.
 
-**19** Then the high priest asked Jesus about his disciples and about his teaching.
+**19** Then the high priest asked Jesus about his disciples and about his message.
 
 **20** Jesus answered him, "I spoke openly to the world. I always taught in the synagogue and in the temple, where all the Jews meet. I said nothing in secret.
 
@@ -1576,7 +1576,7 @@
 
 **29** Then Pilate went out to them. He said, "What do you say against this man?"
 
-**30** They answered him, "If he were not a criminal, we would not give him to you."
+**30** They answered him, "He is a criminal. If he is not a criminal, we will not give him to you."
 
 **31** Then Pilate said to them, "You take him and judge him by your law." The Jews said to him, "The law does not permit us to kill any man."
 
@@ -1588,9 +1588,9 @@
 
 **35** Pilate answered, "Am I a Jew? Your own nation and the chief priests gave you to me. What did you do?"
 
-**36** Jesus answered, "My kingdom is not from this world. If my kingdom were from this world, my servants would fight. They would fight so that the Jews do not seize me. But my kingdom is not from here."
+**36** Jesus answered, "My kingdom is not from this world. If my kingdom is from this world, my servants will fight. They will fight so that the Jews do not seize me. But my kingdom is not from here."
 
-**37** Then Pilate said to him, "Then are you a king?" Jesus answered, "You say that I am a king. I was born for this reason, and I came into the world for this reason: to speak about the truth. Each person who is from the truth hears my voice."
+**37** Then Pilate said to him, "Then are you a king?" Jesus answered, "You say that I am a king. For this reason my mother gave birth to me. For this reason I came into the world: to speak about the truth. Each person who is from the truth hears my voice."
 
 **38** Pilate said to him, "What is truth?" After Pilate said this, he went out again to the Jews. He said to them, "I find no crime in him.
 
@@ -1620,7 +1620,7 @@
 
 **10** Then Pilate said to him, "Do you not speak to me? Do you not know that I have authority to crucify you? I also have authority to release you."
 
-**11** Jesus answered, "You would have no authority over me if God did not give it to you. Thus the man who gave me to you has the greater sin."
+**11** Jesus answered, "You have no authority over me if God does not give it to you. Thus the man who gave me to you has the greater sin."
 
 **12** From that time, Pilate tried to release him. But the Jews shouted, "If you release this man, you are not a friend of Caesar. Each man who makes himself a king speaks against Caesar."
 
@@ -1630,7 +1630,7 @@
 
 **15** But they shouted, "Take him away! Take him away! Crucify him!" Pilate said to them, "Must I crucify your King?" The chief priests answered, "We have no king but Caesar."
 
-**16** Then Pilate gave Jesus to them to be crucified. They took Jesus and led him away.
+**16** Then Pilate gave Jesus to them so that the soldiers can crucify him. They took Jesus and led him away.
 
 **17** Jesus carried his cross and went out to a place with the name "The Place of the Skull." In Hebrew, the name is Golgotha.
 
@@ -1644,7 +1644,7 @@
 
 **22** Pilate answered, "I wrote what I wrote."
 
-**23** After the soldiers crucified Jesus, they took his clothes. They divided the clothes into 4 parts, 1 part for each soldier. They also took his coat. The coat had no seam. It was made in 1 piece from the top to the bottom.
+**23** After the soldiers crucified Jesus, they took his clothes. They divided the clothes into 4 parts, 1 part for each soldier. They also took his coat. The coat had no seam. The weaver made it in 1 piece from the top to the bottom.
 
 **24** They said to each other, "We will not tear it. We will throw lots to decide who gets it." This occurred so that the scripture came true: "They divided my clothes among them. They threw lots for my coat." Thus the soldiers did these things.
 
@@ -1670,7 +1670,7 @@
 
 **35** The man who saw this tells about it, and his words are true. He knows that he tells the truth. He tells it so that you also believe.
 
-**36** These things occurred so that the scripture came true: "Not 1 of his bones will be broken."
+**36** These things occurred so that the scripture came true: "No person will break 1 of his bones."
 
 **37** A different scripture also says, "They will look at the man whom they pierced."
 
@@ -1698,7 +1698,7 @@
 
 **6** Then Simon Peter came after him. Peter went into the tomb. He saw the strips of linen cloth there.
 
-**7** He saw the cloth that was on the head of Jesus. That cloth was not with the strips of linen. It was folded in a different place.
+**7** He saw the cloth that was on the head of Jesus. That cloth was not with the strips of linen. Someone folded it and put it in a different place.
 
 **8** Then the other disciple, who came to the tomb first, also went in. He saw and he believed.
 
@@ -1722,7 +1722,7 @@
 
 **18** Mary Magdalene went and told the disciples that she saw the Lord. She told them that he said these things to her.
 
-**19** On the evening of that day, the first day of the week, the disciples were together. The doors were locked, because the disciples were afraid of the Jews. Jesus came and stood in the middle of them. He said to them, "Peace to you."
+**19** On the evening of that day, the first day of the week, the disciples were together. They locked the doors, because they were afraid of the Jews. Jesus came and stood in the middle of them. He said to them, "Peace to you."
 
 **20** After he said this, he showed them his hands and his side. The disciples were glad when they saw the Lord.
 
@@ -1736,7 +1736,7 @@
 
 **25** The other disciples said to him, "We saw the Lord." But Thomas said to them, "I must see the marks of the nails in his hands. I must put my finger into the marks of the nails. I must put my hand into his side. If I do not do these things, I will not believe."
 
-**26** After 8 days, his disciples were inside again. Thomas was with them. The doors were locked, but Jesus came and stood in the middle of them. He said, "Peace to you."
+**26** After 8 days, his disciples were inside again. Thomas was with them. They locked the doors, but Jesus came and stood in the middle of them. He said, "Peace to you."
 
 **27** Then he said to Thomas, "Put your finger here and see my hands. Put your hand into my side. Stop your doubt, and believe."
 
@@ -1744,9 +1744,9 @@
 
 **29** Jesus said to him, "Thomas, you believed because you saw me. Happy are the people who did not see me and believed."
 
-**30** Jesus did many other miracles in front of his disciples. They are not written in this book.
+**30** Jesus did many other miracles in front of his disciples. I did not write them in this book.
 
-**31** But these miracles are written so that you believe that Jesus is the Christ, the Son of God. If you believe, you will have life through his name.
+**31** But I wrote these miracles so that you believe that Jesus is the Christ, the Son of God. If you believe, you will have life through his name.
 
 ## Chapter 21
 

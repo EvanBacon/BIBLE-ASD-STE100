@@ -18,7 +18,7 @@
 
 **8** God knows that I want very much to see all of you. I love you with the love of Jesus Christ.
 
-**9** This is my prayer: I pray that your love will grow more and more. I pray that it will grow in knowledge and in all understanding.
+**9** This is my prayer: I pray that your love will grow more and more. I pray that it will grow in knowledge and in all good judgment.
 
 **10** Then you will know which things are the best. You will be pure and without fault until the day of Christ.
 
@@ -96,7 +96,7 @@
 
 **16** Hold on to the word of life. Then, on the day of Christ, I will be proud of you. I will know that my work for you was not useless.
 
-**17** Your faith is a sacrifice and a service to God. Maybe my blood will be poured out like an offering on your sacrifice. If this occurs, I will be glad. I will share my joy with all of you.
+**17** Your faith is a sacrifice and a service to God. Possibly I will pour out my blood like an offering on your sacrifice. If this occurs, I will be glad. I will share my joy with all of you.
 
 **18** In the same way, you must also be glad and share your joy with me.
 
@@ -182,7 +182,7 @@
 
 **6** Do not worry about anything. In all things, pray and ask God for what you need. Thank him and tell him your requests.
 
-**7** Then the peace of God will keep your hearts and minds safe in Christ Jesus. This peace is greater than all understanding.
+**7** Then the peace of God will keep your hearts and minds safe in Christ Jesus. This peace is greater than all that people can know.
 
 **8** Last, brothers, think about the things that are true, honorable, correct, pure, lovely and good. Think about the things that are excellent and that deserve praise.
 
@@ -202,7 +202,7 @@
 
 **16** When I was in Thessalonica, you sent help for my needs more than one time.
 
-**17** I do not want a gift for myself. I want a good result that will be added to your account.
+**17** I do not want a gift for myself. I want a good result that will go into your account.
 
 **18** I have all that I need, and more. I have much, because Epaphroditus brought me your gifts. Your gifts are like a sweet smell to God. They are a sacrifice that God accepts and that makes him happy.
 

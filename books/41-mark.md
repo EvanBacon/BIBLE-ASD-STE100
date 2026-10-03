@@ -8,7 +8,7 @@
 
 **3** A man shouts in the desert, 'Prepare the road for the Lord. Make his paths straight.'"
 
-**4** John came and baptized people in the desert. He told the people, "Change your thoughts and your ways (repent), and be baptized. Then God will forgive your sins."
+**4** John came and baptized people in the desert. He told the people, "Change your thoughts and your ways (repent), and receive baptism. Then God will forgive your sins."
 
 **5** All the people of Judea and all the people of Jerusalem went out to John. They told him their sins. Then John baptized them in the Jordan River.
 
@@ -42,9 +42,9 @@
 
 **20** Immediately Jesus called them. They left their father Zebedee in the boat with the paid workers. Then they followed Jesus.
 
-**21** Jesus and his disciples went into the town of Capernaum. On the Sabbath day, Jesus went into the synagogue (the Jewish meeting house) and taught.
+**21** Jesus and his disciples went into the town of Capernaum. On the Sabbath day, Jesus went into the synagogue (the Jewish house of assembly) and taught.
 
-**22** The people were very surprised at his teaching. He taught them as a man with authority. He did not teach as the teachers of the law did.
+**22** The people were full of wonder at the things that he taught. He taught them as a man with authority. He did not teach as the teachers of the law did.
 
 **23** In the synagogue, there was a man with an evil spirit. The man shouted,
 
@@ -54,7 +54,7 @@
 
 **26** The evil spirit shook the man violently and shouted with a loud voice. Then it came out of him.
 
-**27** All the people were very surprised. They asked each other, "What is this? This is a new teaching with authority! He gives orders even to evil spirits, and the spirits obey him!"
+**27** All the people were full of wonder. They asked each other, "What is this? This is a new message with authority! He gives orders even to evil spirits, and the spirits obey him!"
 
 **28** Immediately the news about Jesus went quickly to all areas of Galilee.
 
@@ -80,15 +80,15 @@
 
 **39** Thus Jesus went through all of Galilee. He told the good news in the synagogues, and he forced demons out of people.
 
-**40** A man with a skin disease (leprosy) came to Jesus. He went down on his knees and asked for help. He said, "If you are willing, you can make me clean."
+**40** A man with a skin disease (leprosy) came to Jesus. He went down on his knees and asked for help. He said, "If you want, you can make me clean."
 
-**41** Jesus felt pity for him. Jesus put out his hand and touched the man. He said, "I am willing. Be clean!"
+**41** Jesus felt pity for him. Jesus put out his hand and touched the man. He said, "I want to. Be clean!"
 
 **42** Immediately the leprosy went away, and the man was clean.
 
-**43** Jesus sent the man away immediately with a strong warning.
+**43** Jesus sent the man away immediately and gave him a strong order.
 
-**44** He said, "Do not tell anyone about this. But go and show yourself to the priest. Give the offering that Moses ordered for people who become clean. This will show the people that you are healed."
+**44** He said, "Do not tell anyone about this. But go and show yourself to the priest. Give the offering that Moses ordered for people who become clean. This will show the people that you are well now."
 
 **45** But the man went out and told many people. He told the news everywhere. Thus Jesus could not go into a town openly. He stayed outside in places where no people lived. But people came to him from all areas.
 
@@ -136,7 +136,7 @@
 
 **21** "People do not sew a piece of new cloth onto an old coat. If they do, the new piece will pull away from the old coat. Then the hole will become worse.
 
-**22** People do not put new wine into old wineskins. If they do, the new wine will break the wineskins. Then the wine will flow out, and the wineskins will be destroyed. People must put new wine into new wineskins."
+**22** People do not put new wine into old wineskins. If they do, the new wine will break the wineskins. Then the wine will flow out, and the wineskins will become useless. People must put new wine into new wineskins."
 
 **23** On a Sabbath day, Jesus went through some grain fields. As his disciples walked, they started to pick some heads of grain.
 
@@ -154,7 +154,7 @@
 
 **1** Jesus went into the synagogue again. A man with a crippled hand was there.
 
-**2** Some people watched Jesus carefully. They wanted to see if he would heal the man on the Sabbath. They wanted a reason to accuse Jesus.
+**2** Some people watched Jesus carefully. They wanted to see if he will heal the man on the Sabbath. They wanted a reason to accuse Jesus.
 
 **3** Jesus said to the man with the crippled hand, "Come and stand here."
 
@@ -226,7 +226,7 @@
 
 **1** Again Jesus started to teach near the sea. A very large crowd came together around him. Thus he went into a boat and sat in it on the water. All the crowd stayed on the shore.
 
-**2** Jesus taught them many things with stories (parables). In his teaching he said,
+**2** Jesus taught them many things with stories (parables). As he taught, he said,
 
 **3** "Listen! A farmer went out to plant seed.
 
@@ -246,13 +246,13 @@
 
 **11** He said to them, "God lets you know the secret of the kingdom of God. But for the people outside, I tell all things in stories.
 
-**12** Thus they will look but not see. They will hear but not understand. If they understood, they possibly would turn back to God, and God would forgive them."
+**12** Thus they will look but not see. They will hear but not understand. If they understand, possibly they will turn back to God, and God will forgive them."
 
 **13** Then Jesus said to them, "Do you not understand this story? Then how will you understand any of the stories?
 
 **14** The farmer plants the word of God.
 
-**15** Some people are like the path where the seed fell. They hear the word. But immediately Satan comes and takes away the word that was planted in them.
+**15** Some people are like the path where the seed fell. They hear the word. But immediately Satan comes and takes away the word that the farmer put in them.
 
 **16** Other people are like the rocky ground. They hear the word, and immediately they accept it with joy.
 
@@ -266,7 +266,7 @@
 
 **21** Jesus said to them, "People do not put a lamp under a basket or under a bed. They put it on a lampstand.
 
-**22** All the things that are hidden will become known. All the things that are secret will come into the light.
+**22** All the things that people hide will become known. All the things that are secret will come into the light.
 
 **23** If you have ears to hear, then listen!"
 
@@ -346,25 +346,25 @@
 
 **19** But Jesus did not let him go. Jesus said to him, "Go home to your family. Tell them how much the Lord did for you. Tell them that the Lord showed you mercy."
 
-**20** The man went away. He started to tell the people in Decapolis how much Jesus did for him. All the people were surprised.
+**20** The man went away. He started to tell the people in Decapolis how much Jesus did for him. All the people were full of wonder.
 
 **21** Jesus went in the boat across to the other side of the sea again. A large crowd came together around him on the shore.
 
 **22** One of the leaders of the synagogue came there. His name was Jairus. He saw Jesus and fell down at his feet.
 
-**23** He asked Jesus again and again, "My little daughter is almost dead. Please come and put your hands on her. Then she will be healed and live."
+**23** He asked Jesus again and again, "My little daughter is almost dead. Please come and put your hands on her. Then she will become well and live."
 
 **24** Jesus went with him. A large crowd followed Jesus and pushed against him.
 
-**25** A woman in the crowd had a bleeding disease for 12 years.
+**25** A woman in the crowd had a disease. For 12 years blood came out of her body.
 
 **26** She suffered much under the care of many doctors. She spent all her money. But she did not become better. She became worse.
 
 **27** She heard about Jesus. She came behind him in the crowd and touched his clothes.
 
-**28** She thought, "If I only touch his clothes, I will be healed."
+**28** She thought, "If I only touch his clothes, I will become well."
 
-**29** Immediately her bleeding stopped. She felt in her body that her disease was healed.
+**29** Immediately the blood stopped. She felt in her body that her disease was gone.
 
 **30** Immediately Jesus knew that power went out from him. He turned around in the crowd and asked, "Who touched my clothes?"
 
@@ -406,17 +406,17 @@
 
 **5** Jesus could not do any miracles there. He only put his hands on a few sick people and healed them.
 
-**6** He was surprised that the people did not believe. Then Jesus went to the villages in that area and taught.
+**6** He was full of wonder because the people did not believe. Then Jesus went to the villages in that area and taught.
 
 **7** Jesus called the 12 disciples to him. He started to send them out in groups of 2. He gave them authority over evil spirits.
 
-**8** He told them, "Take nothing for the journey but a walking stick. Do not take bread, a bag, or money in your belt.
+**8** He told them, "Take nothing for the journey but a stick. Do not take bread, a bag, or money in your belt.
 
 **9** Wear sandals, but do not take 2 coats."
 
 **10** He said to them, "When you go into a house, stay there until you leave that town.
 
-**11** If the people in a place do not accept you or listen to you, then leave that place. Shake the dust off your feet as a warning to them. I tell you the truth. On the day of judgment, the punishment for Sodom and Gomorrah will be less than the punishment for that town."
+**11** If the people in a place do not accept you or listen to you, then leave that place. Shake the dust off your feet to show that they did wrong. I tell you the truth. On the day of judgment, the punishment for Sodom and Gomorrah will be less than the punishment for that town."
 
 **12** The disciples went out. They told the people to repent.
 
@@ -498,7 +498,7 @@
 
 **51** Then he went into the boat with them, and the wind stopped. The disciples were very, very surprised.
 
-**52** They did not understand the miracle of the loaves. Their minds were closed.
+**52** They did not understand the miracle of the loaves. Their minds were hard.
 
 **53** They went across the sea and came to land at Gennesaret. They tied the boat at the shore.
 
@@ -506,7 +506,7 @@
 
 **55** They ran through all that area. They carried sick people on mats to all the places where they heard that Jesus was.
 
-**56** Jesus went into villages, towns, and farms. In all these places, the people put the sick people in the market places. They asked Jesus to let the sick people touch only the edge of his coat. All the people who touched him were healed.
+**56** Jesus went into villages, towns, and farms. In all these places, the people put the sick people in the market places. They asked Jesus to let the sick people touch only the edge of his coat. All the people who touched him became well.
 
 ## Chapter 7
 
@@ -560,7 +560,7 @@
 
 **25** A woman heard about him. Her little daughter had an evil spirit in her. Immediately the woman came and fell down at the feet of Jesus.
 
-**26** The woman was a Greek. She was born in Syrian Phoenicia. She asked Jesus to force the demon out of her daughter.
+**26** The woman was a Greek. She came from Syrian Phoenicia. She asked Jesus to force the demon out of her daughter.
 
 **27** Jesus said to her, "First let the children eat all that they want. It is not correct to take the bread of the children and throw it to the dogs."
 
@@ -644,7 +644,7 @@
 
 **29** Jesus asked them, "But who do you say that I am?" Peter said to him, "You are the Christ."
 
-**30** Jesus gave them a strong warning. He told them not to tell anyone about him.
+**30** Jesus gave them a strong order. He told them not to tell anyone about him.
 
 **31** Then Jesus started to teach them about the Son of Man. He said, "The Son of Man must suffer many things. The elders, the chief priests, and the teachers of the law will reject him. They will kill him. After 3 days, he will come back to life."
 
@@ -660,7 +660,7 @@
 
 **37** A person cannot give anything to buy back his soul.
 
-**38** The people of this time are not loyal to God, and they are sinful. If a person is ashamed of me and my words among these people, then the Son of Man will be ashamed of that person. That will occur when the Son of Man comes in the glory of his Father with the holy angels."
+**38** The people of this time are not loyal to God, and they are sinful. If a person feels shame about me and my words among these people, then the Son of Man will feel shame about that person. That will occur when the Son of Man comes in the glory of his Father with the holy angels."
 
 ## Chapter 9
 
@@ -720,7 +720,7 @@
 
 **28** Jesus went into a house. His disciples asked him when they were alone, "Why could we not force the spirit out?"
 
-**29** Jesus said to them, "Only prayer and fasting can force out this type of spirit."
+**29** Jesus said to them, "Only prayer can force out this type of spirit. You must also not eat food."
 
 **30** Jesus and his disciples left that place. They went through Galilee. Jesus did not want any person to know where they were.
 
@@ -790,7 +790,7 @@
 
 **12** And a woman possibly will divorce her husband and marry another man. Then she does adultery."
 
-**13** People brought little children to Jesus, so that he would touch them. But the disciples spoke strongly against these people.
+**13** People brought little children to Jesus, so that he will touch them. But the disciples spoke strongly against these people.
 
 **14** Jesus saw this and became angry. He said to the disciples, "Let the little children come to me. Do not stop them. The kingdom of God belongs to people like these children.
 
@@ -812,9 +812,9 @@
 
 **23** Jesus looked around and said to his disciples, "It is very hard for rich people to go into the kingdom of God!"
 
-**24** The disciples were surprised at his words. But Jesus said again, "Children, it is very hard to go into the kingdom of God!
+**24** The disciples were full of wonder at his words. But Jesus said again, "Children, it is very hard to go into the kingdom of God!
 
-**25** It is easier for a camel to go through the hole in a needle than for a rich man to go into the kingdom of God."
+**25** It is easier for a camel to go through the hole in a needle. It is more difficult for a rich man to go into the kingdom of God."
 
 **26** The disciples were very, very surprised. They said to each other, "Then who can God save?"
 
@@ -828,7 +828,7 @@
 
 **31** But many people who are first now will be last. And many people who are last now will be first."
 
-**32** Jesus and his disciples were on the road up to Jerusalem. Jesus walked in front of them. The disciples were surprised, and the people who followed were afraid. Again Jesus took the 12 disciples to one side. He told them what would occur to him.
+**32** Jesus and his disciples were on the road up to Jerusalem. Jesus walked in front of them. The disciples were full of wonder, and the people who followed were afraid. Again Jesus took the 12 disciples to one side. He told them what will occur to him.
 
 **33** He said, "Listen, we go up to Jerusalem. There, people will give the Son of Man to the chief priests and the teachers of the law. They will condemn him to death. They will give him to the Gentiles (the people who are not Jews).
 
@@ -840,9 +840,9 @@
 
 **37** They said to him, "When you are king in your glory, let us sit with you. Let one of us sit at your right side and one at your left side."
 
-**38** Jesus said to them, "You do not know what you ask. Can you drink the cup of suffering that I drink? Can you be baptized with the baptism of suffering that I will have?"
+**38** Jesus said to them, "You do not know what you ask. Can you drink the cup of pain that I drink? Can you receive the baptism of pain that I will have?"
 
-**39** They said to him, "We can." Jesus said to them, "You will drink the cup that I drink. You will be baptized with the baptism that I will have.
+**39** They said to him, "We can." Jesus said to them, "You will drink the cup that I drink. You will receive the baptism that I will have.
 
 **40** But I cannot choose who will sit at my right side or my left side. Those places are for the people for whom God prepared them."
 
@@ -904,9 +904,9 @@
 
 **16** He did not let any person carry goods through the temple courtyard.
 
-**17** Jesus taught the people. He said, "The scriptures say, 'My house will be called a house of prayer for all nations.' But you changed it into a hiding place for thieves."
+**17** Jesus taught the people. He said, "The scriptures say, 'People of all nations will call my house a house of prayer.' But you changed it into a place where thieves hide."
 
-**18** The chief priests and the teachers of the law heard this. They looked for a way to kill Jesus. They were afraid of him, because all the crowd was very surprised at his teaching.
+**18** The chief priests and the teachers of the law heard this. They looked for a way to kill Jesus. They were afraid of him, because all the crowd was full of wonder at the things that he taught.
 
 **19** In the evening, Jesus and his disciples left the city.
 
@@ -990,9 +990,9 @@
 
 **25** When people come back to life from the dead, they do not marry. They are like the angels in heaven.
 
-**26** Now I will tell you about dead people who come back to life. Did you not read in the book of Moses about the burning bush? God spoke to Moses there. God said, 'I am the God of Abraham, the God of Isaac, and the God of Jacob.'
+**26** Now I will tell you about dead people who come back to life. Did you not read in the book of Moses about the bush that burned? God spoke to Moses there. God said, 'I am the God of Abraham, the God of Isaac, and the God of Jacob.'
 
-**27** God is not the God of dead people. He is the God of living people. You are very wrong!"
+**27** God is not the God of dead people. He is the God of people who live. You are very wrong!"
 
 **28** One of the teachers of the law came and heard them argue. He saw that Jesus gave them a good answer. Thus he asked Jesus, "Which command is the most important of all?"
 
@@ -1004,17 +1004,17 @@
 
 **32** The teacher of the law said to Jesus, "That is a good answer, Teacher. You told the truth. There is only 1 God, and there is no other God.
 
-**33** We must love God with all our heart, all our understanding, and all our strength. We must love other people as we love ourselves. These commands are more important than all the burnt offerings and sacrifices."
+**33** We must love God with all our heart, all our mind, and all our strength. We must love other people as we love ourselves. These commands are more important than all the burnt offerings and sacrifices."
 
 **34** Jesus saw that the man gave a wise answer. Jesus said to him, "You are not far from the kingdom of God." After that, no person was brave enough to ask Jesus more questions.
 
 **35** While Jesus taught in the temple, he asked, "Why do the teachers of the law say that the Christ is the son of David?
 
-**36** The Holy Spirit told David to say this: 'The Lord said to my Lord, "Sit at my right side until I put your enemies under your feet."'
+**36** The Holy Spirit told David to say this: 'The Lord said to my Lord, "Sit at my right side. Stay there until I put your enemies under your feet."'
 
 **37** David himself calls the Christ 'Lord.' Thus how can the Christ be the son of David?" The large crowd liked to listen to Jesus.
 
-**38** In his teaching, Jesus said, "Be careful about the teachers of the law. They like to walk around in long robes. They like people to greet them with respect in the market places.
+**38** As he taught, Jesus said, "Be careful about the teachers of the law. They like to walk around in long robes. They like people to greet them with respect in the market places.
 
 **39** They like to have the most important seats in the synagogues. They like the places of honor at dinners.
 
@@ -1054,7 +1054,7 @@
 
 **12** A brother will give his brother to people who will kill him. A father will do the same to his child. Children will turn against their parents and cause their deaths.
 
-**13** All people will hate you because of me. But the person who continues strong to the end will be saved.
+**13** All people will hate you because of me. But God will save the person who continues strong to the end.
 
 **14** You will see 'the horrible thing that causes destruction.' It will stand in a place where it must not be. (The reader must understand this.) At that time, the people in Judea must run away to the mountains.
 
@@ -1068,7 +1068,7 @@
 
 **19** In those days there will be very bad trouble. Since God made the world, there was never trouble as bad as that. And there will never be trouble as bad as that again.
 
-**20** If the Lord did not make that time shorter, no person would live. But the Lord made that time shorter to help the people that he chose.
+**20** If the Lord does not make that time shorter, no person will live. But the Lord made that time shorter to help the people that he chose.
 
 **21** At that time, a person possibly will say to you, 'Look, here is the Christ!' or 'Look, there he is!' Do not believe him.
 
@@ -1174,9 +1174,9 @@
 
 **34** He said to them, "My soul is very sad. My sadness is so strong that I feel near to death. Stay here and stay awake."
 
-**35** Jesus went a short distance farther. He fell to the ground and prayed. He asked God to take this time of suffering away from him, if possible.
+**35** Jesus went a short distance farther. He fell to the ground and prayed. He asked God to take this time of pain away from him, if possible.
 
-**36** He said, "Abba, Father, you can do all things. Take this cup of suffering away from me. But do not do what I want. Do what you want."
+**36** He said, "Abba, Father, you can do all things. Take this cup of pain away from me. But do not do what I want. Do what you want."
 
 **37** Then Jesus came back and found the disciples asleep. He said to Peter, "Simon, are you asleep? Could you not stay awake for 1 hour?
 
@@ -1338,7 +1338,7 @@
 
 **43** Joseph from Arimathea came. He was an important member of the council. He also waited for the kingdom of God. He went to Pilate bravely and asked for the body of Jesus.
 
-**44** Pilate was surprised that Jesus was already dead. He called the centurion. He asked the centurion if Jesus was dead for a long time.
+**44** Pilate felt surprise that Jesus was already dead. He called the centurion. He asked the centurion if Jesus was dead for a long time.
 
 **45** The centurion told Pilate that Jesus was dead. Then Pilate gave the body to Joseph.
 
@@ -1378,7 +1378,7 @@
 
 **15** Jesus said to them, "Go into all the world. Tell the gospel to all people.
 
-**16** God will save each person who believes and is baptized. But God will condemn each person who does not believe.
+**16** God will save each person who believes and receives baptism. But God will condemn each person who does not believe.
 
 **17** The people who believe will do these signs. They will use my name to force demons out of people. They will speak in new languages.
 

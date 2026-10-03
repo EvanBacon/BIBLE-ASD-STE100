@@ -60,7 +60,7 @@
 
 **18** Little children, this is the last time. You heard that the antichrist will come. Now many antichrists came. Thus we know that this is the last time.
 
-**19** These antichrists went out from us, but they were not part of us. If they were part of us, then they would stay with us. But they went out. This showed that none of them were part of us.
+**19** These antichrists went out from us, but they were not part of us. If they were part of us, then they will stay with us. But they went out. This showed that none of them were part of us.
 
 **20** But the Holy One put his Spirit on you. Thus you all know the truth.
 
@@ -76,9 +76,9 @@
 
 **26** I write these things to you about the people who try to deceive you.
 
-**27** But God put his Spirit on you, and his Spirit stays in you. Thus you do not need a person to teach you. The Spirit teaches you about all things. His teaching is true. It is not a lie. Stay in Jesus, as the Spirit taught you.
+**27** But God put his Spirit on you, and his Spirit stays in you. Thus you do not need a person to teach you. The Spirit teaches you about all things. What he teaches is true. It is not a lie. Stay in Jesus, as the Spirit taught you.
 
-**28** Now, little children, stay in Jesus. Then, when he appears, we will be confident. We will not be ashamed in front of him when he comes.
+**28** Now, little children, stay in Jesus. Then, when he appears, we will be confident. We will not feel shame in front of him when he comes.
 
 **29** You know that God is righteous. Thus you know that each person who does what is right is a child of God.
 
@@ -90,7 +90,7 @@
 
 **3** Each person who has this hope in Jesus makes himself pure, as Jesus is pure.
 
-**4** Each person who sins also breaks the law. Sin is the act of breaking the law.
+**4** Each person who sins also breaks the law. Sin is the act that breaks the law.
 
 **5** You know that Jesus appeared to remove our sins. There is no sin in him.
 
@@ -108,7 +108,7 @@
 
 **12** Do not be like Cain. He belonged to the evil one, and he killed his brother. Why did Cain kill him? He killed him because his own actions were evil. But his brother's actions were righteous.
 
-**13** My brothers, do not be surprised if the world hates you.
+**13** My brothers, do not think it is strange if the world hates you.
 
 **14** We know that we went from death to life, because we love our brothers. A person who does not love his brother stays in death.
 
@@ -216,6 +216,6 @@
 
 **19** We know that we are from God. We know that all the world is under the control of the evil one.
 
-**20** We know that the Son of God came. He gave us understanding. Thus we can know God, who is true. We are in God, who is true, and in his Son Jesus Christ. He is the true God and eternal life.
+**20** We know that the Son of God came. He gave us knowledge. Thus we can know God, who is true. We are in God, who is true, and in his Son Jesus Christ. He is the true God and eternal life.
 
 **21** Little children, keep away from idols. Amen.

@@ -28,7 +28,7 @@
 
 ## Chapter 2
 
-**1** Brothers, we have a request about the coming of our Lord Jesus Christ. It is also about the time when God will bring us together to him.
+**1** Brothers, we have a request about the time when our Lord Jesus Christ comes. It is also about the time when God will bring us together to him.
 
 **2** Do not let anything quickly confuse you or make you afraid. Someone can say that the day of the Lord came already. He can say that a spirit told him this. He can say that it came by a message or by a letter from us. Do not believe it.
 
@@ -42,17 +42,17 @@
 
 **7** The secret power of sin works in the world now. But someone stops that power now. He will continue to stop it until God takes him away.
 
-**8** Then the evil man will appear. The Lord Jesus will kill him with the breath of his mouth. The Lord will destroy him with the bright light of his coming.
+**8** Then the evil man will appear. The Lord Jesus will kill him with the breath of his mouth. When the Lord comes, he will destroy him with his bright light.
 
 **9** The evil man will come with the power of Satan. He will do all types of powerful acts, signs, and false wonders.
 
-**10** He will use all types of evil to trick the people who will die. Those people will die because they refused to love the truth. If they loved the truth, God would save them.
+**10** He will use all types of evil to trick the people who will die. Those people will die because they refused to love the truth. If they loved the truth, God will save them.
 
 **11** For this reason, God will send them a strong power that will trick them. Then they will believe a lie.
 
 **12** God will judge all the people who did not believe the truth. They liked evil things.
 
-**13** But, brothers, the Lord loves you. We must always thank God for you. From the start, God chose you to be saved. The Spirit makes you holy, and you believe the truth.
+**13** But, brothers, the Lord loves you. We must always thank God for you. From the start, God chose you for salvation. The Spirit makes you holy, and you believe the truth.
 
 **14** God called you to this through the gospel that we told you. He called you so that you will share in the glory of our Lord Jesus Christ.
 
@@ -74,7 +74,7 @@
 
 **5** We ask that the Lord guide your hearts to the love of God. We ask that he guide you to the patience of Christ.
 
-**6** Brothers, we give you a command in the name of our Lord Jesus Christ. Keep away from each brother who is lazy. Keep away from each brother who does not obey the teaching that you got from us.
+**6** Brothers, we give you a command in the name of our Lord Jesus Christ. Keep away from each brother who is lazy. Keep away from each brother who does not obey the lessons that you got from us.
 
 **7** You know that you must do as we do. We were not lazy when we were with you.
 
@@ -96,6 +96,6 @@
 
 **16** We ask that the Lord of peace himself give you peace at all times and in all ways. We ask that the Lord be with all of you.
 
-**17** I, Paul, write this greeting with my own hand. This is the sign in all my letters. This is how I write.
+**17** I, Paul, write these words to greet you with my own hand. This is the sign in all my letters. This is how I write.
 
 **18** We ask that the grace of our Lord Jesus Christ be with all of you. Amen.

@@ -92,7 +92,7 @@
 
 **5** I do not send you to a people with a strange language that is difficult. I send you to the people of Israel.
 
-**6** I do not send you to many nations with strange and difficult languages. You cannot understand their words. If I sent you to those nations, they would listen to you.
+**6** I do not send you to many nations with strange and difficult languages. You cannot understand their words. If I send you to those nations, they will listen to you.
 
 **7** But the people of Israel will not listen to you, because they do not want to listen to me. All the people of Israel are stubborn, and their hearts are hard.
 
@@ -198,7 +198,7 @@
 
 **12** One third of your people will die from disease and famine in the city. One third will die by the sword around the city. I will throw one third to the winds and chase them with a sword.
 
-**13** Then my anger will be complete. I will pour out my anger on them, and then I will be satisfied. When I complete my anger against them, they will know that I, the LORD, spoke because of my strong love.
+**13** Then my anger will be complete. I will pour out my anger on them, and then I will be calm. When I complete my anger against them, they will know that I, the LORD, spoke because of my strong love.
 
 **14** I will make you a ruin. The nations around you will insult you. All the people who go past will see this.
 
@@ -220,7 +220,7 @@
 
 **5** I will put the dead bodies of the people of Israel in front of their idols. I will throw your bones around your altars.
 
-**6** In all the places where you live, your towns will become ruins. Your high places will be empty. Your altars will be ruins. Your idols will be broken and destroyed. Your incense altars will be cut down. All that you made will be destroyed.
+**6** In all the places where you live, your towns will become ruins. Your high places will be empty. Your altars will be ruins. People will break your idols, and the idols will stop. People will cut down your incense altars. All that you made will be gone.
 
 **7** Your people will die among you. Then you will know that I am the LORD.
 
@@ -274,7 +274,7 @@
 
 **17** All hands will become weak. All knees will become as weak as water.
 
-**18** They will wear sackcloth, and terror will cover them. Shame will be on all their faces. All their heads will be shaved.
+**18** They will wear sackcloth, and terror will cover them. Shame will be on all their faces. They will shave all their heads.
 
 **19** They will throw their silver into the streets. Their gold will be like an unclean thing. Their silver and gold cannot save them on the day of the anger of the LORD. Their money cannot satisfy their hunger or fill their stomachs. Their money caused them to sin.
 
@@ -480,7 +480,7 @@
 
 **12** The prince among them will put his bag on his shoulder in the dark and go out. The people will dig a hole through the wall for him. He will cover his face so that he cannot see the land.
 
-**13** I will put my net over him, and he will be caught in my trap. I will bring him to Babylon, the land of the Chaldeans. But he will not see that land, and he will die there.
+**13** I will put my net over him, and my trap will catch him. I will bring him to Babylon, the land of the Chaldeans. But he will not see that land, and he will die there.
 
 **14** I will send all the people around him in all directions. I will send away his helpers and all his soldiers. I will chase them with a sword.
 
@@ -492,7 +492,7 @@
 
 **18** "Son of man, shake with fear while you eat your bread. Shake with worry while you drink your water.
 
-**19** Then tell the people of the land, 'The Lord GOD says this about the people of Jerusalem and the land of Israel: They will eat their bread with worry. They will drink their water with fear. Their land will lose all things in it because of the violence of all the people who live there.
+**19** Then tell the people of the land, 'The Lord GOD says this about the people of Jerusalem and the land of Israel. They will eat their bread with worry. They will drink their water with fear. The violence of all the people who live there will cause their land to lose all things in it.
 
 **20** The towns where people live will become ruins. The land will be empty. Then you will know that I am the LORD.'"
 
@@ -540,7 +540,7 @@
 
 **13** Thus the Lord GOD says this: In my anger I will send a strong wind against the wall. In my anger I will send heavy rain and large hailstones to destroy it.
 
-**14** I will break down the wall that you covered with whitewash. I will push it down to the ground. Its foundation will be seen. When the wall falls, you will die under it. Then you will know that I am the LORD.
+**14** I will break down the wall that you covered with whitewash. I will push it down to the ground. People will see its foundation. When the wall falls, you will die under it. Then you will know that I am the LORD.
 
 **15** Thus I will use all my anger against the wall and against the people who covered it with whitewash. I will say to you, "The wall is gone, and the men who covered it are gone."
 
@@ -578,7 +578,7 @@
 
 **8** I will turn my face against that person. I will make him a sign and an example of shame. I will remove him from my people. Then you will know that I am the LORD.
 
-**9** If a prophet is tricked and gives a message, I, the LORD, permitted that prophet to be tricked. I will put my hand against him. I will destroy him from among my people Israel.
+**9** If someone tricks a prophet and the prophet gives a message, I, the LORD, let someone trick that prophet. I will put my hand against him. I will destroy him from among my people Israel.
 
 **10** They will get the punishment for their sin. The prophet will get the same punishment as the person who asks him for help.
 
@@ -616,7 +616,7 @@
 
 **3** Can people use its wood to make something useful? Can people make a peg from it to hang things on?
 
-**4** No, people throw it into the fire as fuel. The fire burns both ends, and the center is burned. Is it useful for any work now?
+**4** No, people throw it into the fire as fuel. The fire burns both ends, and it burns the center. Is it useful for any work now?
 
 **5** When it was complete, people could not use it for any work. Now the fire burned it. Thus it is even less useful for any work.
 
@@ -630,7 +630,7 @@
 
 **1** The word of the LORD came to me again. He said,
 
-**2** "Son of man, cause Jerusalem to know her disgusting actions.
+**2** "Son of man, cause Jerusalem to know her hateful actions.
 
 **3** Say, 'The Lord GOD says this to Jerusalem: Your origin and your birth are from the land of Canaan. Your father was an Amorite, and your mother was a Hittite.
 
@@ -670,21 +670,21 @@
 
 **21** You killed my children. You gave them to the idols and you burned them in the fire.
 
-**22** You did all your disgusting actions and your prostitution. But you did not remember the days when you were young. Then you were naked and you had no clothes, and you moved about in your blood.
+**22** You did all your hateful actions and your prostitution. But you did not remember the days when you were young. Then you were naked and you had no clothes, and you moved about in your blood.
 
 **23** "'You did all these bad things. Then trouble will come to you! Trouble will come to you! says the Lord GOD.
 
 **24** You built a shrine for yourself. You made a high place in each public area.
 
-**25** You built your high place at the start of each street. You made your beauty a disgusting thing. You offered your body to each man who went past. You did more and more acts of prostitution.
+**25** You built your high place at the start of each street. You made your beauty a hateful thing. You offered your body to each man who went past. You did more and more acts of prostitution.
 
 **26** You did acts of prostitution with your neighbors, the Egyptians, who have strong sexual desire. You did more and more acts of prostitution to make me angry.
 
-**27** Thus I put out my hand against you. I decreased the food that I gave you. I gave you to the women who hate you, the daughters of the Philistines. They were ashamed of your bad actions.
+**27** Thus I put out my hand against you. I decreased the food that I gave you. I gave you to the women who hate you, the daughters of the Philistines. They felt shame because of your bad actions.
 
 **28** You also acted as a prostitute with the Assyrians, because you were never satisfied. You did acts of prostitution with them. But you were still not satisfied.
 
-**29** You did more acts of prostitution with Babylonia, the land of the merchants. But even then you were not satisfied.
+**29** You did more acts of prostitution with Babylonia, the land of the merchants. But even then you did not have enough.
 
 **30** "'Your heart is very weak, says the Lord GOD. You do all these things. You act like a prostitute who has no shame.
 
@@ -698,7 +698,7 @@
 
 **35** "'Thus, you prostitute, hear the word of the LORD!
 
-**36** The Lord GOD says this: You showed your lust. You showed your naked body in your prostitution with your lovers and with all your disgusting idols. You gave the blood of your children to the idols.
+**36** The Lord GOD says this: You showed your lust. You showed your naked body in your prostitution with your lovers and with all your hateful idols. You gave the blood of your children to the idols.
 
 **37** Thus I will gather all your lovers. I will gather the people that you loved and the people that you hated. I will gather them around you to attack you. I will show your naked body to them, and they will see all of it.
 
@@ -712,7 +712,7 @@
 
 **42** Then my anger against you will stop. My jealousy will go away from you. I will be calm, and I will not be angry again.
 
-**43** "'You did not remember the days when you were young. You made me angry with all these things. Thus I will punish you for what you did, says the Lord GOD. You added this sexual sin to all your other disgusting actions.
+**43** "'You did not remember the days when you were young. You made me angry with all these things. Thus I will punish you for what you did, says the Lord GOD. You added this sexual sin to all your other hateful actions.
 
 **44** "'Each person who uses proverbs will say this proverb about you: "The daughter is like her mother."
 
@@ -720,21 +720,21 @@
 
 **46** Your older sister is Samaria. She lives with her daughters to the north of you. Your younger sister is Sodom. She lives with her daughters to the south of you.
 
-**47** You did the same disgusting actions as they did. But soon you did worse things than they did in all your ways.
+**47** You did the same hateful actions as they did. But soon you did worse things than they did in all your ways.
 
-**48** As surely as I live, says the Lord GOD, your sister Sodom and her daughters did not do the things that you and your daughters did.
+**48** As surely as I live, says the Lord GOD, your sister Sodom and her daughters did not do the things that you did. You and your daughters did worse.
 
 **49** "'This was the sin of your sister Sodom. She and her daughters were proud. They had much food and much free time. But they did not help the poor and the needy.
 
-**50** They were proud and they did disgusting things in front of me. Thus I removed them when I saw what they did.
+**50** They were proud and they did hateful things in front of me. Thus I removed them when I saw what they did.
 
-**51** Samaria did not do half of your sins. You did more disgusting things than your sisters did. Your sins make your sisters seem good.
+**51** Samaria did not do half of your sins. You did more hateful things than your sisters did. Your sins make your sisters seem good.
 
-**52** You must feel your shame. Your sins were worse than the sins of your sisters, and thus they seem more righteous than you. Be ashamed and feel your shame, because you made your sisters seem good.
+**52** You must feel your shame. Your sins were worse than the sins of your sisters, and thus they seem more righteous than you. Feel your shame, because you made your sisters seem good.
 
 **53** "'I will make Sodom and her daughters wealthy again. I will make Samaria and her daughters wealthy again. And I will make you wealthy again with them.
 
-**54** Then you will feel your shame. You will be ashamed of all that you did. Your sins will comfort your sisters.
+**54** Then you will feel your shame. You will feel shame because of all that you did. Your sins will comfort your sisters.
 
 **55** Your sisters, Sodom and Samaria, and their daughters will return to their old condition. Then you and your daughters will also return to your old condition.
 
@@ -742,17 +742,17 @@
 
 **57** That was before the people saw your bad actions. Now the daughters of Syria and all the people around her speak badly about you. The daughters of the Philistines and all the nations around you hate you.
 
-**58** You must feel the punishment for your sexual sins and your disgusting actions, says the LORD.
+**58** You must feel the punishment for your sexual sins and your hateful actions, says the LORD.
 
 **59** "'The Lord GOD says this: I will do to you what you did. You did not obey your promise, and you broke the covenant.
 
 **60** But I will remember the covenant that I made with you when you were young. I will make a covenant with you that will continue for all time.
 
-**61** Then you will remember your ways, and you will be ashamed. You will receive your sisters, the older and the younger. I will give them to you as daughters, but not because of your covenant.
+**61** Then you will remember your ways, and you will feel shame. You will receive your sisters, the older and the younger. I will give them to you as daughters, but not because of your covenant.
 
 **62** I will make my covenant with you. Then you will know that I am the LORD.
 
-**63** I will forgive you for all that you did. Then you will remember and be ashamed. You will not speak again because of your shame, says the Lord GOD.'"
+**63** I will forgive you for all that you did. Then you will remember and feel shame. You will not speak again because of your shame, says the Lord GOD.'"
 
 ## Chapter 17
 
@@ -774,7 +774,7 @@
 
 **9** "Say, 'The Lord GOD says this: Will the vine grow well? No! The first eagle will pull up its roots and remove its fruit. Then the vine will become dry. All its new leaves will become dry. No strong army and no large group of people will be necessary to pull up the vine.
 
-**10** The vine is planted, but will it grow well? No! It will become dry when the east wind touches it. It will become dry in the soil where it grew.'"
+**10** The vine is in the ground now, but will it grow well? No! It will become dry when the east wind touches it. It will become dry in the soil where it grew.'"
 
 **11** Then the word of the LORD came to me. He said,
 
@@ -792,7 +792,7 @@
 
 **18** The king of Judah did not obey his promise and he broke the agreement. He gave his hand to make a promise, but he did all these things. He will not escape.
 
-**19** "'Thus the Lord GOD says this: As surely as I live, I will punish him because he did not obey my promise and he broke my covenant.
+**19** "'Thus the Lord GOD says this: As surely as I live, I will punish him. He did not obey my promise, and he broke my covenant.
 
 **20** I will put my net over him, and my trap will catch him. I will take him to Babylon. There I will judge him because he was not loyal to me.
 
@@ -828,9 +828,9 @@
 
 **11** The father does not do these things, but the son does. The son eats at the shrines on the mountains. He has sex with the wife of his neighbor.
 
-**12** He causes injury to the poor and the needy. He steals. He does not give back what a borrower gave him as a guarantee. He worships idols and he does disgusting things.
+**12** He causes injury to the poor and the needy. He steals. He does not give back what a borrower gave him as a guarantee. He worships idols and he does hateful things.
 
-**13** He lends money for interest and takes profit. Will that son live? No, he will not live! He did all these disgusting things. He will surely die. He is responsible for his death.
+**13** He lends money for interest and takes profit. Will that son live? No, he will not live! He did all these hateful things. He will surely die. He is responsible for his death.
 
 **14** "But possibly that son has a son of his own. The grandson sees all the sins of his father. He thinks about them and he does not do such things.
 
@@ -852,7 +852,7 @@
 
 **23** Do I like to see the death of a wicked person? says the Lord GOD. No! I want him to stop his bad ways and live.
 
-**24** "But possibly a righteous person stops his righteous actions and starts to sin. He does all the disgusting things that the wicked person does. Will he live? No! I will not remember any of the righteous things that he did. He was not loyal and he sinned. Thus he will die.
+**24** "But possibly a righteous person stops his righteous actions and starts to sin. He does all the hateful things that the wicked person does. Will he live? No! I will not remember any of the righteous things that he did. He was not loyal and he sinned. Thus he will die.
 
 **25** "But you say, 'The way of the Lord is not fair.' Hear me, people of Israel! My way is fair. It is your ways that are not fair.
 
@@ -890,33 +890,33 @@
 
 **9** They put hooks in him and put him in a cage. They took him to the king of Babylon. They put him in a prison. Thus people did not hear his roar on the mountains of Israel again.
 
-**10** "'Your mother was like a vine that was planted near water. She had much fruit and many branches because she had much water.
+**10** "'Your mother was like a vine that someone planted near water. She had much fruit and many branches because she had much water.
 
 **11** Her branches were strong, and they were good for the scepters of rulers. The vine grew tall above the other branches. People saw her height and her many branches.
 
 **12** But an angry person pulled up the vine and threw her on the ground. The east wind made her fruit dry. Her strong branches broke and became dry. Fire burned them.
 
-**13** Now the vine is planted in the desert, in a dry land with no water.
+**13** Now the vine grows in the desert, in a dry land with no water.
 
 **14** Fire came out from one of her main branches and burned her fruit. She has no strong branch now that can become a scepter for a ruler.' This is a sad song. People will sing it as a sad song."
 
 ## Chapter 20
 
-**1** In the 7th year, in the 5th month, on the 10th day of the month, some of the elders of Israel came to ask the LORD for advice. They sat down in front of me.
+**1** Some of the elders of Israel came to ask the LORD for advice. That was in the 7th year, in the 5th month, on the 10th day of the month. They sat down in front of me.
 
 **2** Then the word of the LORD came to me. He said,
 
 **3** "Son of man, speak to the elders of Israel. Tell them, 'The Lord GOD says this: Did you come to ask me for advice? As surely as I live, I will not give you an answer, says the Lord GOD.'
 
-**4** "Will you judge them, son of man? Will you judge them? Then cause them to know the disgusting actions of their ancestors.
+**4** "Will you judge them, son of man? Will you judge them? Then cause them to know the hateful actions of their ancestors.
 
 **5** Tell them, 'The Lord GOD says this: I chose Israel. I lifted my hand and made a promise to the family of Jacob. I showed myself to them in the land of Egypt. I lifted my hand and said, "I am the LORD your God."
 
 **6** On that day I lifted my hand and made a promise to them. I promised to bring them out of the land of Egypt. I promised to bring them into a land that I found for them. That land has much milk and honey. It is the most beautiful of all lands.
 
-**7** I said to them, "Each of you must throw away the disgusting idols that you love. Do not make yourselves unclean with the idols of Egypt. I am the LORD your God."
+**7** I said to them, "Each of you must throw away the hateful idols that you love. Do not make yourselves unclean with the idols of Egypt. I am the LORD your God."
 
-**8** "'But they rebelled against me. They did not listen to me. They did not throw away the disgusting idols that they loved. They did not leave the idols of Egypt. Thus I said that I would show my anger against them in the land of Egypt.
+**8** "'But they rebelled against me. They did not listen to me. They did not throw away the hateful idols that they loved. They did not leave the idols of Egypt. Thus I said, "I will show my anger against them in the land of Egypt."
 
 **9** But I did not do it, because I wanted to protect my name. I did not want the nations to dishonor my name. The nations around Israel saw me when I showed myself to Israel. They saw me when I brought Israel out of Egypt.
 
@@ -926,7 +926,7 @@
 
 **12** I also gave them my Sabbaths as a sign between me and them. The Sabbaths showed that I am the LORD who makes them holy.
 
-**13** "'But the people of Israel rebelled against me in the desert. They did not obey my laws. They refused my rules, but a person who obeys them will live. They made my Sabbaths unholy. Thus I said that I would show my anger against them in the desert and destroy them.
+**13** "'But the people of Israel rebelled against me in the desert. They did not obey my laws. They refused my rules, but a person who obeys them will live. They made my Sabbaths unholy. Thus I said, "I will show my anger against them in the desert and destroy them."
 
 **14** But I did not do it, because I wanted to protect my name. I did not want the nations to dishonor my name. The nations saw me when I brought Israel out of Egypt.
 
@@ -942,7 +942,7 @@
 
 **20** Keep my Sabbaths holy. The Sabbaths will be a sign between me and you. Then you will know that I am the LORD your God."
 
-**21** "'But the children rebelled against me. They did not obey my laws or keep my rules, but a person who obeys them will live. They made my Sabbaths unholy. Thus I said that I would show my anger against them in the desert.
+**21** "'But the children rebelled against me. They did not obey my laws or keep my rules, but a person who obeys them will live. They made my Sabbaths unholy. Thus I said, "I will show my anger against them in the desert."
 
 **22** But I stopped my hand. I did not punish them, because I wanted to protect my name. I did not want the nations to dishonor my name. The nations saw me when I brought Israel out of Egypt.
 
@@ -960,7 +960,7 @@
 
 **29** Then I said to them, "What is this high place where you go?" People still call it "Bamah" (high place) today.'
 
-**30** "Thus say to the people of Israel, 'The Lord GOD says this: You make yourselves unclean as your ancestors did. You follow their disgusting idols as a prostitute does.
+**30** "Thus say to the people of Israel, 'The Lord GOD says this: You make yourselves unclean as your ancestors did. You follow their hateful idols as a prostitute does.
 
 **31** You offer your gifts and burn your sons in the fire. You make yourselves unclean with all your idols, even today. People of Israel, must I give you an answer when you ask me for advice? As surely as I live, says the Lord GOD, I will not give you an answer.
 
@@ -1018,11 +1018,11 @@
 
 **8** The word of the LORD came to me again. He said,
 
-**9** "Son of man, prophesy and say, 'The LORD says this: A sword! A sword! The sword is sharp and it is polished.
+**9** "Son of man, prophesy and say, 'The LORD says this: A sword! A sword! The sword is sharp and it shines.
 
-**10** The sword is sharp to kill many people. It is polished to shine like lightning. Must we be happy? My son, the king, did not obey correction. The sword will destroy all such rulers.
+**10** The sword is sharp to kill many people. Someone made it bright to shine like lightning. Must we be happy? My son, the king, did not obey correction. The sword will destroy all such rulers.
 
-**11** The sword is polished and ready to use. The sword is sharp and polished. It is ready for the hand of the killer.'
+**11** Someone made the sword bright, and it is ready to use. The sword is sharp and bright. It is ready for the hand of the killer.'
 
 **12** "Cry and shout, son of man! The sword is against my people. It is against all the princes of Israel. The sword will kill the princes with my people. Thus hit your thigh to show your sadness.
 
@@ -1044,7 +1044,7 @@
 
 **21** The king of Babylon stands at the place where the road divides into 2 roads. He uses magic to choose his road. He shakes arrows. He asks his idols for advice. He examines the liver of an animal.
 
-**22** In his right hand the magic chooses Jerusalem. He will put battering rams there. He will tell his soldiers to shout and kill. He will put battering rams against the gates. He will build ramps and walls against the city.
+**22** In his right hand the magic chooses Jerusalem. He will put rams there to break walls. He will tell his soldiers to shout and kill. He will put rams against the gates. He will build ramps and walls against the city.
 
 **23** The people of Jerusalem will think that the magic is false. They made promises to the king of Babylon. But he will remind them of their sin, and he will capture them.
 
@@ -1056,13 +1056,13 @@
 
 **27** I will destroy the kingdom. I will destroy it! I will destroy it! The kingdom will not be there until the correct ruler comes. I will give the kingdom to him.'
 
-**28** "Son of man, prophesy and say, 'The Lord GOD says this about the Ammonites and their insults: A sword! A sword is ready to kill! It is polished to destroy and to shine like lightning.
+**28** "Son of man, prophesy and say, 'The Lord GOD says this about the Ammonites and their insults: A sword! A sword is ready to kill! It is bright to destroy and to shine like lightning.
 
 **29** Your prophets see false visions about you. They tell you lies with magic. The sword will kill you with the other wicked people. Their day of punishment comes. Their sin will come to an end.
 
-**30** Put the sword back into its cover! I will judge you in the place where I made you, in the land where you were born.
+**30** Put the sword back into its cover! I will judge you in the place where I made you, in the land where your life started.
 
-**31** I will pour out my anger on you. I will blow my hot anger on you like fire. I will give you to cruel men who are skilled at destruction.
+**31** I will pour out my anger on you. I will blow my hot anger on you like fire. I will give you to cruel men who know how to destroy.
 
 **32** You will be fuel for the fire. Your blood will flow in the land. People will not remember you again. I, the LORD, spoke.'"
 
@@ -1070,7 +1070,7 @@
 
 **1** The word of the LORD came to me. He said,
 
-**2** "Son of man, will you judge? Will you judge this city that kills people? Then show her all her disgusting actions.
+**2** "Son of man, will you judge? Will you judge this city that kills people? Then show her all her hateful actions.
 
 **3** Say, 'The Lord GOD says this: You are a city that kills people in your streets. Thus your time of punishment comes. You make idols, and they make you unclean.
 
@@ -1088,7 +1088,7 @@
 
 **10** In you are men who have sex with the wives of their fathers. In you are men who have sex with women during their monthly period.
 
-**11** One man does a disgusting thing with the wife of his neighbor. Another man has sex with his daughter-in-law. Another man has sex with his sister, the daughter of his father.
+**11** One man does a hateful thing with the wife of his neighbor. Another man has sex with his daughter-in-law. Another man has sex with his sister, the daughter of his father.
 
 **12** In you people take payments to kill other people. You lend money for interest and take profit. You take money from your neighbors by force. And you forget me, says the Lord GOD.
 
@@ -1126,7 +1126,7 @@
 
 **29** The people of the land are cruel and they steal. They cause injury to the poor and the needy. They are not fair to the foreigners, and they are cruel to them.
 
-**30** I looked for a man among them who could repair the wall. I looked for a man who could stand in the hole in the wall in front of me to protect the land. Then I would not destroy the land. But I did not find one.
+**30** I looked for a man among them who could repair the wall. I looked for a man who could stand in the hole in the wall in front of me to protect the land. Then I will not destroy the land. But I did not find one.
 
 **31** Thus I poured out my anger on them. I destroyed them with the fire of my anger. I punished them for what they did, says the Lord GOD."
 
@@ -1150,7 +1150,7 @@
 
 **9** Thus I gave her to her lovers, the Assyrians, whom she desired.
 
-**10** They took off her clothes. They took her sons and her daughters. They killed her with the sword. The punishment of Oholah became a warning to other women.
+**10** They took off her clothes. They took her sons and her daughters. They killed her with the sword. The punishment of Oholah became a lesson to other women.
 
 **11** "Her sister Oholibah saw this. But Oholibah was worse than her sister in her lust and her prostitution.
 
@@ -1202,7 +1202,7 @@
 
 **35** "'Thus the Lord GOD says this: You forgot me and you turned your back on me. Thus you will get the punishment for your sexual sins and your prostitution.'"
 
-**36** The LORD said to me, "Son of man, will you judge Oholah and Oholibah? Then tell them about their disgusting actions.
+**36** The LORD said to me, "Son of man, will you judge Oholah and Oholibah? Then tell them about their hateful actions.
 
 **37** They committed adultery and they killed people. They committed adultery with their idols. They burned their sons, whom they gave birth to for me, as food for the idols.
 
@@ -1236,7 +1236,7 @@
 
 **2** "Son of man, write down the date of this day. On this day the king of Babylon started to attack Jerusalem.
 
-**3** Tell a story with a meaning to the people who rebel against me. Tell them, 'The Lord GOD says this: Put a cooking pot on the fire. Put it on the fire and pour water into it.
+**3** Tell a story with a meaning to the people who rebel against me. Tell them, 'The Lord GOD says this: Put a pot on the fire. Put it on the fire and pour water into it.
 
 **4** Put pieces of meat into it, all the good pieces, the thigh and the shoulder. Fill it with the best bones.
 
@@ -1326,13 +1326,13 @@
 
 **1** In the 11th year, on the 1st day of the month, the word of the LORD came to me. He said,
 
-**2** "Son of man, Tyre said this about Jerusalem: 'Aha! The gate to the nations is broken. Jerusalem is open to me now. She is destroyed, and now I will become rich.'
+**2** "Son of man, Tyre said this about Jerusalem: 'Aha! Someone broke the gate to the nations. Jerusalem is open to me now. She is a ruin, and now I will become rich.'
 
 **3** Thus the Lord GOD says this: 'I am against you, Tyre. I will bring many nations against you, as the sea brings its waves.
 
 **4** They will destroy the walls of Tyre and break down her towers. I will remove her soil and make her a bare rock.
 
-**5** Tyre will be a place in the sea where people spread their fishing nets. I spoke, says the Lord GOD. The nations will take everything from Tyre.
+**5** Tyre will be a place in the sea where people spread their nets to catch fish. I spoke, says the Lord GOD. The nations will take everything from Tyre.
 
 **6** The enemy will kill with the sword the people in her villages on the mainland. Then they will know that I am the LORD.'
 
@@ -1340,7 +1340,7 @@
 
 **8** He will kill with the sword the people in your villages on the mainland. He will build ramps and walls against you. He will put up shields against you.
 
-**9** He will hit your walls with battering rams. He will break down your towers with his axes.
+**9** He will hit your walls with heavy rams. He will break down your towers with his axes.
 
 **10** He will have so many horses that their dust will cover you. He will come in through your gates as men come into a city with broken walls. Your walls will shake at the noise of his horsemen, wagons and chariots.
 
@@ -1350,19 +1350,19 @@
 
 **13** I will stop the noise of your songs. People will not hear the music of your harps again.
 
-**14** I will make you a bare rock. You will be a place where people spread their fishing nets. People will not build you again. I, the LORD, spoke, says the Lord GOD.'
+**14** I will make you a bare rock. You will be a place where people spread their nets to catch fish. People will not build you again. I, the LORD, spoke, says the Lord GOD.'
 
 **15** "The Lord GOD says this to Tyre: 'The coasts will shake at the noise of your fall. They will shake when wounded people groan and when the enemy kills people in you.
 
-**16** Then all the princes of the coast will come down from their thrones. They will take off their robes and their beautiful clothes. They will sit on the ground and shake with fear. They will shake all the time, and they will be shocked at you.
+**16** Then all the princes of the coast will come down from their thrones. They will take off their robes and their beautiful clothes. They will sit on the ground and shake with fear. They will shake all the time, and they will feel horror at you.
 
-**17** They will sing a sad song about you. They will say to you, "You were a famous city. Sailors lived in you. You were powerful on the sea. You and your people caused terror to all the people who lived near you. Now you are destroyed!
+**17** They will sing a sad song about you. They will say to you, "You were a famous city. Sailors lived in you. You were powerful on the sea. You and your people caused terror to all the people who lived near you. Now you are a ruin!
 
 **18** Now the coasts shake on the day of your fall. The islands in the sea are afraid because of your end."
 
 **19** "'The Lord GOD says this: I will make you an empty city, like other cities where no people live. I will bring the deep ocean over you, and much water will cover you.
 
-**20** Then I will bring you down to the pit, to the people who died long ago. I will make you live in the world of the dead, in places that are empty since ancient times. You will be with the people who go down to the pit. Then no people will live in you, and you will have no place in the land of the living.
+**20** Then I will bring you down to the pit, to the people who died long ago. I will make you live in the world of the dead, in places that are empty since ancient times. You will be with the people who go down to the pit. Then no people will live in you, and you will have no place in the land of the people who are alive.
 
 **21** I will bring you to a terrible end, and you will not exist again. People will look for you, but they will never find you again, says the Lord GOD.'"
 
@@ -1372,7 +1372,7 @@
 
 **2** "Son of man, sing a sad song about Tyre.
 
-**3** Say to Tyre, the city at the entrance to the sea, which trades with the people of many coasts, 'The Lord GOD says this: Tyre, you said, "My beauty is perfect."
+**3** Say to Tyre, the city at the entrance to the sea, 'The Lord GOD says this.' Tyre trades with the people of many coasts. Say, 'Tyre, you said, "My beauty is perfect."
 
 **4** Your borders are in the middle of the seas. Your builders made your beauty perfect.
 
@@ -1420,7 +1420,7 @@
 
 **26** "'Your men rowed you into deep water. But the east wind broke you in the middle of the seas.
 
-**27** On the day of your destruction, all will go down into the sea. Your wealth, your goods, your sailors, your captains, the men who repair your ships, your merchants, all your soldiers and all your people will sink into the sea.
+**27** On the day of your destruction, all will go down into the sea. Your wealth, your goods, your sailors and your captains will sink into the sea. The men who repair your ships, your merchants, all your soldiers and all your people will sink too.
 
 **28** The coasts will shake when your captains cry out.
 
@@ -1436,7 +1436,7 @@
 
 **34** Now the sea breaks you in the deep water. Your goods and all your people sink with you.
 
-**35** All the people who live on the coasts are shocked at you. Their kings are very afraid, and their faces show fear.
+**35** All the people who live on the coasts feel horror at you. Their kings are very afraid, and their faces show fear.
 
 **36** The merchants among the nations whistle at you in surprise. You came to a terrible end, and you will not exist again.'"
 
@@ -1446,7 +1446,7 @@
 
 **2** "Son of man, say to the ruler of Tyre, 'The Lord GOD says this: Your heart is proud. You say, "I am a god. I sit on the throne of a god in the middle of the seas." But you are a man and not a god, although you think that you are as wise as a god.
 
-**3** You think that you are wiser than Daniel. You think that no secret is hidden from you.
+**3** You think that you are wiser than Daniel. You think that no person can hide a secret from you.
 
 **4** With your wisdom and your knowledge you got wealth for yourself. You put gold and silver in your treasuries.
 
@@ -1470,7 +1470,7 @@
 
 **14** I put you there as a guardian cherub (angel) with wings that covered. You were on the holy mountain of God. You walked among the stones of fire.
 
-**15** You were perfect in your ways from the day that I made you. But then sin was found in you.
+**15** You were perfect in your ways from the day that I made you. But then I found sin in you.
 
 **16** You traded much, and thus you became full of violence and you sinned. Thus I threw you out from the mountain of God in shame. Guardian cherub, I removed you from among the stones of fire.
 
@@ -1478,7 +1478,7 @@
 
 **18** You made your holy places unholy with your many sins and your dishonest trade. Thus I caused a fire to come out from you, and the fire burned you. I made you ashes on the ground in front of all the people who watched.
 
-**19** All the nations who know you are shocked at you. You came to a terrible end, and you will not exist again.'"
+**19** All the nations who know you feel horror at you. You came to a terrible end, and you will not exist again.'"
 
 **20** The word of the LORD came to me. He said,
 
@@ -1486,7 +1486,7 @@
 
 **22** Say, 'The Lord GOD says this: I am against you, Sidon. I will show my glory in you. The people will know that I am the LORD when I punish Sidon and show that I am holy in her.
 
-**23** I will send disease and killing into her streets. The enemy will attack her from all directions with the sword, and many people in her will die. Then they will know that I am the LORD.
+**23** I will send disease and blood into her streets. The enemy will attack her from all directions with the sword, and many people in her will die. Then they will know that I am the LORD.
 
 **24** The nations around Israel insulted the people of Israel. But they will not cause pain to Israel again, as sharp thorns cause pain. Then they will know that I am the Lord GOD.
 
@@ -1676,25 +1676,25 @@
 
 **22** "Assyria is there with all her army. Their graves are around their king. All of them died. The enemy killed them with the sword.
 
-**23** Their graves are in the deepest part of the pit. Her army is around her grave. All of them died by the sword. They caused terror in the land of the living.
+**23** Their graves are in the deepest part of the pit. Her army is around her grave. All of them died by the sword. They caused terror in the land of the people who are alive.
 
-**24** "Elam is there with all her crowds of people around her grave. All of them died by the sword. They went down uncircumcised to the world of the dead. They caused terror in the land of the living. Now they feel their shame with the people who go down to the pit.
+**24** "Elam is there with all her crowds of people around her grave. All of them died by the sword. They went down uncircumcised to the world of the dead. They caused terror in the land of the people who are alive. Now they feel their shame with the people who go down to the pit.
 
-**25** They made a bed for Elam among the dead people, with all her crowds of people. Their graves are around her king. All of them are uncircumcised. The enemy killed them with the sword. They caused terror in the land of the living. Now they feel their shame with the people who go down to the pit. They lie among the dead people.
+**25** They made a bed for Elam among the dead people, with all her crowds of people. Their graves are around her king. None of them received circumcision. The enemy killed them with the sword. They caused terror in the land of the people who are alive. Now they feel their shame with the people who go down to the pit. They lie among the dead people.
 
-**26** "Meshech and Tubal are there with all their crowds of people. Their graves are around their king. All of them are uncircumcised. The enemy killed them with the sword. They caused terror in the land of the living.
+**26** "Meshech and Tubal are there with all their crowds of people. Their graves are around their king. None of them received circumcision. The enemy killed them with the sword. They caused terror in the land of the people who are alive.
 
-**27** They do not lie with the famous soldiers of ancient times who died. Those soldiers went down to the world of the dead with their weapons. People put their swords under their heads and their shields over their bones. Those soldiers caused terror in the land of the living.
+**27** They do not lie with the famous soldiers of ancient times who died. Those soldiers went down to the world of the dead with their weapons. People put their swords under their heads and their shields over their bones. Those soldiers caused terror in the land of the people who are alive.
 
-**28** "Pharaoh, you also will be broken among the uncircumcised people. You will lie with the people whom the enemy killed with the sword.
+**28** "Pharaoh, I will also break you among the uncircumcised people. You will lie with the people whom the enemy killed with the sword.
 
 **29** "Edom is there with her kings and all her princes. They were powerful, but now they lie with the people whom the enemy killed with the sword. They lie with the uncircumcised people and with the people who go down to the pit.
 
-**30** "All the princes of the north and all the people of Sidon are there. They went down with the dead people. They caused terror with their power, but now they are ashamed. They lie uncircumcised with the people whom the enemy killed with the sword. They feel their shame with the people who go down to the pit.
+**30** "All the princes of the north and all the people of Sidon are there. They went down with the dead people. They caused terror with their power, but now they feel shame. They lie uncircumcised with the people whom the enemy killed with the sword. They feel their shame with the people who go down to the pit.
 
 **31** "Pharaoh will see them. He will feel comfort because his crowds of people are not alone. Pharaoh and all his army will die by the sword, says the Lord GOD.
 
-**32** I let Pharaoh cause terror in the land of the living. But Pharaoh and all his crowds of people will lie among the uncircumcised people, with the people whom the enemy killed with the sword, says the Lord GOD."
+**32** I let Pharaoh cause terror in the land of the people who are alive. But Pharaoh and all his crowds of people will lie among the uncircumcised people. They will lie with the people whom the enemy killed with the sword, says the Lord GOD."
 
 ## Chapter 33
 
@@ -1704,13 +1704,13 @@
 
 **3** The guard sees the sword come against the land. He blows the trumpet to warn the people.
 
-**4** Then a person hears the sound of the trumpet but does not obey the warning. The sword comes and kills him. He is responsible for his death.
+**4** Then a person hears the sound of the trumpet but does not obey the alarm. The sword comes and kills him. He is responsible for his death.
 
-**5** He heard the sound of the trumpet, but he did not obey the warning. Thus he is responsible for his death. If he obeyed the warning, then he would save his life.
+**5** He heard the sound of the trumpet, but he did not obey the alarm. Thus he is responsible for his death. If he obeys the alarm, then he will save his life.
 
-**6** But possibly the guard sees the sword come and he does not blow the trumpet. Thus the people get no warning. Then the sword comes and kills one of them. That person dies because of his sin. But I will make the guard responsible for his death.'
+**6** But possibly the guard sees the sword come and he does not blow the trumpet. Thus the people get no alarm. Then the sword comes and kills one of them. That person dies because of his sin. But I will make the guard responsible for his death.'
 
-**7** "Son of man, I made you a guard for the people of Israel. When you hear a word from my mouth, give them a warning from me.
+**7** "Son of man, I made you a guard for the people of Israel. When you hear a word from my mouth, tell them about the danger from me.
 
 **8** Possibly I say to a wicked person, 'Wicked person, you will surely die.' But you do not speak to warn him to stop his wicked ways. Then that wicked person will die because of his sin. But I will make you responsible for his death.
 
@@ -1744,17 +1744,17 @@
 
 **23** Then the word of the LORD came to me. He said,
 
-**24** "Son of man, the people who live in the destroyed towns in the land of Israel say this: 'Abraham was only one man, but he got the land as his property. We are many people. Surely the land is ours as our property.'
+**24** "Son of man, the people who live in the destroyed towns in the land of Israel say this. 'Abraham was only one man, but he got the land as his property. We are many people. Surely the land is ours as our property.'
 
 **25** Thus tell them, 'The Lord GOD says this: You eat meat that still has blood in it. You worship your idols. You kill people. Will you get the land as your property?
 
-**26** You trust in your swords. You do disgusting things. Each of you has sex with the wife of his neighbor. Will you get the land as your property?'
+**26** You trust in your swords. You do hateful things. Each of you has sex with the wife of his neighbor. Will you get the land as your property?'
 
 **27** "Tell them, 'The Lord GOD says this: As surely as I live, the people who live in the destroyed towns will die by the sword. I will give the people in the open field to the wild animals as food. The people in the strong places and in the caves will die of disease.
 
 **28** I will make the land completely empty. Its proud strength will come to an end. The mountains of Israel will be empty, and no person will go through them.
 
-**29** I will make the land completely empty because of all the disgusting things that they did. Then they will know that I am the LORD.'
+**29** I will make the land completely empty because of all the hateful things that they did. Then they will know that I am the LORD.'
 
 **30** "Son of man, your people talk about you near the walls and at the doors of their houses. They say to each other, 'Come and hear the message that comes from the LORD.'
 
@@ -1792,7 +1792,7 @@
 
 **13** I will bring them out from the nations and gather them from the countries. I will bring them into their own land. I will feed them on the mountains of Israel, near the streams, and in all the places where people live in the land.
 
-**14** I will feed them in good fields. They will have their resting place on the high mountains of Israel. There they will lie down in good places. They will eat in rich fields on the mountains of Israel.
+**14** I will feed them in good fields. They will have the place where they rest on the high mountains of Israel. There they will lie down in good places. They will eat in rich fields on the mountains of Israel.
 
 **15** I myself will feed my sheep and let them rest, says the Lord GOD.
 
@@ -1800,7 +1800,7 @@
 
 **17** "'My sheep, the Lord GOD says this to you: I will judge between one sheep and another sheep, between the rams and the male goats.
 
-**18** You eat the good grass. Is that not sufficient for you? Why do you also walk on the remaining grass? You drink the clear water. Is that not sufficient for you? Why do you also make the remaining water dirty with your feet?
+**18** You eat the good grass. Is that not sufficient for you? Why do you also walk on the other grass? You drink the clear water. Is that not sufficient for you? Why do you also make the other water dirty with your feet?
 
 **19** My other sheep must eat the grass that you walked on. They must drink the water that you made dirty with your feet.
 
@@ -1840,7 +1840,7 @@
 
 **5** "'You always hated the people of Israel. When they had trouble, you let the sword kill them. That was the time of their final punishment.
 
-**6** Thus, as surely as I live, says the Lord GOD, I will cause you to die. Death will follow you. You did not hate the killing of people. Thus death will follow you.
+**6** Thus, as surely as I live, says the Lord GOD, I will cause you to die. Death will follow you. You did not hate murder. Thus death will follow you.
 
 **7** I will make Mount Seir completely empty. I will kill all the people who go out and come back.
 
@@ -1852,7 +1852,7 @@
 
 **11** Thus, as surely as I live, says the Lord GOD, I will punish you as your anger and your jealousy deserve. You showed your anger and jealousy because you hated my people. I will show who I am to my people when I judge you.
 
-**12** Then you will know that I, the LORD, heard all your insults against the mountains of Israel. You said, "The mountains are destroyed. They are ours to eat."
+**12** Then you will know that I, the LORD, heard all your insults against the mountains of Israel. You said, "The mountains are ruins. They are ours to eat."
 
 **13** You said proud words against me. You said many words against me. I heard them.
 
@@ -1868,11 +1868,11 @@
 
 **3** Thus prophesy and say, 'The Lord GOD says this: The enemy destroyed you and attacked you from all directions. The other nations took you as their property. People talk about you and insult you.
 
-**4** Thus, mountains of Israel, hear the word of the Lord GOD. The Lord GOD says this to the mountains and the hills, to the streams and the valleys, to the destroyed places and to the empty cities. The other nations around you stole from you and laughed at you.
+**4** Thus, mountains of Israel, hear the word of the Lord GOD. The Lord GOD says this to the mountains and the hills, to the streams and the valleys. He speaks to the destroyed places and to the empty cities. The other nations around you stole from you and laughed at you.
 
 **5** Thus the Lord GOD says this: In my jealous anger I spoke against the other nations and against all Edom. They were very happy to take my land as their property. They had hate in their hearts. They took the fields of my land for themselves.
 
-**6** "'Thus prophesy about the land of Israel. Tell the mountains and the hills, the streams and the valleys, "The Lord GOD says this: I speak in my jealous anger because the nations insulted you.
+**6** "'Thus prophesy about the land of Israel. Tell the mountains and the hills, the streams and the valleys, "The Lord GOD says this. I speak in my jealous anger because the nations insulted you.
 
 **7** Thus the Lord GOD says this: I lifted my hand and made a promise. The nations around you will also feel shame.
 
@@ -1922,15 +1922,15 @@
 
 **30** I will cause the trees to give more fruit and the fields to give more crops. Then the nations will not insult you again because of famine.
 
-**31** Then you will remember your bad ways and your actions that were not good. You will hate yourselves because of your sins and your disgusting actions.
+**31** Then you will remember your bad ways and your actions that were not good. You will hate yourselves because of your sins and your hateful actions.
 
-**32** Know this: I do not do these things for you, says the Lord GOD. People of Israel, be ashamed and confused because of your ways!
+**32** Know this: I do not do these things for you, says the Lord GOD. People of Israel, feel shame and confusion because of your ways!
 
 **33** "'The Lord GOD says this: I will make you clean from all your sins. On that day I will let you live in your cities again. People will build the destroyed places again.
 
 **34** People will plow the empty land again. In the past, all the people who went past saw that the land was empty.
 
-**35** They will say, "This land was empty, but now it is like the garden of Eden. The cities were destroyed and empty, but now they have strong walls and people live in them."
+**35** They will say, "This land was empty, but now it is like the garden of Eden. The cities were in ruins and empty, but now they have strong walls and people live in them."
 
 **36** Then the nations around you that stay alive will know that I, the LORD, built the destroyed places again. They will know that I planted the empty land. I, the LORD, spoke, and I will do it.'
 
@@ -1960,7 +1960,7 @@
 
 **10** Thus I prophesied as he told me. The breath came into them, and they became alive. They stood up on their feet. They were a very large army.
 
-**11** Then he said to me, "Son of man, these bones are all the people of Israel. They say, 'Our bones are dry. We have no hope. We are destroyed.'
+**11** Then he said to me, "Son of man, these bones are all the people of Israel. They say, 'Our bones are dry. We have no hope. Our end is here.'
 
 **12** Thus prophesy and tell them, 'The Lord GOD says this: My people, I will open your graves. I will bring you up out of your graves. I will bring you into the land of Israel.
 
@@ -1976,15 +1976,15 @@
 
 **18** Your people will ask you, 'Tell us the meaning of these things.'
 
-**19** Then tell them, 'The Lord GOD says this: I will take the stick of Joseph, which is in the hand of Ephraim, and the tribes of Israel who are with him. I will put it together with the stick of Judah. I will make them one stick. They will be one in my hand.'
+**19** Then tell them, 'The Lord GOD says this: I will take the stick of Joseph, which is in the hand of Ephraim. I will take the tribes of Israel who are with him. I will put them together with the stick of Judah. I will make them one stick. They will be one in my hand.'
 
 **20** Hold the sticks that you wrote on in your hand, where the people can see them.
 
 **21** Tell them, 'The Lord GOD says this: I will take the people of Israel from the nations where they went. I will gather them from all directions. I will bring them into their own land.
 
-**22** I will make them one nation in the land, on the mountains of Israel. One king will rule all of them. They will not be 2 nations again. They will not be divided into 2 kingdoms again.
+**22** I will make them one nation in the land, on the mountains of Israel. One king will rule all of them. They will not be 2 nations again. They will not separate into 2 kingdoms again.
 
-**23** They will not make themselves unclean again with their idols, their disgusting things or their sins. I will save them from all the places where they sinned. I will make them clean. They will be my people, and I will be their God.
+**23** They will not make themselves unclean again with their idols, their filthy things or their sins. I will save them from all the places where they sinned. I will make them clean. They will be my people, and I will be their God.
 
 **24** "'My servant David will be king over them. They will all have one shepherd. They will obey my rules and carefully keep my laws.
 
@@ -2030,17 +2030,17 @@
 
 **16** You will attack my people Israel like a cloud that covers the land. In the last days I will bring you against my land. Gog, I will show that I am holy through you while the nations watch. Then the nations will know me.
 
-**17** "'The Lord GOD says this: You are the person that I spoke about in the past. I spoke through my servants, the prophets of Israel. For many years they prophesied that I would bring you against Israel.
+**17** "'The Lord GOD says this: You are the person that I spoke about in the past. I spoke through my servants, the prophets of Israel. For many years they prophesied that I will bring you against Israel.
 
 **18** On the day that Gog attacks the land of Israel, I will become very angry, says the Lord GOD.
 
 **19** In my jealousy and my hot anger I say this: On that day there will be a large earthquake in the land of Israel.
 
-**20** The fish in the sea, the birds in the sky, the wild animals and all the small animals that move on the ground will shake in my presence. All the people on the earth will shake in my presence. The mountains will fall. The cliffs will fall. Each wall will fall to the ground.
+**20** The fish in the sea, the birds in the sky and the wild animals will shake in my presence. All the small animals that move on the ground will shake. All the people on the earth will shake in my presence. The mountains will fall. The cliffs will fall. Each wall will fall to the ground.
 
 **21** I will bring a sword against Gog on all my mountains, says the Lord GOD. Each man will use his sword against his brother.
 
-**22** I will punish Gog with disease and killing. I will send heavy rain, large hailstones, fire and burning sulfur on him, on his soldiers and on the many nations with him.
+**22** I will punish Gog with disease and with blood. I will send heavy rain, large hailstones, fire and sulfur on him. They will fall on his soldiers and on the many nations with him.
 
 **23** Thus I will show that I am great and holy. I will make myself known to many nations. Then they will know that I am the LORD.'"
 
@@ -2238,7 +2238,7 @@
 
 **16** These had door posts, narrow windows and galleries on 3 levels. Wood covered the walls around the doors, from the floor up to the windows. The windows had covers.
 
-**17** The walls above the door, the walls of the inner room and the walls outside had measured decorations.
+**17** The walls above the door, the walls of the inner room and the walls outside had decorations with exact measurements.
 
 **18** There were decorations of cherubim (angels) and palm trees. There was a palm tree between each 2 cherubim. Each cherub had 2 faces.
 
@@ -2316,13 +2316,13 @@
 
 **7** The voice said, "Son of man, this is the place of my throne and the place where I put my feet. I will live here among the people of Israel for all time. The people of Israel and their kings will not dishonor my holy name again. They will not do it with their prostitution or with the dead bodies of their kings at their high places.
 
-**8** They put their thresholds next to my threshold. They put their door posts next to my door posts. Only a wall was between me and them. They dishonored my holy name with their disgusting actions. Thus I destroyed them in my anger.
+**8** They put their thresholds next to my threshold. They put their door posts next to my door posts. Only a wall was between me and them. They dishonored my holy name with their filthy actions. Thus I destroyed them in my anger.
 
 **9** Now they must remove their prostitution and the dead bodies of their kings far from me. Then I will live among them for all time.
 
-**10** "Son of man, describe the temple to the people of Israel. Then they will be ashamed of their sins. Let them examine the plan of the temple.
+**10** "Son of man, describe the temple to the people of Israel. Then they will feel shame because of their sins. Let them examine the plan of the temple.
 
-**11** If they are ashamed of all that they did, then show them the design of the temple. Show them its plan, its exits and its entrances. Show them all its designs, its rules and its laws. Write these things down while they watch. Then they can obey all its design and all its rules.
+**11** If they feel shame for all that they did, then show them the design of the temple. Show them its plan, its exits and its entrances. Show them all its designs, its rules and its laws. Write these things down while they watch. Then they can obey all its design and all its rules.
 
 **12** "This is the law of the temple: All the area around the top of the mountain will be most holy. This is the law of the temple.
 
@@ -2358,7 +2358,7 @@
 
 ## Chapter 44
 
-**1** Then the man brought me back to the outer gate of the sanctuary that faced east. The gate was closed.
+**1** Then the man brought me back to the outer gate of the sanctuary that faced east. The gate was not open.
 
 **2** The LORD said to me, "This gate must stay closed. No person must open it. No person must go in through it, because the LORD, the God of Israel, went in through it. Thus it must stay closed.
 
@@ -2368,13 +2368,13 @@
 
 **5** The LORD said to me, "Son of man, pay careful attention. Look with your eyes and listen with your ears to all that I tell you. I will tell you all the rules and laws of the temple of the LORD. Pay careful attention to the people who can come into the temple and the people who must stay out of the sanctuary.
 
-**6** Speak to the people of Israel, who rebel against me. Tell them, 'The Lord GOD says this: People of Israel, stop all your disgusting actions!
+**6** Speak to the people of Israel, who rebel against me. Tell them, 'The Lord GOD says this: People of Israel, stop all your filthy actions!
 
-**7** You brought foreigners into my sanctuary. Their hearts and their bodies are uncircumcised. They made my temple unholy when you offered me food, fat and blood. Thus you broke my covenant with all your disgusting actions.
+**7** You brought foreigners into my sanctuary. They did not receive circumcision in their hearts or in their bodies. They made my temple unholy when you offered me food, fat and blood. Thus you broke my covenant with all your filthy actions.
 
 **8** You did not do your duty with my holy things. You let foreigners do the duty in my sanctuary in your place.
 
-**9** "'The Lord GOD says this: No foreigner whose heart and body are uncircumcised can come into my sanctuary. This includes the foreigners who live among the people of Israel.
+**9** "'The Lord GOD says this: No foreigner who did not receive circumcision in his heart and in his body can come into my sanctuary. This includes the foreigners who live among the people of Israel.
 
 **10** "'Some of the Levites went far away from me when Israel left me. They left me to follow their idols. They will get the punishment for their sins.
 
@@ -2382,7 +2382,7 @@
 
 **12** But they served the people in front of their idols. They caused the people of Israel to sin. Thus I lifted my hand and made a promise against them, says the Lord GOD. They will get the punishment for their sins.
 
-**13** They must not come near to me to serve me as priests. They must not come near to any of my holy things or my most holy things. They must feel their shame because of the disgusting things that they did.
+**13** They must not come near to me to serve me as priests. They must not come near to any of my holy things or my most holy things. They must feel their shame because of the filthy things that they did.
 
 **14** But I will make them responsible for the work of the temple. They will do all its work and all the tasks in it.
 
@@ -2410,7 +2410,7 @@
 
 **26** After the priest becomes clean again, he must wait 7 days.
 
-**27** On the day that he goes into the inner courtyard of the sanctuary to serve there, he must offer a sin offering for himself, says the Lord GOD.
+**27** On the day that he goes into the inner courtyard of the sanctuary to serve there, he must offer a sin offering for himself. The Lord GOD says this.
 
 **28** "'The priests will have no property. I am their property. Do not give them land in Israel. I am their land.
 
@@ -2422,7 +2422,7 @@
 
 ## Chapter 45
 
-**1** "'When you divide the land by lot among the tribes, you must give a holy part of the land to the LORD as a special gift. It must be 25,000 rods long and 10,000 rods wide. All this area will be holy.
+**1** "'When you divide the land by lot among the tribes, you must give a holy part of the land to the LORD. It is a special gift. It must be 25,000 rods long and 10,000 rods wide. All this area will be holy.
 
 **2** From this area, a square of 500 rods by 500 rods will be for the sanctuary. An open area 50 cubits wide will go around it.
 
@@ -2436,9 +2436,9 @@
 
 **7** "'The prince will have land on each side of the holy area and the city area. His land will go west from the west side and east from the east side. It will be as long as one of the areas of the tribes, from the west border to the east border.
 
-**8** This land will be the property of the prince in Israel. Then my princes will not be cruel to my people again. They will give the remaining land to the people of Israel by their tribes.
+**8** This land will be the property of the prince in Israel. Then my princes will not be cruel to my people again. They will give the other land to the people of Israel by their tribes.
 
-**9** "'The Lord GOD says this: Princes of Israel, you did enough wrong! Stop your violence and your theft. Do what is fair and correct. Stop taking land from my people by force, says the Lord GOD.
+**9** "'The Lord GOD says this: Princes of Israel, you did enough wrong! Stop your violence and your theft. Do what is fair and correct. Do not take land from my people by force again, says the Lord GOD.
 
 **10** You must use honest scales. You must use an honest ephah (a unit of dry measure) and an honest bath (a unit of liquid measure).
 
@@ -2458,7 +2458,7 @@
 
 **18** "'The Lord GOD says this: On the 1st day of the 1st month, take a young bull with no defects. Use it to make the sanctuary clean.
 
-**19** The priest must take some of the blood of the sin offering. He must put it on the door posts of the temple, on the 4 corners of the ledge of the altar and on the posts of the gate of the inner courtyard.
+**19** The priest must take some of the blood of the sin offering. He must put it on the door posts of the temple. He must put it on the 4 corners of the ledge of the altar and on the posts of the gate of the inner courtyard.
 
 **20** Do the same on the 7th day of the month for each person who sins by mistake or because he does not know. Thus you will make the temple clean.
 
@@ -2516,7 +2516,7 @@
 
 **21** Then he brought me out into the outer courtyard. He took me to each of the 4 corners of the courtyard. In each corner there was a small courtyard.
 
-**22** In the 4 corners of the courtyard there were closed courtyards. Each was 40 cubits long and 30 cubits wide. All 4 had the same size.
+**22** In the 4 corners of the courtyard there were smaller courtyards with walls. Each was 40 cubits long and 30 cubits wide. All 4 had the same size.
 
 **23** Around the inside of each of the 4 courtyards there was a stone wall. There were places for fires below the wall around each courtyard.
 
@@ -2552,7 +2552,7 @@
 
 **14** Divide it equally among the tribes. I lifted my hand and promised to give the land to your ancestors. Thus this land will be your property.
 
-**15** "This is the border of the land on the north side: It goes from the Mediterranean Sea along the road to Hethlon, and to the entrance of Zedad.
+**15** "This is the border of the land on the north side. It goes from the Mediterranean Sea along the road to Hethlon. Then it goes to the entrance of Zedad.
 
 **16** It continues to Hamath, Berothah and Sibraim, which are between the border of Damascus and the border of Hamath. It continues to Hazer Hatticon, on the border of Hauran.
 
@@ -2566,7 +2566,7 @@
 
 **21** "Divide this land among you by the tribes of Israel.
 
-**22** Divide it by lot as property for yourselves and for the foreigners who live among you and have children among you. You must think of them as people who were born in Israel. They will get property with you among the tribes of Israel.
+**22** Divide it by lot as property for yourselves and for the foreigners who live among you and have children among you. You must think of them as people whose mothers gave birth to them in Israel. They will get property with you among the tribes of Israel.
 
 **23** In each tribe where a foreigner lives, give him his property, says the Lord GOD."
 
@@ -2604,7 +2604,7 @@
 
 **16** These will be the measurements of the city. The north side will be 4,500 reeds. The south side will be 4,500 reeds. The east side will be 4,500 reeds. The west side will be 4,500 reeds.
 
-**17** The open land around the city will be 250 reeds to the north, 250 reeds to the south, 250 reeds to the east, and 250 reeds to the west.
+**17** The open land around the city will be 250 reeds to the north and 250 reeds to the south. It will be 250 reeds to the east and 250 reeds to the west.
 
 **18** Some land will stay along the length, next to the holy part. It will be 10,000 reeds to the east and 10,000 reeds to the west. The crops from this land will be food for the workers of the city.
 

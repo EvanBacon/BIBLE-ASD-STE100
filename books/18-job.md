@@ -76,11 +76,11 @@
 
 ## Chapter 3
 
-**1** After this, Job spoke. He cursed the day when he was born.
+**1** After this, Job spoke. He cursed the day of his birth.
 
 **2** Job said,
 
-**3** "Let the day when I was born disappear. Let the night disappear when someone said, 'A boy is in the womb.'
+**3** "Let the day of my birth disappear. Let the night disappear when someone said, 'A boy is in the womb.'
 
 **4** Let that day become dark. Let God above forget it. Do not let light shine on it.
 
@@ -100,13 +100,13 @@
 
 **12** Why did a mother take me on her knees? Why did she give me milk from her breasts?
 
-**13** If I died then, I would now lie down in peace. I would sleep and rest.
+**13** If I died at birth, then now I lie down in peace. I sleep and I have rest.
 
-**14** I would be with the kings and advisers of the earth. They built cities for themselves that are now ruins.
+**14** Then I rest with the kings and advisers of the earth. They built cities for themselves that are now ruins.
 
-**15** I would be with rulers who had gold and filled their houses with silver.
+**15** Or I rest with rulers who had gold and filled their houses with silver.
 
-**16** I would be like a baby that died before birth and that people buried secretly. I would be like a baby that never saw light.
+**16** Or I am like a baby that died before birth and that people buried secretly. I am like a baby that never saw light.
 
 **17** In the grave, evil people stop their trouble. In the grave, tired people rest.
 
@@ -168,7 +168,7 @@
 
 **19** Thus he trusts men much less. Men live in bodies of clay. Their bodies come from the dust. A moth can easily crush them.
 
-**20** Between morning and evening, men are destroyed. They die forever, and no person sees it.
+**20** Between morning and evening, people die. They disappear forever, and no person notices.
 
 **21** Their life ends like a tent when someone pulls out its cords. They die without wisdom.'
 
@@ -186,9 +186,9 @@
 
 **6** Trouble does not grow from the dust. Problems do not grow out of the ground.
 
-**7** But man is born to have trouble. This is as certain as the sparks that fly up from a fire.
+**7** But from birth, man has trouble. This is as certain as the sparks that fly up from a fire.
 
-**8** If I were you, I would ask God for help. I would give my problem to God.
+**8** In your place, I will ask God for help. I will give my problem to God.
 
 **9** He does great things that no person can understand. He does more wonderful things than any person can count.
 
@@ -220,7 +220,7 @@
 
 **23** The stones in the fields will not cause problems for you. The wild animals will be at peace with you.
 
-**24** You will know that your home is safe. You will look at your property, and you will find nothing missing.
+**24** You will know that your home is safe. You will look at your property, and you will find all your things there.
 
 **25** You will know that you will have many children. Your descendants will be as many as the grass on the earth.
 
@@ -234,7 +234,7 @@
 
 **2** "I wish that someone could weigh my pain. I wish that someone could put all my trouble on a scale.
 
-**3** It would be heavier than the sand of the sea. That is why my words were wild.
+**3** Now my grief is heavier than the sand of the sea. That is why my words were wild.
 
 **4** The arrows of the Almighty are in me. My spirit drinks their poison. The terrors of God attack me like an army.
 
@@ -244,15 +244,15 @@
 
 **7** I refuse to touch such food. It makes me sick.
 
-**8** I wish that God would give me what I ask. I wish that he would give me what I want.
+**8** I wish that God will give me what I ask. I wish that he will give me what I want.
 
 **9** I want God to destroy me. I want him to use his power to kill me.
 
-**10** Then I would still have comfort. I would be happy, although I have pain that does not stop. I did not refuse the words of the Holy God.
+**10** Then I will still have comfort. I will be happy, although I have pain that does not stop. I did not refuse the words of the Holy God.
 
 **11** I do not have the strength to continue to hope. I have no future. Thus I have no reason to be patient.
 
-**12** I am not strong like a stone. My body is not made of bronze.
+**12** I am not strong like a stone. My body is not bronze.
 
 **13** I have no power to help myself. All my success is gone.
 
@@ -282,7 +282,7 @@
 
 **26** You want to correct my words. But the words of a man without hope are only wind.
 
-**27** You would even throw dice for an orphan. You would sell your friend.
+**27** You even attack the orphan. You dig a pit for your friend.
 
 **28** Now please look at me. I will not tell a lie to your face.
 
@@ -300,7 +300,7 @@
 
 **4** When I lie down, I think, 'When will I get up?' The night is long. I turn from side to side until the morning.
 
-**5** My body is covered with worms and dirt. My skin breaks open and becomes infected.
+**5** Worms and dirt cover my body. My skin breaks open and becomes infected.
 
 **6** My days go faster than the shuttle of a weaver. They come to an end without hope.
 
@@ -352,7 +352,7 @@
 
 **8** Ask the old people. Learn what their ancestors found out.
 
-**9** We were born only a short time ago, and we know nothing. Our days on earth are like a shadow.
+**9** Our life started only a short time ago, and we know nothing. Our days on earth are like a shadow.
 
 **10** The old people will teach you and tell you. They will tell you what they understand.
 
@@ -378,7 +378,7 @@
 
 **21** God will again cause you to laugh. He will again cause you to shout with joy.
 
-**22** The people who hate you will be ashamed. The homes of evil people will disappear."
+**22** Shame will cover the people who hate you. The homes of evil people will disappear."
 
 ## Chapter 9
 
@@ -412,7 +412,7 @@
 
 **15** Although I am innocent, I cannot answer him. I can only ask my Judge for mercy.
 
-**16** If I called him and he answered, I would not believe that he listened to me.
+**16** If I call him and he answers, I will not believe that he listens to me.
 
 **17** He attacks me with a storm. He gives me many wounds for no reason.
 
@@ -420,7 +420,7 @@
 
 **19** If it is a matter of strength, God is strong. If it is a matter of justice, who will call him to court?
 
-**20** Although I am innocent, my own words would make me guilty. Although I am honest, my words would prove that I am bad.
+**20** Although I am innocent, my own words will make me guilty. Although I am honest, my words will prove that I am bad.
 
 **21** I am innocent, but I do not care about myself. I hate my life.
 
@@ -450,7 +450,7 @@
 
 **34** I want God to take away his rod from me. Then his power will not frighten me.
 
-**35** Then I would speak and not fear him. But now I cannot do that.
+**35** Then I will speak and not fear him. But now I cannot do that.
 
 ## Chapter 10
 
@@ -480,7 +480,7 @@
 
 **13** But you hid a different plan in your heart. I know that this was in your mind.
 
-**14** If I sinned, you would watch me. You would not forgive my wrong acts.
+**14** If I sin, you watch me. You will not forgive my wrong acts.
 
 **15** If I am guilty, I will have much trouble. If I am innocent, I still cannot lift my head with honor. I am full of shame. Look at my trouble.
 
@@ -488,7 +488,7 @@
 
 **17** You bring new witnesses against me. Your anger against me becomes larger. You send new armies against me.
 
-**18** Why did you let me be born? I wish that I died before any person saw me.
+**18** Why did you bring me out of the womb? I wish that I died before any person saw me.
 
 **19** I wish that I never lived. I wish that I went from the womb to the grave.
 
@@ -506,11 +506,11 @@
 
 **3** Your foolish talk will not make men silent. When you insult God, someone must make you ashamed.
 
-**4** You say to God, 'My teaching is correct. I am pure in your eyes.'
+**4** You say to God, 'My message is correct. I am pure in your eyes.'
 
-**5** But I wish that God would speak. I wish that he would answer you.
+**5** But I wish that God will speak. I wish that he will answer you.
 
-**6** I wish that he would show you the secrets of wisdom. True wisdom has 2 sides. Know this: God punishes you less than your sins deserve.
+**6** I wish that he will show you the secrets of wisdom. True wisdom has 2 sides. Know this: God punishes you less than your sins deserve.
 
 **7** You cannot know all the secrets of God. You cannot learn the limits of the Almighty.
 
@@ -522,7 +522,7 @@
 
 **11** God knows which people are false. When he sees evil, he pays attention to it.
 
-**12** A foolish man will become wise only when a wild donkey is born as a man.
+**12** A foolish man will become wise only when a wild donkey gives birth to a man.
 
 **13** But you must make your heart ready. Lift your hands to God in prayer.
 
@@ -546,7 +546,7 @@
 
 **2** "Surely you think that you are the only wise people. You think that wisdom will die when you die.
 
-**3** But I have understanding as you do. I am not less than you. All people know these things.
+**3** But I have good sense as you do. I am not less than you. All people know these things.
 
 **4** My friends laugh at me. I called to God, and he answered me. But people laugh at me, although I am good and honest.
 
@@ -564,9 +564,9 @@
 
 **11** The ear tests words as the mouth tastes food.
 
-**12** Old people have wisdom. A long life gives understanding.
+**12** Old people have wisdom. A long life gives knowledge.
 
-**13** But God has true wisdom and power. He has good advice and understanding.
+**13** But God has true wisdom and power. He has good advice and knowledge.
 
 **14** If God breaks something down, no person can build it again. If he puts a man in prison, no person can let him out.
 
@@ -584,11 +584,11 @@
 
 **21** He makes rulers ashamed. He takes away the strength of powerful people.
 
-**22** He shows the secrets that are hidden in darkness. He brings deep shadows into the light.
+**22** He shows the secrets that darkness hides. He brings deep shadows into the light.
 
 **23** He makes nations great, and then he destroys them. He makes nations larger, and then he sends them away.
 
-**24** He takes away the understanding of the leaders of the earth. He makes them go in all directions in a desert with no path.
+**24** He takes away the good sense of the leaders of the earth. He makes them go in all directions in a desert with no path.
 
 **25** They feel their way in the dark without light. He makes them go from side to side like drunk men.
 
@@ -602,7 +602,7 @@
 
 **4** You hide the truth with lies. You are all like doctors who cannot heal.
 
-**5** I wish that you would be silent. That would be wise for you.
+**5** I wish that you will be silent. That will be wise for you.
 
 **6** Now listen to my argument. Hear the words that I say in my defense.
 
@@ -676,7 +676,7 @@
 
 **12** In the same way, a man lies down and does not get up again. Until the skies disappear, dead people will not wake up from their sleep.
 
-**13** I wish that you would hide me in the grave. Hide me until your anger stops. Then choose a time and remember me.
+**13** I wish that you will hide me in the grave. Hide me until your anger stops. Then choose a time and remember me.
 
 **14** If a man dies, will he live again? I will wait during all my hard days until my relief comes.
 
@@ -710,7 +710,7 @@
 
 **6** Your own mouth says that you are guilty, not I. Your own words speak against you.
 
-**7** Are you the first man that was born? Did God make you before he made the hills?
+**7** Are you the first man that a woman gave birth to? Did God make you before he made the hills?
 
 **8** Do you listen to the secret council of God? Do you think that only you are wise?
 
@@ -778,7 +778,7 @@
 
 **4** I also could speak as you do, if you were in my position. I could say many words against you. I could shake my head at you.
 
-**5** But I would give you strength with my words. My words would make your pain less.
+**5** But I can give you strength with my words. My words can make your pain less.
 
 **6** If I speak, my pain does not become less. If I am silent, the pain does not go away.
 
@@ -816,7 +816,7 @@
 
 ## Chapter 17
 
-**1** "My spirit is broken. My days are at an end. The grave waits for me.
+**1** "My spirit has no strength. My days are at an end. The grave waits for me.
 
 **2** People laugh at me all around me. My eyes must watch them insult me.
 
@@ -824,19 +824,19 @@
 
 **4** You closed their minds so that they do not understand. Thus you will not let them win.
 
-**5** A man who turns against his friends for a reward will be punished. His children will suffer.
+**5** A man who turns against his friends for a reward will receive punishment. His children will suffer.
 
 **6** God made people use my name as an insult. People spit in my face.
 
 **7** My eyes became weak because of my sorrow. My body is thin like a shadow.
 
-**8** Honest people are shocked at this. Innocent people become angry with evil people.
+**8** Honest people feel shock at this. Innocent people become angry with evil people.
 
 **9** But good people continue to do good. People who do right become stronger and stronger.
 
 **10** But come back, all of you, and try again. I will not find a wise man among you.
 
-**11** My life is at an end. My plans are broken. The things that I wanted are gone.
+**11** My life is at an end. My plans are gone. The things that I wanted are gone.
 
 **12** My friends say that night is day. They say, 'Light is near,' but there is only darkness.
 
@@ -868,7 +868,7 @@
 
 **9** A trap catches him by the heel. A snare holds him tightly.
 
-**10** A rope is hidden on the ground for him. A trap waits for him on his path.
+**10** Someone hides a rope on the ground for him. A trap waits for him on his path.
 
 **11** Terrible things frighten him on all sides. They follow him at each step.
 
@@ -888,7 +888,7 @@
 
 **19** He will have no children or descendants among his people. No person from his family will be alive where he lived.
 
-**20** People in the west will be shocked at what occurs to him. People in the east will be afraid.
+**20** People in the west will feel shock at what occurs to him. People in the east will be afraid.
 
 **21** This is what occurs to the homes of evil people. This is what occurs to a person who does not know God."
 
@@ -898,7 +898,7 @@
 
 **2** "How long will you cause me pain? How long will you hurt me with your words?
 
-**3** You insulted me 10 times now. You attack me, and you are not ashamed.
+**3** You insulted me 10 times now. You attack me, and you feel no shame.
 
 **4** If I did wrong, my error is my own problem.
 
@@ -938,13 +938,13 @@
 
 **22** Why do you chase me as God does? Why do you not stop your attacks on me?
 
-**23** I wish that someone would write down my words. I wish that someone would write them in a book.
+**23** I wish that someone will write down my words. I wish that someone will write them in a book.
 
-**24** I wish that someone would cut them in rock forever with an iron tool and lead.
+**24** I wish that someone will cut them in rock forever with an iron tool and lead.
 
 **25** But I know that my Redeemer (the one who saves me) lives. In the end he will stand on the earth.
 
-**26** After my skin is destroyed, I will still see God in my body.
+**26** After worms destroy my skin, I will still see God in my body.
 
 **27** I myself will see him. I will see him with my own eyes, not someone else. I want this very much.
 
@@ -958,7 +958,7 @@
 
 **2** "My thoughts cause me to answer, because I am very troubled.
 
-**3** I heard your insult against me. My understanding causes me to answer.
+**3** I heard your insult against me. My spirit gives me knowledge, and it causes me to answer.
 
 **4** You surely know this. Since the time when God put man on the earth, this was true:
 
@@ -1002,13 +1002,13 @@
 
 **24** He will run away from an iron weapon. But an arrow from a bronze bow will go through him.
 
-**25** He pulls the arrow out of his back. The shining point comes out of his liver. Terrible fear comes on him.
+**25** He pulls the arrow out of his back. The bright point comes out of his liver. Terrible fear comes on him.
 
 **26** Complete darkness waits for his riches. A fire that no person lit will burn him. It will destroy all that remains in his tent.
 
 **27** The skies will show his sin. The earth will speak against him.
 
-**28** The riches of his house will be carried away. Floods will take them away on the day of the anger of God.
+**28** Floods will take away the riches of his house. They will flow away on the day of the anger of God.
 
 **29** This is what God gives to an evil man. This is what God decides for him."
 
@@ -1022,7 +1022,7 @@
 
 **4** My complaint is not against a man. Thus I have a reason to be impatient.
 
-**5** Look at me and be shocked. Put your hand over your mouth.
+**5** Look at me and feel shock. Put your hand over your mouth.
 
 **6** When I think about this, I am afraid. My body shakes.
 
@@ -1098,7 +1098,7 @@
 
 **7** You did not give water to tired people. You did not give food to hungry people.
 
-**8** You were a powerful man and owned land. You were honored, and you lived on the land.
+**8** You were a powerful man and owned land. People gave you honor, and you lived on the land.
 
 **9** You sent widows away with nothing. You crushed the strength of orphans.
 
@@ -1122,11 +1122,11 @@
 
 **19** Good people see the destruction of evil people, and they are glad. Innocent people laugh at the evil people.
 
-**20** They say, 'Our enemies are destroyed. Fire burns their riches.'
+**20** They say, 'God destroys our enemies. Fire burns their riches.'
 
 **21** Agree with God, and be at peace with him. Then good things will come to you.
 
-**22** Accept his teaching. Keep his words in your heart.
+**22** Accept the law from his mouth. Keep his words in your heart.
 
 **23** If you come back to the Almighty, he will make you strong again. Remove evil far from your home.
 
@@ -1140,7 +1140,7 @@
 
 **28** You will decide to do something, and you will be successful. Light will shine on your path.
 
-**29** When people are humbled, you will say, 'Lift them up!' Then God will save the humble person.
+**29** When God makes people low, you will say, 'Lift them up!' Then God will save the humble person.
 
 **30** He will even save a guilty person. He will save that person because your hands are clean."
 
@@ -1150,15 +1150,15 @@
 
 **2** "Today my complaint is still bitter. God's hand is heavy on me, although I cry.
 
-**3** I wish that I knew where to find God. Then I would go to his home.
+**3** I wish that I knew where to find God. Then I will go to his home.
 
-**4** I would explain my case to him. I would give him all my arguments.
+**4** I will explain my case to him. I will give him all my arguments.
 
-**5** I would learn how he would answer me. I would understand what he would say to me.
+**5** I will learn how he will answer me. I will understand what he will say to me.
 
-**6** Would he use his great power to argue against me? No, he would listen to me.
+**6** Will he use his great power to argue against me? No, he will listen to me.
 
-**7** There an honest man could explain his case to God. Then my Judge would make me free forever.
+**7** There an honest man can explain his case to God. Then my Judge will make me free forever.
 
 **8** I go to the east, but God is not there. I go to the west, but I do not find him.
 
@@ -1216,11 +1216,11 @@
 
 **17** For all of them, the morning is like deep darkness. They are friends with the terrors of darkness.
 
-**18** But evil people are like foam on the water. Their land is cursed. No person goes to their vineyards.
+**18** But evil people are like foam on the water. God puts a curse on their land. No person goes to their vineyards.
 
 **19** Heat and dry weather take away the melted snow. In the same way, the grave takes away people who sin.
 
-**20** Their mothers will forget them. Worms will eat them. No person will remember them. Evil will be broken like a tree.
+**20** Their mothers will forget them. Worms will eat them. No person will remember them. Evil will fall like a tree that someone cuts down.
 
 **21** They are cruel to women who have no children. They do not help widows.
 
@@ -1228,7 +1228,7 @@
 
 **23** God lets them feel safe and secure. But he watches all that they do.
 
-**24** For a short time, evil people are important. Then they are gone. They fall down and die like all other people. They are cut off like the tops of the grain.
+**24** For a short time, evil people are important. Then they are gone. They fall down and die like all other people. God cuts them off like the tops of the grain.
 
 **25** If this is not true, who can prove that I am a liar? Who can show that my words are wrong?"
 
@@ -1348,9 +1348,9 @@
 
 **11** He stops the streams so that they do not flow. He brings hidden things into the light.
 
-**12** But where can a person find wisdom? Where is the place of understanding?
+**12** But where can a person find wisdom? Where is the place of knowledge?
 
-**13** Man does not know the value of wisdom. A person cannot find wisdom in the land of the living.
+**13** Man does not know the value of wisdom. A person cannot find wisdom in the land of people who live.
 
 **14** The deep water says, "Wisdom is not in me." The sea says, "Wisdom is not with me."
 
@@ -1364,9 +1364,9 @@
 
 **19** The topaz of Ethiopia is not equal to wisdom. Pure gold cannot pay for it.
 
-**20** Then where does wisdom come from? Where is the place of understanding?
+**20** Then where does wisdom come from? Where is the place of knowledge?
 
-**21** Wisdom is hidden from the eyes of all living things. It is hidden from the birds of the sky.
+**21** Wisdom hides from the eyes of all things that live. The birds of the sky cannot see it.
 
 **22** Destruction and Death say, "We heard only a report about wisdom."
 
@@ -1380,7 +1380,7 @@
 
 **27** At that time he saw wisdom and told its value. He made wisdom firm and examined it.
 
-**28** He said to man, "Look, to respect the Lord with fear is wisdom. To go away from evil is understanding."
+**28** He said to man, "Look, to respect the Lord with fear is wisdom. To go away from evil is good sense."
 
 ## Chapter 29
 
@@ -1466,7 +1466,7 @@
 
 **15** Terrors attack me. They chase away my honor as the wind does. My safety goes away like a cloud.
 
-**16** Now my life flows out of me. Days of suffering hold me.
+**16** Now my life flows out of me. Days of pain hold me.
 
 **17** At night, pain goes deep into my bones. The pains that attack me do not stop.
 
@@ -1480,7 +1480,7 @@
 
 **22** You lift me up on the wind. You cause the wind to carry me. You throw me about in the storm.
 
-**23** I know that you will bring me to death. You will bring me to the place where all living people go.
+**23** I know that you will bring me to death. You will bring me to the place where all people who live will go.
 
 **24** But a man in ruins lifts out his hand for help. In his trouble, he cries out.
 
@@ -1488,7 +1488,7 @@
 
 **26** I hoped for good, but evil came to me. I waited for light, but darkness came.
 
-**27** My body is full of pain without rest. Days of suffering come against me.
+**27** My body is full of pain without rest. Days of pain come against me.
 
 **28** I go around sad and dark, without the sun. I stand up in the assembly and cry for help.
 
@@ -1522,7 +1522,7 @@
 
 **11** That is a very bad crime. That is a sin that the judges must punish.
 
-**12** That sin is a fire that burns everything until it is destroyed. It burns up all my harvest.
+**12** That sin is a fire that burns everything until nothing stays. It burns up all my harvest.
 
 **13** Maybe I did not give justice to my male or female servant when they had a complaint against me.
 
@@ -1540,7 +1540,7 @@
 
 **20** Maybe that man did not thank me, because I did not make him warm with wool from my sheep.
 
-**21** Maybe I raised my hand against the orphan because I knew that the judges at the gate would support me.
+**21** Possibly I raised my hand against the orphan because I knew that the judges at the gate will support me.
 
 **22** If so, let my arm fall from my shoulder. Let my arm break off at the joint.
 
@@ -1588,7 +1588,7 @@
 
 **3** Elihu was also angry with the 3 friends of Job. They found no answer to Job, but they said that Job was guilty.
 
-**4** Elihu waited until Job stopped speaking, because the other men were older than Elihu.
+**4** Elihu waited until Job stopped his words, because the other men were older than Elihu.
 
 **5** Elihu saw that the 3 men had no answer. Then he became angry.
 
@@ -1596,7 +1596,7 @@
 
 **7** I said, 'Older people must speak. Many years of life must teach wisdom.'
 
-**8** But there is a spirit in man. The breath of the Almighty gives people understanding.
+**8** But there is a spirit in man. The breath of the Almighty gives people knowledge.
 
 **9** Men are not wise only because they are old. Old men do not always understand what is right.
 
@@ -1610,7 +1610,7 @@
 
 **14** Job did not speak his words against me. I will not answer him with your arguments.
 
-**15** These men are confused. They do not answer anymore. They have no more words.
+**15** These men feel surprise. They do not answer anymore. They have no more words.
 
 **16** I waited, but they do not speak. They stand there and do not answer.
 
@@ -1624,7 +1624,7 @@
 
 **21** I will not show favor to any man. I will not use false praise for any person.
 
-**22** I do not know how to use false praise. If I did, my Maker would quickly take me away."
+**22** I do not know how to use false praise. If I do that, my Maker will quickly take me away."
 
 ## Chapter 33
 
@@ -1706,7 +1706,7 @@
 
 **5** Job says, 'I am innocent, but God does not give me justice.
 
-**6** I am right, but people say that I am a liar. My wound cannot be healed, but I did not sin.'
+**6** I am right, but people say that I am a liar. No person can heal my wound, but I did not sin.'
 
 **7** What man is like Job? He drinks up contempt as if it is water.
 
@@ -1714,7 +1714,7 @@
 
 **9** He says, 'A man gets no advantage when he tries to please God.'
 
-**10** Thus listen to me, you men of understanding. God never does evil. The Almighty never does wrong.
+**10** Thus listen to me, you men of good sense. God never does evil. The Almighty never does wrong.
 
 **11** God pays back each man for what he does. God gives each man what his actions deserve.
 
@@ -1724,9 +1724,9 @@
 
 **14** If God decides to take back his spirit and his breath,
 
-**15** then all living things will die together. Man will become dust again.
+**15** then all things that live will die together. Man will become dust again.
 
-**16** If you have understanding, then hear this. Listen to my words.
+**16** If you have good sense, then hear this. Listen to my words.
 
 **17** Can a person who hates justice rule? Will you say that the righteous and mighty God is guilty?
 
@@ -1744,11 +1744,11 @@
 
 **24** God breaks mighty men without an investigation. He puts other men in their place.
 
-**25** God knows what they do. Thus he defeats them in the night, and they are destroyed.
+**25** God knows what they do. Thus he defeats them in the night, and he destroys them.
 
 **26** He strikes them for their wickedness where other people can see it.
 
-**27** They turned away from following God. They did not respect any of his ways.
+**27** They turned away from God. They did not respect any of his ways.
 
 **28** They caused the poor to cry out to God. God hears the cry of people who suffer.
 
@@ -1762,7 +1762,7 @@
 
 **33** Then must God reward the man in the way you want? You refuse to accept God's way. You must decide, not I. Thus tell me what you know.
 
-**34** Men of understanding will say to me, and the wise man who hears me will say,
+**34** Men of good sense will say to me, and the wise man who hears me will say,
 
 **35** 'Job speaks without knowledge. His words do not show wisdom.'
 
@@ -1814,7 +1814,7 @@
 
 **4** It is true that my words are not false. A man with complete knowledge is with you.
 
-**5** Look, God is mighty, but he does not hate any person. He is mighty in strength and in understanding.
+**5** Look, God is mighty, but he does not hate any person. He is mighty in strength and in wisdom.
 
 **6** God does not keep the wicked alive. He gives justice to the people who suffer.
 
@@ -1834,7 +1834,7 @@
 
 **14** They die while they are young. They die in shame, with the male prostitutes of the temples.
 
-**15** God saves the people who suffer through their suffering. He speaks to them in their trouble.
+**15** God saves the people who suffer through their pain. He speaks to them in their trouble.
 
 **16** God wants to take you out of trouble too. He wants to bring you into an open place without problems. He wants to put the best food on your table.
 
@@ -1846,7 +1846,7 @@
 
 **20** Do not want the night, when God removes people from their places.
 
-**21** Be careful. Do not turn to evil. You chose evil instead of suffering.
+**21** Be careful. Do not turn to evil. You chose evil instead of pain.
 
 **22** Look, God is great in his power. No teacher is like God.
 
@@ -1916,7 +1916,7 @@
 
 **21** Now people cannot look at the sun when it is bright in the sky. The wind blows and makes the sky clear.
 
-**22** A golden light comes from the north. God comes with frightening majesty.
+**22** A golden light comes from the north. God comes with terrible majesty.
 
 **23** We cannot reach the Almighty. He is very great in power. He is just and very righteous. He does not oppress people.
 
@@ -1994,7 +1994,7 @@
 
 **35** Can you send out the lightning? Will the lightning come to you and say, 'We are here'?
 
-**36** Who put wisdom in the heart? Who gives understanding to the mind?
+**36** Who put wisdom in the heart? Who gives knowledge to the mind?
 
 **37** Who is wise enough to count the clouds? Who can pour out the water from the sky,
 
@@ -2030,7 +2030,7 @@
 
 **11** Will you trust the wild ox because its strength is great? Will you give your heavy work to it?
 
-**12** Can you trust it to bring your grain home? Will it collect the grain to your threshing floor?
+**12** Can you trust it to bring your grain home? Will it collect the grain to the floor where you beat the grain?
 
 **13** The wings of the ostrich move with joy. But its wings and feathers do not show love like the wings of the stork.
 
@@ -2040,7 +2040,7 @@
 
 **16** She is cruel to her young, as if they are not hers. She is not afraid that her work is for no purpose.
 
-**17** God did not give her wisdom. He did not give her understanding.
+**17** God did not give her wisdom. He did not give her good sense.
 
 **18** But when she runs fast, she laughs at the horse and its rider.
 
@@ -2148,7 +2148,7 @@
 
 **14** Who can open the doors of his mouth? His teeth cause terror all around.
 
-**15** His back has rows of shields. They are closed tightly together, as with a seal.
+**15** His back has rows of shields. They stay tightly together, as with a seal.
 
 **16** Each one is so near to the next one that no air can go between them.
 
@@ -2178,11 +2178,11 @@
 
 **29** He thinks that clubs are like dry grass. He laughs at the noise of a spear.
 
-**30** His lower parts are like sharp pieces of broken pots. He leaves marks in the mud like a threshing sledge.
+**30** His lower parts are like sharp pieces of broken pots. He leaves marks in the mud like a sledge that beats the grain.
 
 **31** He causes the deep water to boil like a pot. He causes the sea to bubble like a pot of perfume.
 
-**32** He leaves a shining path behind him. A person thinks that the deep water has white hair.
+**32** He leaves a bright path behind him. A person thinks that the deep water has white hair.
 
 **33** Nothing on earth is equal to him. He is a creature without fear.
 
@@ -2202,7 +2202,7 @@
 
 **6** Thus I hate what I said. I sit in dust and ashes, and I change my mind (repent)."
 
-**7** The LORD finished speaking these words to Job. Then the LORD said to Eliphaz the Temanite, "I am angry with you and with your 2 friends. You did not speak the truth about me, as my servant Job did.
+**7** The LORD finished his words to Job. Then the LORD said to Eliphaz the Temanite, "I am angry with you and with your 2 friends. You did not speak the truth about me, as my servant Job did.
 
 **8** Thus take 7 bulls and 7 rams now. Go to my servant Job. Give them as a burnt offering for yourselves. My servant Job will pray for you, and I will accept his prayer. Then I will not punish you for your foolishness. You did not speak the truth about me, as my servant Job did."
 

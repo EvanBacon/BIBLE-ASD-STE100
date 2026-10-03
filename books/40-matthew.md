@@ -36,7 +36,7 @@
 
 **17** Thus there were 14 generations from Abraham to David. There were 14 generations from David to the time when the enemy took the people to Babylon. There were 14 generations from that time to the Christ.
 
-**18** This is how the birth of Jesus Christ occurred. Mary, his mother, was promised in marriage to Joseph. But before they lived together, Mary found that she was pregnant by the Holy Spirit.
+**18** This is how the birth of Jesus Christ occurred. Mary, his mother, had a promise of marriage with Joseph. But before they lived together, Mary found that she was pregnant by the Holy Spirit.
 
 **19** Joseph, her husband, was a good man. He did not want to put shame on Mary in public. Thus he decided to end the marriage agreement secretly.
 
@@ -54,15 +54,15 @@
 
 ## Chapter 2
 
-**1** Jesus was born in Bethlehem in Judea at the time when Herod was king. After Jesus was born, wise men from the east came to Jerusalem.
+**1** Mary gave birth to Jesus in Bethlehem in Judea at the time when Herod was king. After the birth of Jesus, wise men from the east came to Jerusalem.
 
-**2** The wise men asked, "Where is the child who is born King of the Jews? We saw his star in the east. We came to worship him."
+**2** The wise men asked, "Where is the child who is the new King of the Jews? We saw his star in the east. We came to worship him."
 
 **3** King Herod heard about this, and he became very troubled. All the people in Jerusalem also became troubled.
 
-**4** Herod brought together all the chief priests and the teachers of the law. He asked them, "Where will the Christ be born?"
+**4** Herod brought together all the chief priests and the teachers of the law. He asked them, "Where will the mother of the Christ give birth to him?"
 
-**5** They told him, "He will be born in Bethlehem in Judea. The prophet wrote this:
+**5** They told him, "His mother will give birth to him in Bethlehem in Judea. The prophet wrote this:
 
 **6** 'You, Bethlehem, in the land of Judah, are not the least important among the rulers of Judah. A ruler will come from you. He will lead my people Israel like a shepherd.'"
 
@@ -88,7 +88,7 @@
 
 **17** This made true the words that the prophet Jeremiah spoke:
 
-**18** "People heard a voice in Ramah. They heard crying and much sorrow. Rachel cried for her children. She did not let anyone comfort her, because her children were dead."
+**18** "People heard a voice in Ramah. They heard loud cries and much sorrow. Rachel cried for her children. She did not let anyone comfort her, because her children were dead."
 
 **19** After Herod died, an angel of the Lord came in a dream to Joseph in Egypt.
 
@@ -144,19 +144,19 @@
 
 **3** The devil, who tries to make people sin, came to him. The devil said, "If you are the Son of God, tell these stones to become bread."
 
-**4** But Jesus answered, "It is written: 'A person must not live only on bread. A person must live on every word that God speaks.'"
+**4** But Jesus answered, "The scripture says: 'A person must not live only on bread. A person must live on every word that God speaks.'"
 
 **5** Then the devil took Jesus to the holy city, Jerusalem. He put Jesus on the highest point of the temple.
 
-**6** The devil said to him, "If you are the Son of God, jump down. It is written: 'God will give orders to his angels about you. They will hold you up in their hands. Then you will not hit your foot against a stone.'"
+**6** The devil said to him, "If you are the Son of God, jump down. The scripture says: 'God will give orders to his angels about you. They will hold you up in their hands. Then you will not hit your foot against a stone.'"
 
-**7** Jesus said to him, "It is also written: 'Do not test the Lord your God.'"
+**7** Jesus said to him, "The scripture also says: 'Do not test the Lord your God.'"
 
 **8** Again the devil took Jesus to a very high mountain. He showed Jesus all the kingdoms of the world and all their greatness.
 
 **9** The devil said to him, "I will give you all these things if you bow down and worship me."
 
-**10** Then Jesus said to him, "Go away, Satan! It is written: 'Worship the Lord your God. Serve only him.'"
+**10** Then Jesus said to him, "Go away, Satan! The scripture says: 'Worship the Lord your God. Serve only him.'"
 
 **11** Then the devil went away from Jesus. Angels came and helped Jesus.
 
@@ -226,7 +226,7 @@
 
 **18** I tell you the truth, until heaven and earth go away, not one letter of the law will go away. Not even the smallest mark will go away until all things occur.
 
-**19** Thus a person may disobey one of the smallest commands and teach other people to do the same. God will call that person the least in the kingdom of heaven. But a person may obey the commands and teach them. God will call that person great in the kingdom of heaven.
+**19** Possibly a person disobeys one of the smallest commands and teaches other people to do the same. God will call that person the least in the kingdom of heaven. But possibly a person obeys the commands and teaches them. God will call that person great in the kingdom of heaven.
 
 **20** I tell you, you must be more righteous than the teachers of the law and the Pharisees. If not, you will not go into the kingdom of heaven.
 
@@ -234,7 +234,7 @@
 
 **22** But I tell you, every person who is angry with his brother will go to the court for judgment. A person who insults his brother will go to the high council. A person who says, 'You fool!' will be in danger of the fire of hell.
 
-**23** Thus you may bring your gift to the altar and remember that your brother has a complaint against you.
+**23** Thus possibly you bring your gift to the altar and remember that your brother has a complaint against you.
 
 **24** Then leave your gift there in front of the altar. First go and make peace with your brother. Then come back and give your gift.
 
@@ -244,7 +244,7 @@
 
 **27** You heard that God said, 'Do not commit adultery.'
 
-**28** But I tell you, a man may look at a woman and want her sexually. In his heart, that man already committed adultery with her.
+**28** But I tell you, possibly a man looks at a woman and wants her sexually. In his heart, that man already committed adultery with her.
 
 **29** If your right eye causes you to sin, take it out and throw it away. It is better to lose one part of your body than to have all of your body go into hell.
 
@@ -412,7 +412,7 @@
 
 **27** The rain fell, the floods came, and the winds blew and hit that house. The house fell, and its destruction was complete."
 
-**28** Jesus stopped speaking these words. The crowds were very surprised at his teaching.
+**28** Jesus finished these words. The crowds were very surprised at what he taught.
 
 **29** He taught like a person who had authority. He did not teach like their teachers of the law.
 
@@ -420,11 +420,11 @@
 
 **1** Jesus came down from the mountain, and large crowds followed him.
 
-**2** A man with leprosy came and bowed down in front of Jesus. The man said, "Lord, if you are willing, you can make me clean."
+**2** A man with leprosy came and bowed down in front of Jesus. The man said, "Lord, if you want to, you can make me clean."
 
-**3** Jesus put out his hand and touched the man. Jesus said, "I am willing. Be clean!" Immediately the leprosy went away from the man.
+**3** Jesus put out his hand and touched the man. Jesus said, "I want to. Be clean!" Immediately the leprosy went away from the man.
 
-**4** Then Jesus said to him, "Do not tell anyone about this. But go and show yourself to the priest. Give the gift that Moses commanded. This will show the people that you are healed."
+**4** Then Jesus said to him, "Do not tell anyone about this. But go and show yourself to the priest. Give the gift that Moses commanded. This will show the people that you are well."
 
 **5** Jesus went into Capernaum. A Roman army officer came to him and asked for help.
 
@@ -432,17 +432,17 @@
 
 **7** Jesus said to him, "I will come and heal him."
 
-**8** The officer answered, "Lord, I am not good enough for you to come into my house. Only say the word, and my servant will be healed.
+**8** The officer answered, "Lord, I am not good enough for you to come into my house. Only say the word, and my servant will become well.
 
 **9** I also am a man under the authority of other officers. I have soldiers under my authority. I tell one soldier, 'Go,' and he goes. I tell another soldier, 'Come,' and he comes. I tell my servant, 'Do this,' and he does it."
 
-**10** Jesus heard this and was surprised. He said to the people who followed him, "I tell you the truth, I did not find a person with such great faith in Israel.
+**10** Jesus heard this and was very surprised. He said to the people who followed him, "I tell you the truth, I did not find a person with such great faith in Israel.
 
 **11** I tell you, many people will come from the east and from the west. They will sit down to eat with Abraham, Isaac, and Jacob in the kingdom of heaven.
 
-**12** But God will throw out the people who should have the kingdom. He will throw them into the darkness outside. There people will cry and grind their teeth in pain."
+**12** But God will throw out the people who must have the kingdom. He will throw them into the darkness outside. There people will cry and grind their teeth in pain."
 
-**13** Then Jesus said to the officer, "Go. What you believed will occur for you." The servant was healed at that same time.
+**13** Then Jesus said to the officer, "Go. What you believed will occur for you." The servant became well at that same time.
 
 **14** Jesus went into the house of Peter. He saw the mother of Peter's wife in bed with a fever.
 
@@ -470,7 +470,7 @@
 
 **26** Jesus said to them, "Why are you afraid? Your faith is very small!" Then he got up and gave an order to the winds and the water. Then the lake became very calm.
 
-**27** The men were surprised. They said, "What type of man is this? Even the winds and the water obey him!"
+**27** The men were very surprised. They said, "What type of man is this? Even the winds and the water obey him!"
 
 **28** Jesus came to the other side of the lake, to the land of the Gadarenes. 2 men with demons in them came out of the burial caves and met him. They were very dangerous. Thus nobody could go along that road.
 
@@ -520,7 +520,7 @@
 
 **16** People do not repair an old coat with a piece of new cloth. The new piece will become smaller and pull away from the coat. Then the hole will become bigger.
 
-**17** Also, people do not put new wine into old leather bags. If they do, the bags will break. The wine will flow out, and the bags will be destroyed. People put new wine into new bags. Then both the wine and the bags stay in good condition."
+**17** Also, people do not put new wine into old leather bags. If they do, the bags will break. The wine will flow out, and the bags will become useless. People put new wine into new bags. Then both the wine and the bags stay in good condition."
 
 **18** While Jesus spoke these things, a leader of the synagogue came. He bowed down in front of Jesus and said, "My daughter died a short time ago. But come and put your hand on her, and she will live."
 
@@ -528,9 +528,9 @@
 
 **20** A woman had a problem with blood that flowed from her body for 12 years. She came behind Jesus and touched the edge of his coat.
 
-**21** She said to herself, "If I only touch his coat, I will be healed."
+**21** She said to herself, "If I only touch his coat, I will become well."
 
-**22** Jesus turned and saw her. He said, "Daughter, be brave. Your faith made you well." The woman was healed at that time.
+**22** Jesus turned and saw her. He said, "Daughter, be brave. Your faith made you well." The woman became well at that time.
 
 **23** Jesus came into the house of the leader. He saw the people who played music for the funeral. He also saw a crowd that made much noise.
 
@@ -546,19 +546,19 @@
 
 **29** Then Jesus touched their eyes. He said, "Let this occur for you because you have faith."
 
-**30** Then the men could see. Jesus gave them a strong warning. He said, "Make sure that nobody knows about this."
+**30** Then the men could see. Jesus spoke strongly to them. He said, "Make sure that nobody knows about this."
 
 **31** But the men went out and told people about Jesus in all that area.
 
 **32** As the 2 men went out, people brought to Jesus a man with a demon in him. The man could not speak.
 
-**33** Jesus threw out the demon, and then the man spoke. The crowds were surprised. They said, "We never saw a thing like this in Israel!"
+**33** Jesus threw out the demon, and then the man spoke. The crowds were very surprised. They said, "We never saw a thing like this in Israel!"
 
 **34** But the Pharisees said, "He throws out demons with the power of the ruler of the demons."
 
 **35** Jesus went to all the towns and villages. He taught in their synagogues and preached the good news of the kingdom. He healed every disease and every sickness.
 
-**36** Jesus saw the crowds, and he felt pity for them. They were tired and had no help. They were like sheep that have no shepherd.
+**36** Jesus saw the crowds, and he felt pity for them. They had no strength and had no help. They were like sheep that have no shepherd.
 
 **37** Then Jesus said to his disciples, "The harvest is large, but there are only a small number of workers.
 
@@ -568,7 +568,7 @@
 
 **1** Jesus called his 12 disciples to him. He gave them authority to throw out evil spirits. He also gave them authority to heal all types of disease and sickness.
 
-**2** These are the names of the 12 apostles: first, Simon, who has the name Peter, and his brother Andrew; James the son of Zebedee, and his brother John;
+**2** These are the names of the 12 apostles. First, there is Simon, who has the name Peter, and his brother Andrew. Then there is James the son of Zebedee, and his brother John.
 
 **3** Philip and Bartholomew; Thomas and Matthew the tax collector; James the son of Alphaeus, and Thaddaeus;
 
@@ -584,7 +584,7 @@
 
 **9** Do not take gold, silver, or copper money in your belts.
 
-**10** Do not take a bag for the journey, or extra clothes, or shoes, or a walking stick. A worker must get the food that he needs.
+**10** Do not take a bag for the journey, or extra clothes, or shoes, or a stick. A worker must get the food that he needs.
 
 **11** When you go into a town or a village, find a good person there who will accept you. Stay at his house until you go away from that place.
 
@@ -608,7 +608,7 @@
 
 **21** A brother will give his brother to the authorities to kill him. A father will do the same to his child. Children will fight against their parents and cause their deaths.
 
-**22** All people will hate you because you follow me. But the person who stays faithful until the end will be saved.
+**22** All people will hate you because you follow me. But God will save the person who stays faithful until the end.
 
 **23** When people hurt you in one town, go quickly to another town. I tell you the truth, the Son of Man will come before you go to all the towns of Israel.
 
@@ -616,7 +616,7 @@
 
 **25** It is sufficient for a student to become like his teacher, and for a servant to become like his master. People called the head of the house Beelzebul. Thus they will say much worse things about the people of his house.
 
-**26** Thus do not be afraid of them. All things that are hidden will become known. All secrets will become known.
+**26** Thus do not be afraid of them. People will know all the things that are now secret. All secrets will become known.
 
 **27** I tell you things in the dark, but you must tell them in the light. I speak quietly into your ear, but you must shout my words from the roofs of the houses.
 
@@ -630,7 +630,7 @@
 
 **32** If a person tells other people that he follows me, I will tell my Father in heaven that this person belongs to me.
 
-**33** But if a person tells other people that he does not know me, I will tell my Father in heaven that I do not know that person.
+**33** A person can tell other people that he does not know me. Then I will tell my Father in heaven that I do not know that person.
 
 **34** Do not think that I came to bring peace to the earth. I did not come to bring peace. I came to bring a sword.
 
@@ -648,11 +648,11 @@
 
 **41** A person who accepts a prophet because he is a prophet will get the reward of a prophet. A person who accepts a good man because he is good will get the reward of a good man.
 
-**42** A person may give a cup of cold water to one of these humble people because that person is my disciple. I tell you the truth, that person will surely get his reward."
+**42** Possibly a person gives a cup of cold water to one of these humble people because that person is my disciple. I tell you the truth, that person will surely get his reward."
 
 ## Chapter 11
 
-**1** Jesus stopped giving instructions to his 12 disciples. Then he went away from there to teach and preach in the towns of Galilee.
+**1** Jesus finished his instructions to his 12 disciples. Then he went away from there to teach and preach in the towns of Galilee.
 
 **2** John the Baptist was in prison. He heard about the things that the Christ did. Thus John sent 2 of his disciples to Jesus.
 
@@ -692,11 +692,11 @@
 
 **20** Then Jesus started to speak against the towns where he did most of his miracles. He spoke against them because the people did not repent.
 
-**21** "It will be very bad for you, Chorazin! It will be very bad for you, Bethsaida! I did miracles in you. If I did these miracles in Tyre and Sidon, those people would repent long ago. They would wear rough clothes and put ashes on their heads to show their sorrow.
+**21** "It will be very bad for you, Chorazin! It will be very bad for you, Bethsaida! I did miracles in you. I did not do these miracles in Tyre and Sidon. If I did them there, those people will quickly repent. They will wear rough clothes and put ashes on their heads to show their sorrow.
 
 **22** But I tell you, on the day of judgment, God will punish you more than Tyre and Sidon.
 
-**23** And you, Capernaum, do you think that God will lift you up to heaven? No, God will send you down to the place of the dead. I did miracles in you. If I did these miracles in Sodom, Sodom would still be there today.
+**23** And you, Capernaum, do you think that God will lift you up to heaven? No, God will send you down to the place of the dead. I did miracles in you. If I did these miracles in Sodom, Sodom will still be there today.
 
 **24** But I tell you, on the day of judgment, God will punish you more than the land of Sodom."
 
@@ -706,7 +706,7 @@
 
 **27** My Father gave all things to me. Only the Father knows the Son. Only the Son knows the Father. Also, the people to whom the Son chooses to show the Father know him.
 
-**28** Come to me, all you people who are tired and have heavy loads. I will give you rest.
+**28** Come to me, all you people who work hard and have heavy loads. I will give you rest.
 
 **29** Take my yoke on you and learn from me, because I am gentle and humble in heart. Then you will find rest for your souls.
 
@@ -726,7 +726,7 @@
 
 **6** I tell you, there is a person here who is greater than the temple.
 
-**7** The scriptures say, 'I want mercy and not sacrifice.' If you knew the meaning of these words, you would not say that innocent people are guilty.
+**7** The scriptures say, 'I want mercy and not sacrifice.' You do not know the meaning of these words. If you knew it, you will not say that innocent people are guilty.
 
 **8** The Son of Man is Lord of the Sabbath."
 
@@ -734,7 +734,7 @@
 
 **10** A man with a paralyzed hand was there. The Pharisees wanted a reason to accuse Jesus. Thus they asked him, "Does the law let people heal on the Sabbath?"
 
-**11** Jesus said to them, "If you have 1 sheep and it falls into a hole on the Sabbath, you will hold it and lift it out.
+**11** Jesus said to them, "Possibly you have 1 sheep and it falls into a hole on the Sabbath. You will hold it and lift it out.
 
 **12** A person is much more valuable than a sheep. Thus the law lets people do good things on the Sabbath."
 
@@ -762,7 +762,7 @@
 
 **24** The Pharisees heard this. They said, "This man throws out demons only with the power of Beelzebul, the ruler of the demons."
 
-**25** Jesus knew their thoughts. He said to them, "If a kingdom fights against itself, the kingdom will be destroyed. If a city or a family fights against itself, the city or family will not continue.
+**25** Jesus knew their thoughts. He said to them, "If a kingdom fights against itself, the kingdom will become a ruin. If a city or a family fights against itself, the city or family will not continue.
 
 **26** If Satan throws out Satan, then Satan fights against himself. Then his kingdom will not continue.
 
@@ -838,13 +838,13 @@
 
 **11** Jesus answered, "God lets you know the secrets of the kingdom of heaven. But he does not let them know.
 
-**12** A person who has some understanding will get more. He will have much. But a person who does not have understanding will lose even the little that he has.
+**12** God will give more to a person who has some. He will have much. But a person who does not have will lose even the little that he has.
 
 **13** Thus I speak to the people with parables. They look, but they do not see. They listen, but they do not hear or understand.
 
 **14** The words of the prophet Isaiah are true about them. Isaiah said, 'You will listen and listen, but you will not understand. You will look and look, but you will not see.
 
-**15** The hearts of these people became hard. Their ears do not hear well. They closed their eyes. If not, they could see with their eyes and hear with their ears. They could understand with their hearts and turn back to me. Then I would heal them.'
+**15** The hearts of these people became hard. Their ears do not hear well. They closed their eyes. If not, they can see with their eyes and hear with their ears. They can understand with their hearts and turn back to me. Then I will heal them.'
 
 **16** But God blesses your eyes, because they see. He blesses your ears, because they hear.
 
@@ -852,13 +852,13 @@
 
 **18** Thus listen to the meaning of the parable of the farmer.
 
-**19** Some people hear the message about the kingdom but do not understand it. Then the evil one comes and takes away what was planted in their hearts. This is the seed that fell along the path.
+**19** Some people hear the message about the kingdom but do not understand it. Then the evil one comes and takes away the seed that someone put in their hearts. This is the seed that fell along the path.
 
 **20** The seed that fell on the ground with rocks is a person who hears the message. Immediately he accepts it with joy.
 
-**21** But he does not have deep roots, and he stays faithful only for a short time. Trouble or suffering comes because of the message. Then he quickly stops his belief.
+**21** But he does not have deep roots, and he stays faithful only for a short time. Trouble or pain comes because of the message. Then he quickly stops his belief.
 
-**22** The seed that fell among the thorn bushes is a person who hears the message. But he is anxious about this life, and he wants to be rich. These things stop the message from growing. Thus the message does not make fruit in his life.
+**22** The seed that fell among the thorn bushes is a person who hears the message. But he is anxious about this life, and he wants to be rich. These things stop the message. Thus the message does not make fruit in his life.
 
 **23** The seed that fell on good soil is a person who hears the message and understands it. He makes fruit. Some people make 100 times more, some 60 times more, and some 30 times more."
 
@@ -902,7 +902,7 @@
 
 **43** Then the good people will shine like the sun in the kingdom of their Father. You have ears. Thus listen and understand!
 
-**44** The kingdom of heaven is like a valuable thing that was hidden in a field. A man found it and hid it again. He was very happy. He went and sold all that he had, and he bought that field.
+**44** The kingdom of heaven is like a valuable thing that someone hid in a field. A man found it and hid it again. He was very happy. He went and sold all that he had, and he bought that field.
 
 **45** Also, the kingdom of heaven is like a merchant who looked for good pearls.
 
@@ -918,9 +918,9 @@
 
 **51** Jesus asked them, "Do you understand all these things?" They said, "Yes, Lord."
 
-**52** Then Jesus said to them, "Thus every teacher of the law who becomes a disciple of the kingdom of heaven is like the owner of a house. He brings out new things and old things from his storeroom."
+**52** Then Jesus said to them, "Some teachers of the law become disciples of the kingdom of heaven. Each of them is like the owner of a house. He brings new things and old things out of his storeroom."
 
-**53** Jesus stopped telling these parables. Then he went away from there.
+**53** Jesus finished these parables. Then he went away from there.
 
 **54** He went to his own town. He taught the people in their synagogue, and they were very surprised. They said, "Where did this man get this wisdom and the power to do these miracles?
 
@@ -972,7 +972,7 @@
 
 **19** He told the crowd to sit down on the grass. He took the 5 loaves and the 2 fish. He looked up to heaven and thanked God. He broke the loaves and gave them to the disciples. The disciples gave the bread to the people.
 
-**20** All the people ate as much as they wanted. Then the disciples collected 12 baskets full of the pieces that were left.
+**20** All the people ate as much as they wanted. Then the disciples collected 12 baskets full of the pieces that remained.
 
 **21** About 5,000 men ate. Women and children also ate.
 
@@ -1050,7 +1050,7 @@
 
 **21** Jesus went away from there to the area of Tyre and Sidon.
 
-**22** A Canaanite woman from that area came to him. She shouted, "Lord, Son of David, show mercy to me! A demon is in my daughter and causes her very bad suffering."
+**22** A Canaanite woman from that area came to him. She shouted, "Lord, Son of David, show mercy to me! A demon is in my daughter and causes her very much pain."
 
 **23** But Jesus did not say a word to her. His disciples came to him and said, "Send her away. She continues to shout behind us."
 
@@ -1062,7 +1062,7 @@
 
 **27** The woman said, "Yes, Lord. But even the dogs eat the small pieces of food that fall from the table of their masters."
 
-**28** Then Jesus answered her, "Woman, your faith is great! What you want will occur." Her daughter was healed at that same time.
+**28** Then Jesus answered her, "Woman, your faith is great! What you want will occur." Her daughter became well at that same time.
 
 **29** Jesus went away from there and went along the Sea of Galilee. He went up on a mountain and sat down there.
 
@@ -1080,7 +1080,7 @@
 
 **36** He took the 7 loaves and the fish, and he thanked God. He broke them and gave them to his disciples. The disciples gave the food to the people.
 
-**37** All the people ate as much as they wanted. Then the disciples collected 7 baskets full of the pieces that were left.
+**37** All the people ate as much as they wanted. Then the disciples collected 7 baskets full of the pieces that remained.
 
 **38** 4,000 men ate. Women and children also ate.
 
@@ -1110,7 +1110,7 @@
 
 **11** Why do you not understand that I did not speak about bread? I told you to be careful of the yeast of the Pharisees and Sadducees."
 
-**12** Then the disciples understood. Jesus did not tell them to be careful of the yeast in bread. He told them to be careful of the teaching of the Pharisees and Sadducees.
+**12** Then the disciples understood. Jesus did not tell them to be careful of the yeast in bread. He told them to be careful of the false instructions of the Pharisees and Sadducees.
 
 **13** Jesus came to the area of Caesarea Philippi. He asked his disciples, "Who do people say that the Son of Man is?"
 
@@ -1118,13 +1118,13 @@
 
 **15** Jesus said to them, "But who do you say that I am?"
 
-**16** Simon Peter answered, "You are the Christ, the Son of the living God."
+**16** Simon Peter answered, "You are the Christ, the Son of God, who lives."
 
 **17** Jesus answered him, "God blesses you, Simon son of Jonah. No person showed this to you. My Father in heaven showed it to you.
 
 **18** I tell you, you are Peter, which means 'rock.' On this rock I will build my church. The power of death will not win against my church.
 
-**19** I will give you the keys of the kingdom of heaven. The things that you forbid on earth will be forbidden in heaven. The things that you permit on earth will be permitted in heaven."
+**19** I will give you the keys of the kingdom of heaven. The things that you forbid on earth, God will forbid in heaven. The things that you permit on earth, God will permit in heaven."
 
 **20** Then Jesus gave a strong order to his disciples. He told them not to tell anyone that he was the Christ.
 
@@ -1138,7 +1138,7 @@
 
 **25** A person who wants to save his life will lose it. But a person who gives up his life for me will find it.
 
-**26** A person may get all the world but lose his soul. Then he gets nothing of value. A person can give nothing to buy back his soul.
+**26** Possibly a person gets all the world but loses his soul. Then he gets nothing of value. A person can give nothing to buy back his soul.
 
 **27** The Son of Man will come with his angels in the glory of his Father. Then he will reward each person for what that person did.
 
@@ -1180,13 +1180,13 @@
 
 **17** Jesus answered, "You people of this time have no faith and are very bad! How long must I stay with you? How long must I be patient with you? Bring the boy here to me."
 
-**18** Jesus gave a strong order to the demon, and the demon came out of the boy. The boy was healed at that time.
+**18** Jesus gave a strong order to the demon, and the demon came out of the boy. At that time the boy became well.
 
 **19** Then the disciples came to Jesus when they were alone with him. They asked, "Why could we not throw out the demon?"
 
 **20** Jesus said to them, "Because your faith is small. I tell you the truth, your faith can be as small as a mustard seed. Then you can tell this mountain, 'Move from here to there,' and it will move. You will be able to do all things.
 
-**21** But this type of demon comes out only with prayer and fasting."
+**21** But this type of demon comes out only when people pray and do not eat food."
 
 **22** The disciples came together in Galilee. Jesus said to them, "A person will give the Son of Man to the authority of people.
 
@@ -1198,7 +1198,7 @@
 
 **26** Peter said, "From other people." Jesus said to him, "Then the children do not need to pay.
 
-**27** But we do not want to make these men angry. Thus go to the lake and throw out a fishing line. Take the first fish that you catch. Open its mouth, and you will find a coin. Take that coin and give it to them for me and for you."
+**27** But we do not want to make these men angry. Thus go to the lake and throw out a line with a hook. Take the first fish that you catch. Open its mouth, and you will find a coin. Take that coin and give it to them for me and for you."
 
 ## Chapter 18
 
@@ -1212,7 +1212,7 @@
 
 **5** A person who accepts a child like this because he follows me accepts me.
 
-**6** But a person may cause one of these little ones who believe in me to sin. It is better for that person to have a large stone tied around his neck and to drown in the deep sea.
+**6** But if a person causes one of these little ones who believe in me to sin, a bad thing will occur to him. It is better for that person to have a large stone around his neck and to drown in the deep sea.
 
 **7** It will be very bad for the world because of the things that cause people to sin. Such things must come. But it will be very bad for the person who causes them!
 
@@ -1222,13 +1222,13 @@
 
 **10** Be careful that you do not think that one of these little ones is not important. I tell you, their angels in heaven always see the face of my Father in heaven.
 
-**11** The Son of Man came to save the people who are lost.
+**11** The Son of Man came to look for and save the people who went away from God.
 
-**12** What do you think? A man has 100 sheep, and 1 sheep goes away and is lost. He will leave the 99 sheep on the hills. He will go and look for the lost sheep.
+**12** What do you think? A man has 100 sheep, and 1 sheep goes away. He will leave the 99 sheep on the hills. He will go and look for the sheep that went away.
 
 **13** I tell you the truth, if he finds that sheep, he will be very happy. He will be happier about that 1 sheep than about the 99 sheep that did not go away.
 
-**14** In the same way, your Father in heaven does not want one of these little ones to be lost.
+**14** In the same way, your Father in heaven does not want one of these little ones to die.
 
 **15** If your brother sins against you, go and speak to him alone. Tell him his fault. If he listens to you, you got your brother back.
 
@@ -1236,13 +1236,13 @@
 
 **17** If he does not listen to them, tell the church. If he does not listen to the church, treat him like a Gentile or a tax collector.
 
-**18** I tell you the truth, the things that you forbid on earth will be forbidden in heaven. The things that you permit on earth will be permitted in heaven.
+**18** I tell you the truth, the things that you forbid on earth, God will forbid in heaven. The things that you permit on earth, God will permit in heaven.
 
-**19** Also, I tell you, 2 of you on earth may agree about a thing that you ask for. Then my Father in heaven will do it for you.
+**19** Also, I tell you this. If 2 of you on earth agree about a thing that you ask for, my Father in heaven will do it for you.
 
 **20** Where 2 or 3 people come together because they follow me, I am there with them."
 
-**21** Then Peter came to Jesus and asked, "Lord, my brother may sin against me many times. How many times must I forgive him? Must I forgive him 7 times?"
+**21** Then Peter came to Jesus and asked, "Lord, if my brother sins against me many times, how many times must I forgive him? Must I forgive him 7 times?"
 
 **22** Jesus said to him, "I do not tell you 7 times. I tell you 77 times.
 
@@ -1250,7 +1250,7 @@
 
 **24** The king started to examine the accounts. His men brought to him a servant who owed him 10,000 talents of silver.
 
-**25** The servant did not have the money to pay. Thus his master ordered his men to sell the servant, his wife, his children, and all that he had. The money from the sale would pay the debt.
+**25** The servant did not have the money to pay. Thus his master ordered his men to sell the servant, his wife, his children, and all that he had. He wanted the money from the sale to pay the debt.
 
 **26** The servant went down on his knees in front of the king. He said, 'Master, be patient with me, and I will pay you all the money.'
 
@@ -1266,7 +1266,7 @@
 
 **32** Then the master called the first servant. He said, 'You evil servant! You asked me for help, and I canceled all of your debt.
 
-**33** You should also show mercy to the other servant, as I showed mercy to you.'
+**33** You also had to show mercy to the other servant, as I showed mercy to you.'
 
 **34** The master was very angry. He gave the servant to the guards to punish him until he paid all that he owed.
 
@@ -1274,7 +1274,7 @@
 
 ## Chapter 19
 
-**1** Jesus stopped speaking these words. Then he went away from Galilee. He went to the area of Judea on the other side of the Jordan River.
+**1** Jesus finished these words. Then he went away from Galilee. He went to the area of Judea on the other side of the Jordan River.
 
 **2** Large crowds followed him, and he healed the sick people there.
 
@@ -1290,13 +1290,13 @@
 
 **8** Jesus said to them, "Moses let you divorce your wives because your hearts were hard. But at the start it was not like this.
 
-**9** I tell you, a man may divorce his wife for a reason other than sexual sin and marry another woman. That man commits adultery. Also, a man who marries a divorced woman commits adultery."
+**9** I tell you, if a man divorces his wife for a reason other than sexual sin and marries another woman, that man commits adultery. Also, a man who marries a divorced woman commits adultery."
 
 **10** The disciples said to him, "If this is the condition between a man and his wife, it is better not to marry."
 
-**11** Jesus said to them, "Not all people can accept this teaching. Only the people to whom God gives this ability can accept it.
+**11** Jesus said to them, "Not all people can accept these words. Only the people to whom God gives this ability can accept them.
 
-**12** Some men cannot marry because they were born that way. Some men cannot marry because other people made them that way. Some men choose not to marry because of the kingdom of heaven. The person who can accept this teaching must accept it."
+**12** Some men cannot marry because they had that condition from their birth. Some men cannot marry because other people made them that way. Some men choose not to marry because of the kingdom of heaven. The person who can accept these words must accept them."
 
 **13** Then people brought little children to Jesus. They wanted him to put his hands on the children and pray for them. But the disciples spoke strongly against the people.
 
@@ -1318,11 +1318,11 @@
 
 **22** The young man heard this, and he went away sad, because he was very rich.
 
-**23** Then Jesus said to his disciples, "I tell you the truth, it is very difficult for a rich person to go into the kingdom of heaven.
+**23** Then Jesus said to his disciples, "I tell you the truth. It is very difficult for a rich person to go into the kingdom of heaven.
 
-**24** Again I tell you, it is easier for a camel to go through the hole in a needle than for a rich person to go into the kingdom of God."
+**24** Again I tell you this. A camel can go through the hole in a needle more easily than a rich person can go into the kingdom of God."
 
-**25** The disciples heard this and were very surprised. They asked, "Then who can be saved?"
+**25** The disciples heard this, and they were very amazed. They asked, "Then who can God save?"
 
 **26** Jesus looked at them and said, "People cannot do this. But God can do all things."
 
@@ -1354,7 +1354,7 @@
 
 **9** The workers who started at about 5 o'clock came. Each man got 1 silver coin.
 
-**10** Then the first workers came. They thought that they would get more. But each of them also got 1 silver coin.
+**10** Then the first workers came. They thought that they will get more. But each of them also got 1 silver coin.
 
 **11** They got their money, and they complained against the owner.
 
@@ -1378,7 +1378,7 @@
 
 **21** Jesus said to her, "What do you want?" She said to him, "Promise me that my 2 sons will sit with you in your kingdom. Let one sit at your right side and the other at your left side."
 
-**22** Jesus answered, "You do not know what you ask. Can you drink from the cup of suffering that I will drink?" They said to him, "We can."
+**22** Jesus answered, "You do not know what you ask. Can you drink from the cup of pain that I will drink?" They said to him, "We can."
 
 **23** Jesus said to them, "You will drink from my cup. But I cannot choose who will sit at my right side or my left side. My Father made those places ready for the people that he chose."
 
@@ -1430,7 +1430,7 @@
 
 **12** Jesus went into the temple area. He threw out all the people who sold and bought things there. He turned over the tables of the men who exchanged money. He also turned over the chairs of the men who sold doves.
 
-**13** He said to them, "It is written, 'People will call my house a house of prayer.' But you made it a place where thieves hide."
+**13** He said to them, "The scripture says, 'People will call my house a house of prayer.' But you made it a place where thieves hide."
 
 **14** Blind people and people who could not walk came to Jesus in the temple. He healed them.
 
@@ -1444,7 +1444,7 @@
 
 **19** He saw a fig tree by the road and went to it. But he found only leaves on it. He said to the tree, "You will never have fruit again!" Immediately the fig tree became dry and died.
 
-**20** The disciples saw this and were surprised. They asked, "How did the fig tree die so quickly?"
+**20** The disciples saw this and were full of wonder. They asked, "How did the fig tree die so quickly?"
 
 **21** Jesus answered, "I tell you the truth, you must have faith and not doubt. Then you can do what I did to the fig tree. You can also tell this mountain, 'Go and fall into the sea,' and it will occur.
 
@@ -1542,11 +1542,11 @@
 
 **21** They said to him, "The picture and name of Caesar." Then Jesus said to them, "Thus give to Caesar the things that belong to Caesar. Give to God the things that belong to God."
 
-**22** They heard this and were surprised. They went away from him.
+**22** They heard this and were full of wonder. They went away from him.
 
 **23** On that same day, some Sadducees came to Jesus. The Sadducees say that dead people do not come back to life. They asked him a question.
 
-**24** They said, "Teacher, Moses said this: 'A man may die and have no children. Then his brother must marry the wife and have children for the dead man.'
+**24** They said, "Teacher, Moses said this: 'A man dies and has no children. Then his brother must marry the wife and have children for the dead man.'
 
 **25** There were 7 brothers among us. The first brother married and then died. He had no children. Thus he left his wife to his brother.
 
@@ -1562,11 +1562,11 @@
 
 **31** Did you not read what God told you about the dead people who come back to life? God said,
 
-**32** 'I am the God of Abraham, the God of Isaac, and the God of Jacob.' God is not the God of dead people. He is the God of living people."
+**32** 'I am the God of Abraham, the God of Isaac, and the God of Jacob.' God is not the God of dead people. He is the God of people who live."
 
-**33** The crowd heard this, and they were very surprised at his teaching.
+**33** The crowd heard this, and they were full of wonder at the things that he taught.
 
-**34** The Pharisees heard that Jesus stopped the Sadducees from arguing with him. Thus the Pharisees came together.
+**34** The Pharisees heard that Jesus caused the Sadducees to become silent. Thus the Pharisees came together.
 
 **35** One of them was an expert in the law. He tested Jesus with a question.
 
@@ -1652,7 +1652,7 @@
 
 **29** It will be very bad for you, teachers of the law and Pharisees! You are hypocrites! You build tombs for the prophets. You make beautiful the graves of good people.
 
-**30** You say, 'If we lived at the time of our ancestors, we would not help them to kill the prophets.'
+**30** You say, 'If we lived at the time of our ancestors, we will not help them to kill the prophets.'
 
 **31** Thus you show that you are the descendants of the people who killed the prophets.
 
@@ -1668,7 +1668,7 @@
 
 **37** Jerusalem, Jerusalem! You kill the prophets. You throw stones at the people whom God sends to you. Many times I wanted to bring your children together, as a chicken brings her baby chickens under her wings. But you did not let me.
 
-**38** Look, your house will be left empty.
+**38** Look, your house will become empty.
 
 **39** I tell you, you will not see me again until you say, 'God blesses the man who comes in the name of the Lord.'"
 
@@ -1698,7 +1698,7 @@
 
 **12** There will be more and more evil. Thus the love of many people will become cold.
 
-**13** But the person who stays faithful until the end will be saved.
+**13** But God will save the person who stays faithful until the end.
 
 **14** People will preach this good news of the kingdom in all the world. All nations will hear it. Then the end will come.
 
@@ -1716,9 +1716,9 @@
 
 **21** At that time there will be very great trouble. Such trouble did not occur since the start of the world until now. Such trouble will never occur again.
 
-**22** If God did not make that time shorter, no person would live. But God will make that time shorter for the people that he chose.
+**22** If God does not make that time shorter, no person will live. But God will make that time shorter for the people that he chose.
 
-**23** At that time a person may say to you, 'Look, the Christ is here!' or 'He is there!' Do not believe him.
+**23** At that time, if a person says to you, 'Look, the Christ is here!' or 'He is there!', do not believe him.
 
 **24** False Christs and false prophets will come. They will do great signs and miracles. If possible, they will deceive even the people that God chose.
 
@@ -1726,7 +1726,7 @@
 
 **26** Thus if people say to you, 'Look, the Christ is in the desert,' do not go out there. If they say, 'Look, he is in the inner rooms,' do not believe them.
 
-**27** Lightning comes from the east and shines to the west. The coming of the Son of Man will be the same.
+**27** Lightning comes from the east and shines to the west. When the Son of Man comes, it will be the same.
 
 **28** Vultures come together at the place where there is a dead body.
 
@@ -1746,11 +1746,11 @@
 
 **36** No person knows the day or the hour when these things will occur. Even the angels in heaven do not know. Only my Father knows.
 
-**37** The coming of the Son of Man will be like the time of Noah.
+**37** When the Son of Man comes, it will be like the time of Noah.
 
 **38** Before the flood, people ate and drank. They married and gave their daughters in marriage. They did these things until the day when Noah went into the ship (ark).
 
-**39** They did not know what would occur until the flood came and killed them all. The coming of the Son of Man will be the same.
+**39** They did not know what will occur until the flood came and killed them all. When the Son of Man comes, it will be the same.
 
 **40** At that time 2 men will be in the field. God will take one man, and he will leave the other man.
 
@@ -1758,7 +1758,7 @@
 
 **42** Thus be ready and watch, because you do not know the day when your Lord will come.
 
-**43** You know this: if the owner of a house knew the time of night when a thief would come, he would stay awake. He would not let the thief break into his house.
+**43** You know this: if the owner of a house knows the time of night when a thief will come, he will stay awake. He will not let the thief break into his house.
 
 **44** Thus you also must be ready. The Son of Man will come at a time when you do not think that he will come.
 
@@ -1768,7 +1768,7 @@
 
 **47** I tell you the truth, the master will give him the authority over all that the master has.
 
-**48** But an evil servant may say to himself, 'My master will not come back soon.'
+**48** But possibly an evil servant says to himself, 'My master will not come back soon.'
 
 **49** Then he will start to hit the other servants. He will eat and drink with people who are drunk.
 
@@ -1778,7 +1778,7 @@
 
 ## Chapter 25
 
-**1** "At that time the kingdom of heaven will be like 10 young women who took their lamps. They went out to meet the man who would marry (the bridegroom).
+**1** "At that time the kingdom of heaven will be like 10 young women who took their lamps. They went out to meet the man who planned to marry (the bridegroom).
 
 **2** 5 of the young women were foolish, and 5 were wise.
 
@@ -1830,7 +1830,7 @@
 
 **26** His master answered him, 'You are an evil and lazy servant! You knew that I take crops where I did not plant. You knew that I collect grain where I did not put seed.
 
-**27** Thus you should put my money in the bank. Then, when I came back, I would get my money back with interest.
+**27** Thus you had to put my money in the bank. Then, when I came back, I was able to get my money back with interest.
 
 **28** Take the bag of money from him. Give it to the servant who has 10 bags.
 
@@ -1918,7 +1918,7 @@
 
 **23** Jesus said, "The man who put his hand into the dish with me will give me to my enemies.
 
-**24** The Son of Man will die as the scriptures tell about him. But there will be much trouble for the man who gives the Son of Man to his enemies. It was better for that man if he was not born."
+**24** The Son of Man will die as the scriptures tell about him. But there will be much trouble for the man who gives the Son of Man to his enemies. It was better for that man if his mother did not give birth to him."
 
 **25** Then Judas, the man who gave Jesus to his enemies, asked, "Teacher, am I the man?" Jesus said to him, "You said it."
 
@@ -1948,7 +1948,7 @@
 
 **38** Then he said to them, "My soul is very sad. My sadness is so strong that I feel near to death. Stay here and stay awake with me."
 
-**39** Jesus went a short distance farther. He put his face on the ground and prayed. He said, "My Father, if it is possible, take this cup of suffering away from me. But do not do what I want. Do what you want."
+**39** Jesus went a short distance farther. He put his face on the ground and prayed. He said, "My Father, if it is possible, take this cup of pain away from me. But do not do what I want. Do what you want."
 
 **40** Then he came back to the disciples and found them asleep. He said to Peter, "Could you not stay awake with me for 1 hour?
 
@@ -1996,7 +1996,7 @@
 
 **62** The high priest stood up. He said to Jesus, "Will you not answer? What is this evidence that these men give against you?"
 
-**63** But Jesus did not speak. The high priest said to him, "I order you by the living God to tell us the truth. Are you the Christ, the Son of God?"
+**63** But Jesus did not speak. The high priest said to him, "I order you by the God who lives to tell us the truth. Are you the Christ, the Son of God?"
 
 **64** Jesus said to him, "You said it. But I tell all of you this: In the future, you will see the Son of Man. He will sit at the right side of God, the Powerful One. And he will come on the clouds of heaven."
 
@@ -2056,7 +2056,7 @@
 
 **16** At that time there was a well-known prisoner. His name was Barabbas.
 
-**17** The crowd came together. Pilate asked them, "Which man do you want me to release to you? Barabbas, or Jesus who is called Christ?"
+**17** The crowd came together. Pilate asked them, "Which man do you want me to release to you? Barabbas, or Jesus whom people call Christ?"
 
 **18** Pilate knew that the leaders gave Jesus to him because they were jealous.
 
@@ -2066,7 +2066,7 @@
 
 **21** The governor asked them, "Which of the 2 men do you want me to release to you?" They said, "Barabbas."
 
-**22** Pilate said to them, "Then what must I do with Jesus who is called Christ?" They all said, "Crucify him!"
+**22** Pilate said to them, "Then what must I do with Jesus whom people call Christ?" They all said, "Crucify him!"
 
 **23** The governor asked, "Why? What wrong thing did he do?" But they shouted louder, "Crucify him!"
 
@@ -2166,7 +2166,7 @@
 
 **4** The guards were so afraid of him that they shook. They became like dead men.
 
-**5** The angel said to the women, "Do not be afraid. I know that you look for Jesus, who was crucified.
+**5** The angel said to the women, "Do not be afraid. I know that you look for Jesus, whom the soldiers crucified.
 
 **6** He is not here. He came back to life, as he said. Come and see the place where the Lord was.
 

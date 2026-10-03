@@ -42,7 +42,7 @@
 
 **20** You did not believe my words. Thus you will not be able to speak until the day that these things happen. My words will come true at the correct time."
 
-**21** The people waited for Zechariah. They were surprised that he stayed in the temple for a long time.
+**21** The people waited for Zechariah. They were full of wonder that he stayed in the temple for a long time.
 
 **22** Then he came out, but he could not speak to them. They knew that he saw a vision in the temple. He made signs to them with his hands, but he could not speak.
 
@@ -54,13 +54,13 @@
 
 **26** In the sixth month of the pregnancy of Elizabeth, God sent the angel Gabriel to a town in Galilee with the name Nazareth.
 
-**27** God sent the angel to a virgin. She was engaged to a man with the name Joseph, from the family of David. The name of the virgin was Mary.
+**27** God sent the angel to a virgin. She had a promise to marry a man with the name Joseph, from the family of David. The name of the virgin was Mary.
 
 **28** The angel came to her and said, "Greetings! God is very kind to you. The Lord is with you."
 
-**29** Mary was very upset because of his words. She thought, "What does this greeting mean?"
+**29** Mary was very upset because of his words. She thought, "What do these words of hello mean?"
 
-**30** The angel said to her, "Do not be afraid, Mary. God is pleased with you.
+**30** The angel said to her, "Do not be afraid, Mary. God is happy with you.
 
 **31** You will become pregnant and give birth to a son. You must give him the name Jesus.
 
@@ -82,13 +82,13 @@
 
 **40** She went into the house of Zechariah and greeted Elizabeth.
 
-**41** Elizabeth heard the greeting of Mary. Then the baby moved suddenly inside Elizabeth. The Holy Spirit filled Elizabeth.
+**41** Elizabeth heard Mary say hello. Then the baby moved suddenly inside Elizabeth. The Holy Spirit filled Elizabeth.
 
 **42** She spoke with a loud voice. She said, "God blesses you more than all other women. And God blesses the child that you will have.
 
 **43** Why does the mother of my Lord come to me? I am not worthy of this honor.
 
-**44** When I heard your greeting, the baby inside me moved with joy.
+**44** When I heard you say hello, the baby inside me moved with joy.
 
 **45** You believed that the Lord will do the things that he told you. Thus God blesses you."
 
@@ -126,7 +126,7 @@
 
 **62** Then they made signs to his father. They asked him what name he wanted for the child.
 
-**63** Zechariah asked for a writing tablet. He wrote, "His name is John." All the people were surprised.
+**63** Zechariah asked for a tablet to write on. He wrote, "His name is John." All the people were full of wonder.
 
 **64** Immediately, Zechariah could speak again. He spoke and praised God.
 
@@ -172,7 +172,7 @@
 
 **4** Joseph also went from the town of Nazareth in Galilee to Judea. He went to Bethlehem, the town of David, because he was from the family of David.
 
-**5** He went to register with Mary. Mary was engaged to him, and she was pregnant.
+**5** He went to register with Mary. Mary had a promise to marry him, and she was pregnant.
 
 **6** While they were in Bethlehem, the time came for Mary to give birth.
 
@@ -184,13 +184,13 @@
 
 **10** The angel said to them, "Do not be afraid. I bring you good news. This news will give great joy to all people.
 
-**11** Today, in the town of David, a Savior was born for you. He is Christ the Lord.
+**11** Today, in the town of David, a Savior came into the world for you. He is Christ the Lord.
 
 **12** This will be a sign for you. You will find a baby in strips of cloth. He will be in a feed box for animals."
 
 **13** Suddenly, a large army of angels from heaven came with the angel. They praised God and said,
 
-**14** "Glory to God in the highest heaven. On earth, let there be peace among the people whom God is pleased with."
+**14** "Glory to God in the highest heaven. On earth, let there be peace among the people who make God happy."
 
 **15** The angels went away from the shepherds back into heaven. Then the shepherds said to each other, "We must go to Bethlehem now. We will see this thing that happened. The Lord told us about it."
 
@@ -198,7 +198,7 @@
 
 **17** After the shepherds saw the baby, they told other people the message that the angel told them about this child.
 
-**18** All the people who heard the shepherds were surprised at the things that the shepherds told them.
+**18** All the people who heard the shepherds were full of wonder at the things that the shepherds told them.
 
 **19** But Mary remembered all these things. She thought about them carefully.
 
@@ -228,7 +228,7 @@
 
 **32** He is a light that will show your truth to the Gentiles. He will bring glory to your people Israel."
 
-**33** The father and mother of Jesus were surprised at the things that Simeon said about him.
+**33** The father and mother of Jesus were full of wonder at the things that Simeon said about him.
 
 **34** Simeon blessed them. He said to Mary, the mother of Jesus, "God chose this child to cause many people in Israel to fall and to rise. He will be a sign from God, but many people will speak against him.
 
@@ -256,7 +256,7 @@
 
 **46** After 3 days, they found him in the temple. He sat among the teachers. He listened to them and asked them questions.
 
-**47** All the people who heard him were surprised at his understanding and his answers.
+**47** All the people who heard him were full of wonder at his knowledge and his answers.
 
 **48** His parents saw him and were very surprised. His mother said to him, "Son, why did you do this to us? Your father and I were very worried. We looked for you everywhere."
 
@@ -274,7 +274,7 @@
 
 **2** Annas and Caiaphas were the high priests. At that time, the word of God came to John, the son of Zechariah, in the desert.
 
-**3** John went into all the area around the Jordan River. He told the people, "Change your hearts and lives, and be baptized. Then God will forgive your sins."
+**3** John went into all the area around the Jordan River. He told the people, "Change your hearts and lives, and receive baptism. Then God will forgive your sins."
 
 **4** The prophet Isaiah wrote about John in his book: "A man shouts in the desert. He says, 'Prepare the way for the Lord. Make his roads straight.
 
@@ -282,7 +282,7 @@
 
 **6** And all people will see how God saves.'"
 
-**7** Many people came to John to be baptized. John said to them, "You are like a family of snakes! Who told you to run away from the anger of God that will come?
+**7** Many people came to John to receive baptism. John said to them, "You are like a family of snakes! Who told you to run away from the anger of God that will come?
 
 **8** Show by your actions that you changed your hearts. Do not say to yourselves, 'Abraham is our father.' I tell you, God can make children for Abraham from these stones.
 
@@ -292,17 +292,17 @@
 
 **11** John answered them, "If a man has 2 shirts, he must give 1 shirt to a man who has none. If a man has food, he must also share it."
 
-**12** Tax collectors also came to be baptized. They said to John, "Teacher, what must we do?"
+**12** Tax collectors also came to receive baptism. They said to John, "Teacher, what must we do?"
 
 **13** John said to them, "Do not take more money than the correct amount."
 
-**14** Some soldiers also asked John, "And what must we do?" John said to them, "Do not take money from people by force. Do not accuse people falsely. Be satisfied with your pay."
+**14** Some soldiers also asked John, "And what must we do?" John said to them, "Do not take money from people by force. Do not accuse people falsely. Be happy with your pay."
 
 **15** The people waited and hoped. They all asked themselves if John was the Christ.
 
 **16** John answered all of them, "I baptize you with water. But a man who is more powerful than I will come. I am not good enough to untie his sandals. He will baptize you with the Holy Spirit and with fire.
 
-**17** He holds a tool in his hand to clean the grain. He will clean his threshing floor completely. He will put the wheat into his barn. But he will burn the useless parts in a fire that never stops."
+**17** He holds a tool in his hand to clean the grain. He will clean the floor where he separates the grain completely. He will put the wheat into his barn. But he will burn the useless parts in a fire that never stops."
 
 **18** John said many other things to encourage the people. He told them the good news.
 
@@ -390,9 +390,9 @@
 
 **21** He started to speak to them. He said, "Today, as you heard, these words in the scripture came true."
 
-**22** All the people spoke well of Jesus. They were surprised at the kind words that he said. They asked, "Is this man not the son of Joseph?"
+**22** All the people spoke well of Jesus. They were full of wonder at the kind words that he said. They asked, "Is this man not the son of Joseph?"
 
-**23** Jesus said to them, "I am sure that you will tell me this saying: 'Doctor, heal yourself.' You will say, 'We heard about the things that you did in Capernaum. Do them here in your own town also.'"
+**23** Jesus said to them, "I am sure that you will tell me this proverb: 'Doctor, heal yourself.' You will say, 'We heard about the things that you did in Capernaum. Do them here in your own town also.'"
 
 **24** He said, "I tell you the truth. People do not accept a prophet in his own town.
 
@@ -410,7 +410,7 @@
 
 **31** Then Jesus went down to Capernaum, a town in Galilee. He taught the people on the Sabbath day.
 
-**32** The people were surprised at his teaching, because he spoke with authority.
+**32** The people were full of wonder at the things that he taught, because he spoke with authority.
 
 **33** A man in the synagogue had an unclean spirit, a demon, in him. The man shouted with a loud voice.
 
@@ -418,7 +418,7 @@
 
 **35** Jesus spoke strongly to the demon. He said, "Be quiet! Come out of the man!" The demon threw the man down in front of the people. Then the demon came out of him. The demon did not hurt the man.
 
-**36** All the people were very surprised. They said to each other, "What is this teaching? He gives commands to unclean spirits with authority and power, and they come out!"
+**36** All the people were very surprised. They said to each other, "What are these words? He gives commands to unclean spirits with authority and power, and they come out!"
 
 **37** The news about Jesus went into all the places in that area.
 
@@ -444,7 +444,7 @@
 
 **3** Jesus got into one of the boats. The boat was the boat of Simon. Jesus asked Simon to move the boat a short distance away from the land. Then Jesus sat down and taught the people from the boat.
 
-**4** Jesus stopped speaking. Then he said to Simon, "Take the boat out into the deep water. Put your nets down into the water to catch fish."
+**4** Jesus stopped his talk. Then he said to Simon, "Take the boat out into the deep water. Put your nets down into the water to catch fish."
 
 **5** Simon answered, "Master, we worked hard all night and caught nothing. But because you tell me, I will put down the nets."
 
@@ -464,9 +464,9 @@
 
 **13** Jesus put out his hand and touched the man. He said, "I want to. Be clean!" Immediately, the leprosy went away from the man.
 
-**14** Jesus told him, "Do not tell anyone. But go and show yourself to the priest. Give the offering for your cleansing, as Moses commanded. This will show the people that you are healed."
+**14** Jesus told him, "Do not tell anyone. But go and show yourself to the priest. Give the offering for people who become clean, as Moses commanded. This will show the people that you are well now."
 
-**15** But the news about Jesus went out more and more. Large crowds came to hear him and to be healed of their diseases.
+**15** But the news about Jesus went out more and more. Large crowds came to hear him. They also came so that he will heal their diseases.
 
 **16** But Jesus often went away to places where no people lived. There he prayed.
 
@@ -476,13 +476,13 @@
 
 **19** But they could not find a way in because of the crowd. Thus they went up on the roof. They removed some tiles and let the man down on his mat. They put him in the middle of the crowd, in front of Jesus.
 
-**20** Jesus saw their faith. He said, "Man, your sins are forgiven."
+**20** Jesus saw their faith. He said, "Man, I forgive your sins."
 
 **21** The teachers of the law and the Pharisees started to think, "Who is this man? He speaks against God! Only God can forgive sins."
 
 **22** Jesus knew their thoughts. He answered them, "Why do you think these things in your hearts?
 
-**23** Which is easier to say: 'Your sins are forgiven,' or 'Get up and walk'?
+**23** Which is easier to say: 'I forgive your sins,' or 'Get up and walk'?
 
 **24** But I will show you that the Son of Man has authority on earth to forgive sins." Then he spoke to the paralyzed man. He said, "I tell you, get up. Take your mat and go home."
 
@@ -508,9 +508,9 @@
 
 **35** But a time will come when people will take the bridegroom away from them. Then they will fast."
 
-**36** Jesus also told them a parable (a story with a lesson): "No one cuts a piece of cloth from a new coat to repair an old coat. If he does, he tears the new coat. Also, the new piece will not match the old coat.
+**36** Jesus also told them a parable (a story with a lesson). He said, "No one cuts a piece of cloth from a new coat to repair an old coat. If he does, he tears the new coat. Also, the new piece will not match the old coat.
 
-**37** No one puts new wine into old wineskins. If he does, the new wine will break the skins. The wine will flow out, and the wineskins will be destroyed.
+**37** No one puts new wine into old wineskins. If he does, the new wine will break the skins. The wine will flow out, and the wineskins will become useless.
 
 **38** You must put new wine into new wineskins. Then both stay good.
 
@@ -550,7 +550,7 @@
 
 **16** He chose Judas the son of James, and Judas Iscariot. Judas Iscariot later betrayed Jesus.
 
-**17** Jesus came down from the mountain with the apostles. He stood on a flat area. A large group of his disciples was there. A very large crowd of people was also there. They came from all of Judea, from Jerusalem, and from the coast near Tyre and Sidon. They came to hear Jesus and to be healed of their diseases.
+**17** Jesus came down from the mountain with the apostles. He stood on a flat area. A large group of his disciples was there. A very large crowd of people was also there. They came from all of Judea, from Jerusalem, and from the coast near Tyre and Sidon. They came to hear Jesus and to become well from their diseases.
 
 **18** Jesus also healed the people whom unclean spirits caused to suffer.
 
@@ -574,7 +574,7 @@
 
 **28** Bless the people who curse you. Pray for the people who treat you badly.
 
-**29** If a person hits you on one side of the face, let him also hit the other side. If a person takes your coat, do not stop him from taking your shirt also.
+**29** If a person hits you on one side of the face, let him also hit the other side. If a person takes your coat, let him also take your shirt.
 
 **30** Give to each person who asks you for something. If a person takes your things, do not ask for them back.
 
@@ -630,11 +630,11 @@
 
 **6** Thus Jesus went with them. He was near the house when the centurion sent some friends to him. The friends said, "Lord, do not trouble yourself. I am not worthy for you to come into my house.
 
-**7** Thus I did not think that I was worthy to come to you. But only say a word, and my servant will be healed.
+**7** Thus I did not think that I was worthy to come to you. But only say a word, and my servant will become well.
 
 **8** I also have officers above me, and I have soldiers under me. I tell one soldier, 'Go,' and he goes. I tell another soldier, 'Come,' and he comes. I tell my servant, 'Do this,' and he does it."
 
-**9** Jesus heard these things and was surprised at the centurion. He turned to the crowd that followed him. He said, "I tell you, I did not find such great faith even in Israel."
+**9** Jesus heard these things and felt wonder about the centurion. He turned to the crowd that followed him. He said, "I tell you, I did not find such great faith even in Israel."
 
 **10** The friends went back to the house. They found that the servant was healthy.
 
@@ -690,7 +690,7 @@
 
 **36** One of the Pharisees asked Jesus to eat with him. Jesus went into the house of the Pharisee and sat down at the table.
 
-**37** A sinful woman lived in that town. She learned that Jesus ate at the house of the Pharisee. She brought a jar of perfume. The jar was made of alabaster stone.
+**37** A sinful woman lived in that town. She learned that Jesus ate at the house of the Pharisee. She brought a jar of perfume. The jar was of alabaster stone.
 
 **38** She stood behind Jesus at his feet and cried. Her tears made his feet wet, and she dried them with her hair. She kissed his feet and put the perfume on them.
 
@@ -706,13 +706,13 @@
 
 **44** Then Jesus turned to the woman. He said to Simon, "Do you see this woman? I came into your house. You did not give me water for my feet. But she washed my feet with her tears and dried them with her hair.
 
-**45** You did not kiss me. But she did not stop kissing my feet from the time I came in.
+**45** You did not kiss me. But from the time I came in, she did not stop. She continued to kiss my feet.
 
 **46** You did not put oil on my head. But she put perfume on my feet.
 
 **47** Thus I tell you, God forgives her many sins. This is shown because she loved much. But a person who gets only a little forgiveness loves only a little."
 
-**48** Then Jesus said to the woman, "Your sins are forgiven."
+**48** Then Jesus said to the woman, "I forgive your sins."
 
 **49** The people who sat at the table with him started to say to each other, "Who is this man? He even forgives sins!"
 
@@ -744,7 +744,7 @@
 
 **12** The seed on the path is like the people who hear the word. Then the devil comes and takes the word from their hearts. Thus they do not believe and God does not save them.
 
-**13** The seed on the rock is like the people who hear the word and accept it with joy. But they have no root. They believe for a short time. But when a test comes, they stop believing.
+**13** The seed on the rock is like the people who hear the word and accept it with joy. But they have no root. They believe for a short time. But when a test comes, they fall away.
 
 **14** The seed among the thorn bushes is like the people who hear the word. But as they live, worries, money, and pleasures of this life stop their growth. They do not make mature fruit.
 
@@ -812,13 +812,13 @@
 
 **46** But Jesus said, "Someone touched me. I know that power went out from me."
 
-**47** The woman knew that she could not hide. She came to Jesus and shook with fear. She fell down in front of him. In front of all the people, she told why she touched him. She told how she was healed immediately.
+**47** The woman knew that she could not hide. She came to Jesus and shook with fear. She fell down in front of him. In front of all the people, she told why she touched him. She told how she became well immediately.
 
 **48** Jesus said to her, "Daughter, your faith healed you. Go in peace."
 
 **49** While Jesus still spoke, a man came from the house of the synagogue leader. The man said, "Your daughter is dead. Do not trouble the Teacher any more."
 
-**50** Jesus heard this. He said to Jairus, "Do not be afraid. Only believe, and she will be healed."
+**50** Jesus heard this. He said to Jairus, "Do not be afraid. Only believe, and she will become well."
 
 **51** Jesus came to the house. He let only Peter, John, James, and the father and mother of the girl go in with him.
 
@@ -838,15 +838,15 @@
 
 **2** He sent them to tell people about the kingdom of God and to heal sick people.
 
-**3** He said to them, "Take nothing for your journey. Do not take a walking stick, a bag, bread, or money. Do not take 2 shirts.
+**3** He said to them, "Take nothing for your journey. Do not take a stick, a bag, bread, or money. Do not take 2 shirts.
 
 **4** When you go into a house, stay there until you leave that town.
 
-**5** If the people of a town do not accept you, leave that town. Shake the dust off your feet as a warning to them."
+**5** If the people of a town do not accept you, leave that town. Shake the dust off your feet. This will show that they did wrong."
 
 **6** The disciples left. They went through the villages. They told the good news and healed people everywhere.
 
-**7** Herod the ruler heard about all the things that Jesus did. Herod was confused, because some people said, "John came back to life from the dead."
+**7** Herod the ruler heard about all the things that Jesus did. Herod did not understand, because some people said, "John came back to life from the dead."
 
 **8** Other people said, "Elijah came back." And other people said, "One of the old prophets came back to life."
 
@@ -854,7 +854,7 @@
 
 **10** The apostles came back. They told Jesus all the things that they did. Jesus took them with him, and they went away alone to a town with the name Bethsaida.
 
-**11** But the crowds learned about it and followed Jesus. Jesus welcomed them. He spoke to them about the kingdom of God. He healed the people who needed healing.
+**11** But the crowds learned about it and followed Jesus. Jesus welcomed them. He spoke to them about the kingdom of God. He healed the people who were ill.
 
 **12** Late in the day, the 12 apostles came to Jesus. They said, "Send the crowd away. Then they can go to the villages and farms near here to find food and a place to sleep. No people live in this area."
 
@@ -874,7 +874,7 @@
 
 **20** Jesus said to them, "But who do you say that I am?" Peter answered, "You are the Christ from God."
 
-**21** Jesus gave them a strong warning. He told them not to tell this to anyone.
+**21** Jesus gave them a strong order. He told them not to tell this to anyone.
 
 **22** He said, "The Son of Man must suffer many things. The elders, the chief priests, and the teachers of the law will reject him. They will kill him. But on the third day, God will bring him back to life."
 
@@ -884,7 +884,7 @@
 
 **25** A person can get all the world but lose his own self. Then he gets no benefit.
 
-**26** A person can be ashamed of me and my words. Then the Son of Man will be ashamed of that person when he comes. He will come in his glory and in the glory of the Father and of the holy angels.
+**26** A person can feel shame about me and my words. Then the Son of Man will feel shame about that person when he comes. He will come in his glory and in the glory of the Father and of the holy angels.
 
 **27** I tell you the truth. Some people who stand here will not die before they see the kingdom of God."
 
@@ -918,7 +918,7 @@
 
 **42** While the boy came to Jesus, the demon threw him down and shook him violently. But Jesus spoke strongly to the unclean spirit. He healed the boy and gave him back to his father.
 
-**43** All the people were very surprised at the great power of God. While all the people were surprised at all the things that Jesus did, he spoke to his disciples.
+**43** All the people felt wonder at the great power of God. All the people wondered at all the things that Jesus did. At that time, he spoke to his disciples.
 
 **44** He said, "Listen carefully to these words and remember them. People will give the Son of Man to the power of other people."
 
@@ -984,7 +984,7 @@
 
 **12** I tell you, on the day of judgment, the punishment for Sodom will be less than the punishment for that town.
 
-**13** It will be very bad for you, Chorazin! It will be very bad for you, Bethsaida! I did many miracles in you. If I did those miracles in Tyre and Sidon, the people there would change their hearts quickly. They would wear rough cloth and sit in ashes to show their sorrow.
+**13** It will be very bad for you, Chorazin! It will be very bad for you, Bethsaida! I did many miracles in you. If I did those miracles in Tyre and Sidon, the people there will change their hearts quickly. They will wear rough cloth and sit in ashes to show their sorrow.
 
 **14** At the judgment, the punishment for Tyre and Sidon will be less than your punishment.
 
@@ -1040,7 +1040,7 @@
 
 **40** But Martha was busy with all the work. She came to Jesus and said, "Lord, do you not care that my sister left me to do all the work alone? Tell her to help me!"
 
-**41** The Lord answered her, "Martha, Martha, you are worried and upset about many things.
+**41** The Lord answered her, "Martha, Martha, you have much worry and trouble about many things.
 
 **42** But only 1 thing is necessary. Mary chose the best thing. No person will take it away from her."
 
@@ -1072,13 +1072,13 @@
 
 **13** You are evil, but you know how to give good gifts to your children. Thus your Father in heaven will give the Holy Spirit to the people who ask him. He will give much more than you give."
 
-**14** One time, Jesus forced a demon out of a man. The demon caused the man to be unable to speak. When the demon went out, the man spoke. The crowd was surprised.
+**14** One time, Jesus forced a demon out of a man. The demon caused the man to be unable to speak. When the demon went out, the man spoke. The crowd felt wonder.
 
 **15** But some people said, "He forces out demons with the power of Beelzebul, the ruler of the demons."
 
 **16** Other people wanted to test Jesus. They asked him for a sign from heaven.
 
-**17** But Jesus knew their thoughts. He said to them, "A kingdom that fights against itself will be destroyed. A family that fights against itself will fall.
+**17** But Jesus knew their thoughts. He said to them, "A kingdom that fights against itself will come to ruin. A family that fights against itself will fall.
 
 **18** If Satan fights against himself, then his kingdom cannot continue. You say that I force out demons with the power of Beelzebul.
 
@@ -1118,9 +1118,9 @@
 
 **36** If all your body is full of light, with no dark part, then all of it will be bright. It will be as when a lamp shines its light on you."
 
-**37** After Jesus finished speaking, a Pharisee asked him to eat with him. Jesus went in and sat down at the table.
+**37** After Jesus spoke, a Pharisee asked him to eat with him. Jesus went in and sat down at the table.
 
-**38** The Pharisee saw that Jesus did not wash first before the meal. The Pharisee was surprised.
+**38** The Pharisee saw that Jesus did not wash first before the meal. The Pharisee felt wonder.
 
 **39** The Lord said to him, "You Pharisees clean the outside of the cup and the plate. But inside, you are full of greed and evil.
 
@@ -1224,7 +1224,7 @@
 
 **34** Your heart will be in the same place as your riches.
 
-**35** Be ready for work, with your clothes on. Keep your lamps burning.
+**35** Be ready for work, with your clothes on. Keep your lamps lit.
 
 **36** Be like servants who wait for their master to come back from a wedding feast. When he comes and knocks, they open the door for him immediately.
 
@@ -1248,13 +1248,13 @@
 
 **46** Then the master of that servant will come on a day when the servant does not expect him. He will come at a time that the servant does not know. The master will punish him very severely. He will put him with the people who are not faithful.
 
-**47** A servant may know what his master wants, but he does not get ready or do it. That servant will get many hits with a whip.
+**47** A servant can know what his master wants, but he does not get ready or do it. That servant will get many hits with a whip.
 
 **48** But another servant does not know what his master wants. He does things that deserve punishment, but he will get only a few hits. God will ask for much from each person to whom he gave much. People will ask for more from a person to whom they gave more.
 
 **49** I came to bring fire on the earth. I wish that the fire already burned!
 
-**50** I must go through a baptism of suffering. I am very troubled until it is complete.
+**50** I must go through a baptism of pain. I am very troubled until it is complete.
 
 **51** Do you think that I came to give peace on earth? No, I tell you. I came to cause people to divide.
 
@@ -1288,7 +1288,7 @@
 
 **6** Then Jesus told this parable: "A man had a fig tree in his vineyard. He came to look for fruit on the tree, but he found none.
 
-**7** The man said to the worker of his vineyard, 'For 3 years I came to look for fruit on this fig tree, and I found none. Cut the tree down. Why must the tree use the ground for no purpose?'
+**7** The man said to the worker of his vineyard, 'For 3 years I came to look for fruit on this fig tree. I found none. Cut the tree down. Why must the tree use the ground for no purpose?'
 
 **8** The worker said to him, 'Sir, let the tree stay for 1 more year. I will dig around the tree and put manure on the ground.
 
@@ -1302,7 +1302,7 @@
 
 **13** Jesus put his hands on her. Immediately she stood up straight, and she praised God.
 
-**14** The leader of the synagogue was angry because Jesus healed on the Sabbath. The leader said to the people, "There are 6 days for work. Come on those days to get healing. Do not come on the Sabbath day."
+**14** The leader of the synagogue was angry because Jesus healed on the Sabbath. The leader said to the people, "There are 6 days for work. Come on those days to become well. Do not come on the Sabbath day."
 
 **15** The Lord answered him, "You are hypocrites! On the Sabbath, each of you unties his ox or his donkey from the stall. Each of you takes the animal out to give it water.
 
@@ -1320,7 +1320,7 @@
 
 **22** Jesus went through the cities and villages and taught the people. He continued his journey to Jerusalem.
 
-**23** A man asked him, "Lord, will only a small number of people be saved?" Jesus said to the people,
+**23** A man asked him, "Lord, will God save only a small number of people?" Jesus said to the people,
 
 **24** "Work hard to go in through the narrow door. I tell you, many people will try to go in, but they will not be able to go in.
 
@@ -1432,7 +1432,7 @@
 
 **6** He will go home and call his friends and neighbors together. He will say to them, 'Be happy with me, because I found my lost sheep.'
 
-**7** I tell you, in the same way there will be more joy in heaven over 1 sinner who repents than over 99 good people who do not need to repent.
+**7** I tell you, in the same way there will be joy in heaven over 1 sinner who repents. That joy will be more than the joy over 99 good people who do not need to repent.
 
 **8** Or think about a woman who has 10 silver coins and loses 1 coin. She will light a lamp and clean the house. She will look carefully until she finds the coin.
 
@@ -1466,9 +1466,9 @@
 
 **23** Bring the fat calf and kill it. We will eat and celebrate.
 
-**24** This son of mine was dead, and now he is alive again. He was lost, and now he is found.' And they started to celebrate.
+**24** This son of mine was dead, and now he is alive again. He went away from us, and now he came back.' And they started to celebrate.
 
-**25** The older son was in the field. When he came near the house, he heard music and dancing.
+**25** The older son was in the field. When he came near the house, he heard music and people who danced.
 
 **26** He called one of the servants. He asked the servant what these things meant.
 
@@ -1482,7 +1482,7 @@
 
 **31** The father said to him, 'Son, you are always with me. All that I have is yours.
 
-**32** But it was correct for us to celebrate and be happy. Your brother was dead, and now he is alive again. He was lost, and now he is found.'"
+**32** But it was correct for us to celebrate and be happy. Your brother was dead, and now he is alive again. He went away from us, and now he came back.'"
 
 ## Chapter 16
 
@@ -1514,7 +1514,7 @@
 
 **14** The Pharisees loved money. They heard all these things, and they laughed at Jesus.
 
-**15** Jesus said to them, "You try to make yourselves look good to people. But God knows your hearts. The things that people think are important are disgusting to God.
+**15** Jesus said to them, "You try to make yourselves look good to people. But God knows your hearts. The things that people think are important are very bad to God.
 
 **16** The law and the prophets were the message until John came. Since that time, people tell the good news of the kingdom of God. And all people try hard to go into it.
 
@@ -1546,7 +1546,7 @@
 
 **30** The rich man said, 'No, father Abraham! But if a person from the dead goes to them, they will repent.'
 
-**31** Abraham said to him, 'If they do not listen to Moses and the prophets, then they will not believe a person who comes back from the dead.'"
+**31** Abraham said to him, 'They do not listen to Moses and the prophets. Thus they will not believe a person who comes back from the dead.'"
 
 ## Chapter 17
 
@@ -1578,7 +1578,7 @@
 
 **14** Jesus saw them and said to them, "Go and show yourselves to the priests." While the men went, their leprosy went away.
 
-**15** One of the men saw that he was healed. He came back and praised God with a loud voice.
+**15** One of the men saw that he became well. He came back and praised God with a loud voice.
 
 **16** He fell down on his face at the feet of Jesus and thanked him. This man was a Samaritan.
 
@@ -1610,7 +1610,7 @@
 
 **30** It will be the same on the day when the Son of Man shows himself.
 
-**31** On that day, a person may be on the roof of his house, and his things may be in the house. He must not go down to get them. Also, a person in the field must not go back.
+**31** On that day, a person can possibly be on the roof of his house, and his things can be in the house. He must not go down to get them. Also, a person in the field must not go back.
 
 **32** Remember the wife of Lot!
 
@@ -1674,9 +1674,9 @@
 
 **24** Jesus saw that the man was very sad. Jesus said, "It is very difficult for rich people to go into the kingdom of God!
 
-**25** It is easier for a camel to go through the eye of a needle than for a rich man to go into the kingdom of God."
+**25** It is easier for a camel to go through the eye of a needle. It is more difficult for a rich man to go into the kingdom of God."
 
-**26** The people who heard this said, "Then who can be saved?"
+**26** The people who heard this said, "Then who can God save?"
 
 **27** Jesus said, "Things that are not possible for people are possible for God."
 
@@ -1692,7 +1692,7 @@
 
 **33** They will hit him with whips and kill him. On the third day he will come back to life."
 
-**34** But the disciples did not understand any of these things. The meaning of the words was hidden from them. They did not know what Jesus talked about.
+**34** But the disciples did not understand any of these things. God hid the meaning of the words from them. They did not know what Jesus talked about.
 
 **35** Jesus came near to Jericho. A blind man sat at the side of the road and begged.
 
@@ -1732,7 +1732,7 @@
 
 **9** Jesus said to him, "Today salvation came to this house, because this man is also a son of Abraham.
 
-**10** The Son of Man came to look for and save the people who are lost."
+**10** The Son of Man came to look for and save the people who went away from God."
 
 **11** The people listened to these things. Jesus was near Jerusalem, and the people thought that the kingdom of God will come immediately. So Jesus told them a parable.
 
@@ -1796,7 +1796,7 @@
 
 **41** Jesus came near to Jerusalem. He saw the city and cried for it.
 
-**42** He said, "I wish that you knew today the things that will give you peace! But now these things are hidden from your eyes.
+**42** He said, "I wish that you knew today the things that will give you peace! But now you cannot see these things.
 
 **43** A time will come when your enemies will build walls around you. They will surround you and attack you from all sides.
 
@@ -1862,7 +1862,7 @@
 
 **25** Jesus said to them, "Then give to Caesar the things that belong to Caesar. And give to God the things that belong to God."
 
-**26** They could not catch Jesus in his words in front of the people. They were surprised at his answer, and they did not speak.
+**26** They could not catch Jesus in his words in front of the people. They felt wonder at his answer, and they did not speak.
 
 **27** Some Sadducees came to Jesus. The Sadducees say that dead people do not come back to life. They asked him a question.
 
@@ -1884,9 +1884,9 @@
 
 **36** They cannot die again, because they are like the angels. They are children of God, because God brought them back to life.
 
-**37** Moses also showed that the dead come back to life. In the story of the burning bush, Moses called the Lord 'the God of Abraham, the God of Isaac, and the God of Jacob.'
+**37** Moses also showed that the dead come back to life. In the story of the bush that burned, Moses called the Lord 'the God of Abraham, the God of Isaac, and the God of Jacob.'
 
-**38** God is not the God of dead people. He is the God of living people. All people are alive to God."
+**38** God is not the God of dead people. He is the God of people who live. All people are alive to God."
 
 **39** Some of the teachers of the law answered, "Teacher, you spoke well."
 
@@ -1918,7 +1918,7 @@
 
 **5** Some people talked about the temple. They said that it had beautiful stones and gifts on it. Jesus said,
 
-**6** "You see these things. But a time will come when all of them will be destroyed. Not 1 stone will stay on another stone."
+**6** "You see these things. But a time will come when people will destroy all of them. Not 1 stone will stay on another stone."
 
 **7** The people asked him, "Teacher, when will these things occur? What sign will show that they are about to occur?"
 
@@ -1942,7 +1942,7 @@
 
 **17** All people will hate you because of my name.
 
-**18** But not 1 hair of your head will be lost.
+**18** But you will not lose 1 hair of your head.
 
 **19** Stay strong, and you will save your lives.
 
@@ -1956,7 +1956,7 @@
 
 **24** Their enemies will kill some of them with swords. They will take other people as prisoners to all nations. The Gentiles will walk on Jerusalem until the time of the Gentiles is complete.
 
-**25** There will be signs in the sun, the moon, and the stars. On the earth the nations will have much trouble. They will be confused by the noise of the sea and the waves.
+**25** There will be signs in the sun, the moon, and the stars. On the earth the nations will have much trouble. The noise of the sea and the waves will confuse them.
 
 **26** People will become weak with fear. They will be afraid of the things that will occur in the world. God will shake the powers in the sky.
 
@@ -2016,7 +2016,7 @@
 
 **15** He said to them, "I wanted very much to eat this Passover meal with you before I suffer.
 
-**16** I tell you, I will not eat it again until it is completed in the kingdom of God."
+**16** I tell you, I will not eat it again until it becomes complete in the kingdom of God."
 
 **17** Then Jesus took a cup and gave thanks. He said, "Take this cup and share it among you.
 
@@ -2068,7 +2068,7 @@
 
 **41** Jesus went away from them about the distance that a person can throw a stone. He kneeled down and prayed.
 
-**42** He said, "Father, if you agree, take this cup of suffering away from me. But do what you want, not what I want."
+**42** He said, "Father, if you agree, take this cup of pain away from me. But do what you want, not what I want."
 
 **43** An angel from heaven came to him and made him strong.
 
@@ -2138,7 +2138,7 @@
 
 **4** Then Pilate said to the chief priests and the crowd, "I do not find that this man is guilty of a crime."
 
-**5** But they spoke more strongly. They said, "He causes trouble among the people with his teaching. He taught in all of Judea. He started in Galilee and now he is here."
+**5** But they spoke more strongly. They said, "He causes trouble among the people with his words. He taught in all of Judea. He started in Galilee and now he is here."
 
 **6** When Pilate heard the word "Galilee," he asked if Jesus was from Galilee.
 
@@ -2218,7 +2218,7 @@
 
 **44** At about 12 noon, darkness came over all the land. The darkness stayed until 3 o'clock in the afternoon.
 
-**45** The sun stopped giving light. The curtain in the temple tore into 2 pieces.
+**45** The sun stopped. It gave no light. The curtain in the temple tore into 2 pieces.
 
 **46** Jesus shouted with a loud voice, "Father, I put my spirit into your hands." After he said this, he died.
 
@@ -2246,13 +2246,13 @@
 
 **1** On the first day of the week, very early in the morning, the women went to the tomb. They took the spices that they prepared. Some other women went with them.
 
-**2** They found that the stone was rolled away from the tomb.
+**2** They found that someone rolled the stone away from the tomb.
 
 **3** They went into the tomb, but they did not find the body of the Lord Jesus.
 
 **4** The women did not know what to think about this. Suddenly 2 men in very bright clothes stood next to them.
 
-**5** The women were afraid and bowed their faces to the ground. The men said to them, "Why do you look for a living person among the dead?
+**5** The women were afraid and bowed their faces to the ground. The men said to them, "Why do you look for a person who lives among the dead?
 
 **6** Jesus is not here. He came back to life! Remember what he told you when he was still in Galilee.
 

@@ -102,7 +102,7 @@
 
 **50** Make the Levites responsible for the tabernacle of the Testimony, for all its equipment and for all the things that belong to it. They must carry the tabernacle and all its equipment. They must do the work of the tabernacle. They must put their tents around it.
 
-**51** When the tabernacle moves, the Levites must take it down. When the people stop to camp, the Levites must put it up. Any other person who comes near it must be killed.
+**51** When the tabernacle moves, the Levites must take it down. When the people stop to camp, the Levites must put it up. Kill any other person who comes near it.
 
 **52** The people of Israel must put up their tents in their divisions. Each man must camp in his own camp, near the flag of his group.
 
@@ -198,9 +198,9 @@
 
 **8** They must take care of all the equipment of the Tent of Meeting. They must do the work of the tabernacle for the people of Israel.
 
-**9** Give the Levites to Aaron and his sons. From all the people of Israel, the Levites are given completely to Aaron.
+**9** Give the Levites to Aaron and his sons. From all the people of Israel, I give the Levites completely to Aaron.
 
-**10** Make Aaron and his sons responsible for the work of the priests. Any other person who comes near the holy place must be killed."
+**10** Make Aaron and his sons responsible for the work of the priests. Kill any other person who comes near the holy place."
 
 **11** The LORD spoke to Moses. He said,
 
@@ -230,7 +230,7 @@
 
 **24** The leader of the families of the Gershonites was Eliasaph the son of Lael.
 
-**25** At the Tent of Meeting, the Gershonites were responsible for the tabernacle, the tent, its coverings and the curtain at the entrance of the Tent of Meeting.
+**25** At the Tent of Meeting, the Gershonites were responsible for the tabernacle, the tent and its coverings. They were also responsible for the curtain at the entrance of the Tent of Meeting.
 
 **26** They were also responsible for the curtains of the courtyard and the curtain at the entrance of the courtyard. The courtyard is around the tabernacle and the altar. They were also responsible for the ropes and for all the work on these things.
 
@@ -256,7 +256,7 @@
 
 **37** They were also responsible for the posts around the courtyard, with their bases, pegs and ropes.
 
-**38** Moses, Aaron and the sons of Aaron camped on the east side of the tabernacle, in front of the Tent of Meeting. They were responsible for the holy place for the people of Israel. Any other person who came near the holy place had to be killed.
+**38** Moses, Aaron and the sons of Aaron camped on the east side of the tabernacle, in front of the Tent of Meeting. They were responsible for the holy place for the people of Israel. The people had to kill any other person who came near the holy place.
 
 **39** Moses and Aaron counted the Levites by their clans, as the LORD commanded. The total of all the males who were 1 month old or more was 22,000.
 
@@ -296,23 +296,23 @@
 
 **5** When the camp moves out, Aaron and his sons must go into the tent. They must take down the curtain that is in front of the ark. They must put it over the ark of the Testimony.
 
-**6** Then they must put a covering of fine leather on the ark. They must put a blue cloth over it. Then they must put the poles in their positions.
+**6** Then they must put a cover of fine leather on the ark. They must put a blue cloth over it. Then they must put the poles in their positions.
 
 **7** They must put a blue cloth on the table for the holy bread. They must put the plates, the dishes, the bowls and the jars for drink offerings on the cloth. The bread that is always there must also stay on it.
 
-**8** They must put a red cloth over these things, and a covering of fine leather over the red cloth. Then they must put the poles of the table in their positions.
+**8** They must put a red cloth over these things, and a cover of fine leather over the red cloth. Then they must put the poles of the table in their positions.
 
 **9** They must take a blue cloth and cover the lampstand. They must also cover its lamps, its tools, its trays and all the jars for the oil.
 
-**10** They must put the lampstand and all its equipment in a covering of fine leather. Then they must put it on a frame for carrying.
+**10** They must put the lampstand and all its equipment in a cover of fine leather. Then they must put it on a frame to carry it.
 
 **11** They must put a blue cloth on the gold altar. They must cover it with fine leather. Then they must put its poles in their positions.
 
-**12** They must take all the equipment that the priests use in the holy place. They must put it in a blue cloth and cover it with fine leather. Then they must put it on a frame for carrying.
+**12** They must take all the equipment that the priests use in the holy place. They must put it in a blue cloth and cover it with fine leather. Then they must put it on a frame to carry it.
 
 **13** They must remove the ashes from the bronze altar. Then they must put a purple cloth on the altar.
 
-**14** They must put on it all the equipment of the altar. This includes the fire pans, the meat forks, the shovels and the bowls. They must put a covering of fine leather on it. Then they must put its poles in their positions.
+**14** They must put on it all the equipment of the altar. This includes the fire pans, the meat forks, the shovels and the bowls. They must put a cover of fine leather on it. Then they must put its poles in their positions.
 
 **15** Aaron and his sons must cover the holy place and all its holy equipment. When they finish, the camp can move out. Then the Kohathites must come and carry these things. But the Kohathites must not touch the holy things, or they will die. These are the things in the Tent of Meeting that the Kohathites must carry.
 
@@ -320,7 +320,7 @@
 
 **17** The LORD spoke to Moses and Aaron. He said,
 
-**18** "Do not let the clans of the Kohathites be destroyed from among the Levites.
+**18** "Do not let the clans of the Kohathites disappear from among the Levites.
 
 **19** Do this for them, so that they live and do not die when they come near the most holy things. Aaron and his sons must go in. They must give each Kohathite his work and the things that he must carry.
 
@@ -334,7 +334,7 @@
 
 **24** This is the work of the clans of the Gershonites. They must do work and carry loads.
 
-**25** They must carry the curtains of the tabernacle and the Tent of Meeting. They must carry its covering and the outer covering of fine leather. They must carry the curtain at the entrance of the Tent of Meeting.
+**25** They must carry the curtains of the tabernacle and the Tent of Meeting. They must carry its cover and the outer cover of fine leather. They must carry the curtain at the entrance of the Tent of Meeting.
 
 **26** They must carry the curtains of the courtyard around the tabernacle and the altar. They must carry the curtain at the entrance of the courtyard, the ropes and all the equipment for this work. They must do all the work with these things.
 
@@ -454,15 +454,15 @@
 
 **2** "Speak to the people of Israel. Tell them, 'A man or a woman can make a special promise to become a Nazirite. A Nazirite is a person who promises to separate himself to the LORD.
 
-**3** He must not drink wine or other alcohol. He must not drink vinegar that is made from wine or from other alcohol. He must not drink grape juice. He must not eat fresh grapes or dried grapes.
+**3** He must not drink wine or other alcohol. He must not drink vinegar that people make from wine or from other alcohol. He must not drink grape juice. He must not eat fresh grapes or dried grapes.
 
 **4** While he is a Nazirite, he must not eat anything from the grapevine. He must not eat the seeds or the skins.
 
 **5** While he is a Nazirite, he must not cut the hair on his head. He is holy until the end of the time that he promised to the LORD. He must let the hair on his head grow long.
 
-**6** While he is separated to the LORD, he must not go near a dead body.
+**6** While he keeps himself separate for the LORD, he must not go near a dead body.
 
-**7** He must not make himself unclean, even if his father, mother, brother or sister dies. His long hair shows that he is separated to his God.
+**7** He must not make himself unclean, even if his father, mother, brother or sister dies. His long hair shows that he gave himself to his God.
 
 **8** While he is a Nazirite, he is holy to the LORD.
 
@@ -680,7 +680,7 @@
 
 **87** The animals for the burnt offering were a total of 12 bulls, 12 rams and 12 male lambs that were 1 year old. The leaders also gave the grain offerings for them. They gave 12 male goats for the sin offering.
 
-**88** The animals for the peace offering were a total of 24 bulls, 60 rams, 60 male goats and 60 male lambs that were 1 year old. These were the offerings to dedicate the altar after Moses anointed it.
+**88** The animals for the peace offering were a total of 24 bulls, 60 rams, 60 male goats and 60 male lambs. Each lamb was 1 year old. These were the offerings to dedicate the altar after Moses anointed it.
 
 **89** Moses went into the Tent of Meeting to speak with the LORD. There he heard the voice of the LORD. The voice spoke to him from above the cover of the ark of the Testimony. The voice came from between the 2 cherubim. Thus the LORD spoke to Moses.
 
@@ -693,7 +693,7 @@
 
 **3** Aaron did this. He put the lamps so that they gave light to the area in front of the lampstand, as the LORD commanded Moses.
 
-**4** The lampstand was made of hammered gold, from its base to its flowers. Moses made the lampstand from the design that the LORD showed him.
+**4** The lampstand was of hammered gold, from its base to its flowers. Moses made the lampstand from the design that the LORD showed him.
 
 **5** The LORD spoke to Moses. He said,
 
@@ -717,7 +717,7 @@
 
 **15** After this, the Levites can go in and do the work at the Tent of Meeting. You must make them clean and give them as a wave offering.
 
-**16** The Levites are given completely to me from among the people of Israel. I take them in place of all the firstborn sons of Israel.
+**16** The people of Israel give the Levites completely to me. I take the Levites in place of all the firstborn sons of Israel.
 
 **17** All the firstborn in Israel are mine, both men and animals. I killed all the firstborn in the land of Egypt. On that day I made the firstborn of Israel holy for myself.
 
@@ -765,7 +765,7 @@
 
 **12** Do not keep any of it until the morning. Do not break any of its bones. Obey all the rules of the Passover.
 
-**13** But a man can be clean and not on a journey, and he does not keep the Passover. That person must be removed from his people. He did not give the offering to the LORD at the correct time. Thus he will be guilty of his sin.
+**13** But a man can be clean and not on a journey, and he does not keep the Passover. You must remove that person from his people. He did not give the offering to the LORD at the correct time. Thus he will be guilty of his sin.
 
 **14** A foreigner who lives among you can keep the Passover to the LORD. He must obey the rules and the ceremonies of the Passover. Use the same rules for the foreigner and for the native Israelite.'"
 
@@ -877,7 +877,7 @@
 
 **7** The manna was like coriander seed. Its color was like the color of resin.
 
-**8** The people went out and collected it. They crushed it with stones or they pounded it in a bowl. They cooked it in pots and made it into flat bread. It tasted like bread that was baked with olive oil.
+**8** The people went out and collected it. They crushed it with stones or they pounded it in a bowl. They cooked it in pots and made it into flat bread. It tasted like bread that people cook with olive oil.
 
 **9** At night the dew came down on the camp. The manna also came down with the dew.
 
@@ -891,7 +891,7 @@
 
 **14** I cannot carry all these people alone. The load is too heavy for me.
 
-**15** If you treat me like this, please kill me now. If you are pleased with me, do not let me see more of my trouble."
+**15** If you treat me like this, please kill me now. If you are happy with me, do not let me see more of my trouble."
 
 **16** The LORD said to Moses, "Bring me 70 of the elders of Israel. They must be men that you know as leaders and officers of the people. Bring them to the Tent of Meeting. Tell them to stand there with you.
 
@@ -961,7 +961,7 @@
 
 **13** Moses called to the LORD. He said, "God, please make her well."
 
-**14** The LORD said to Moses, "If her father spit in her face, she would feel shame for 7 days. Thus send her outside the camp for 7 days. After that, she can come back."
+**14** The LORD said to Moses, "If her father spit in her face, she must feel shame for 7 days. Thus send her outside the camp for 7 days. After that, she can come back."
 
 **15** Thus the people sent Miriam outside the camp for 7 days. The people did not move out until Miriam came back.
 
@@ -1051,7 +1051,7 @@
 
 **7** They said to all the people of Israel, "The land that we went through and explored is a very good land.
 
-**8** If the LORD is pleased with us, he will bring us into this land and give it to us. It is a very rich land, full of milk and honey.
+**8** If the LORD is happy with us, he will bring us into this land and give it to us. It is a very rich land, full of milk and honey.
 
 **9** Do not rebel against the LORD. Do not be afraid of the people of the land. We will defeat them easily. Nothing protects them, but the LORD is with us. Do not be afraid of them."
 
@@ -1093,7 +1093,7 @@
 
 **28** Tell them, 'As I live, the LORD says, I will do to you the things that you said.
 
-**29** You will die in this desert. All of you who are 20 years old or more and who were counted complained against me.
+**29** You will die in this desert. Moses counted all of you who are 20 years old or more. All of you who complained against me will die.
 
 **30** Thus none of you will go into the land that I promised to give you as your home. Only Caleb the son of Jephunneh and Joshua the son of Nun will go into it.
 
@@ -1153,7 +1153,7 @@
 
 **12** Prepare a set of these offerings for each animal that you offer.
 
-**13** Each person who is born an Israelite must do these things in this way. He must do them when he makes an offering by fire with a pleasant smell for the LORD.
+**13** Each person whose mother gave birth to him as an Israelite must do these things in this way. He must do them when he makes an offering by fire with a pleasant smell for the LORD.
 
 **14** A foreigner can live with you, or another person can live among you in the future. If he makes an offering by fire with a pleasant smell for the LORD, he must do the same as you.
 
@@ -1167,7 +1167,7 @@
 
 **19** When you eat the food of that land, you must give a special offering (a heave offering) to the LORD.
 
-**20** Give a loaf from the first of your dough as a heave offering. Give it in the same way as the heave offering from the threshing floor.
+**20** Give a loaf from the first of your dough as a heave offering. Give it in the same way as the heave offering from the floor where you separate the grain.
 
 **21** In all your generations, give to the LORD a heave offering from the first of your dough.
 
@@ -1273,7 +1273,7 @@
 
 **30** But the LORD can do a new thing. The ground can open and swallow these men and all their things. They can go down alive into the grave. If this occurs, then you will know that these men insulted the LORD."
 
-**31** Moses stopped speaking. Then the ground under these men split open.
+**31** Moses stopped and said no more words. Then the ground under these men split open.
 
 **32** The ground opened and swallowed them and their families. It swallowed all the men of Korah and all their things.
 
@@ -1285,7 +1285,7 @@
 
 **36** The LORD spoke to Moses. He said,
 
-**37** "Tell Eleazar, the son of Aaron the priest, to take the censers out of the fire. Tell him to throw the burning coals far away. The censers are holy.
+**37** "Tell Eleazar, the son of Aaron the priest, to take the censers out of the fire. Tell him to throw the hot coals far away. The censers are holy.
 
 **38** These men sinned and lost their lives. Make the censers of these men into thin metal sheets. Use the sheets as a cover for the altar. The men offered the censers in front of the LORD, thus the censers are holy. They will be a sign to the people of Israel."
 
@@ -1307,7 +1307,7 @@
 
 **47** Aaron did as Moses told him. He ran into the middle of the community. The plague already started among the people. Aaron put on the incense and made atonement for the people.
 
-**48** He stood between the dead people and the living people. Then the plague stopped.
+**48** He stood between the dead people and the people who were alive. Then the plague stopped.
 
 **49** 14,700 people died in the plague. This number does not include the people who died because of Korah.
 
@@ -1317,7 +1317,7 @@
 
 **1** The LORD spoke to Moses. He said,
 
-**2** "Speak to the people of Israel. Get 12 walking sticks (rods) from them. Get 1 rod from the leader of each tribe. Write the name of each leader on his rod.
+**2** "Speak to the people of Israel. Get 12 sticks (rods) from them. Get 1 rod from the leader of each tribe. Write the name of each leader on his rod.
 
 **3** Write the name of Aaron on the rod of Levi. There must be 1 rod for the leader of each tribe.
 
@@ -1355,11 +1355,11 @@
 
 **6** I took your relatives, the Levites, from among the people of Israel. I give them to you as a gift. They are for the LORD. They do the work of the tabernacle.
 
-**7** But only you and your sons can do the work of the priests. Only you can do the work at the altar and behind the curtain. I give you the work of the priests as a gift. Any other person who comes near must be killed."
+**7** But only you and your sons can do the work of the priests. Only you can do the work at the altar and behind the curtain. I give you the work of the priests as a gift. You must kill any other person who comes near."
 
 **8** Then the LORD said to Aaron, "I give you the responsibility for my heave offerings. I give you all the holy gifts of the people of Israel. I give them to you and to your sons as your part. This rule continues for all time.
 
-**9** You will get part of the most holy offerings that are not burned. You will get their grain offerings, their sin offerings, and their guilt offerings. These offerings that they give to me are most holy. They are for you and for your sons.
+**9** You will get part of the most holy offerings that the priests do not burn. You will get their grain offerings, their sin offerings, and their guilt offerings. These offerings that they give to me are most holy. They are for you and for your sons.
 
 **10** Eat them as most holy things. Each male can eat them. They are holy to you.
 
@@ -1395,15 +1395,15 @@
 
 **26** "Speak to the Levites. Tell them, 'You will get the tithe from the people of Israel. I give it to you as your part. Then you must give 1/10 of that tithe as a heave offering to the LORD.
 
-**27** The LORD will accept your heave offering as your offering. It is the same as grain from the threshing floor or wine from the winepress.
+**27** The LORD will accept your heave offering as your offering. It is the same as grain from the floor where you separate the grain, or wine from the winepress.
 
 **28** Thus you also must give a heave offering to the LORD from all the tithes that you get from the people of Israel. Give this part of the LORD to Aaron the priest.
 
 **29** From all the gifts that you get, you must give a heave offering to the LORD. Give the best and the holiest part.'
 
-**30** Tell the Levites, 'When you give the best part, the LORD will accept the remaining part for you. It is the same as grain from the threshing floor and wine from the winepress.
+**30** Tell the Levites, 'When you give the best part, the LORD will accept the other part for you. It is the same as grain from the floor where you separate the grain, and wine from the winepress.
 
-**31** You and your families can eat the remaining part in any place. It is your payment for your work at the tabernacle.
+**31** You and your families can eat the rest in any place. It is your payment for your work at the tabernacle.
 
 **32** If you give the best part to the LORD, you will not be guilty of sin because of this food. But do not make the holy gifts of the people of Israel unclean. If you do, you will die.'"
 
@@ -1443,11 +1443,11 @@
 
 **17** For the unclean person, take some ashes from the burnt heifer of the sin offering. Put them in a container and add fresh water.
 
-**18** A clean person must take hyssop and put it in the water. He must sprinkle the water on the tent, on all the containers, and on the people who were in the tent. He must also sprinkle it on the person who touched a bone, a person who was killed, a dead body, or a grave.
+**18** A clean person must take hyssop and put it in the water. He must sprinkle the water on the tent, on all the containers, and on the people who were in the tent. He must also sprinkle it on the person who touched a bone, a person that someone killed, a dead body, or a grave.
 
 **19** The clean person must sprinkle the water on the unclean person on the 3rd day and on the 7th day. On the 7th day, the unclean person must make himself clean. He must wash his clothes and his body in water. In the evening he will be clean.
 
-**20** But an unclean person who does not make himself clean must be removed from the community. He made the sanctuary of the LORD unclean. Nobody sprinkled the water for purification on him. He is unclean.
+**20** But an unclean person who does not make himself clean must leave the community. You must send him away. He made the sanctuary of the LORD unclean. Nobody sprinkled the water for purification on him. He is unclean.
 
 **21** This rule continues for all time. The person who sprinkles the water for purification must wash his clothes. The person who touches the water for purification will be unclean until the evening.
 
@@ -1549,7 +1549,7 @@
 
 **17** Then Israel sang this song: "Give water, O well! Sing to the well!
 
-**18** The leaders dug the well. The important men of the people dug it with their rods and walking sticks." Then the people went from the desert to Mattanah.
+**18** The leaders dug the well. The important men of the people dug it with their rods and sticks." Then the people went from the desert to Mattanah.
 
 **19** They went from Mattanah to Nahaliel, and from Nahaliel to Bamoth.
 
@@ -1571,9 +1571,9 @@
 
 **28** Fire came out of Heshbon. Flames came from the city of Sihon. The fire destroyed Ar in Moab and the rulers of the hills of the Arnon.
 
-**29** Moab, you will have much trouble! People of Chemosh, you are destroyed! Your god Chemosh let his sons run away. He let his daughters become prisoners of Sihon, the king of the Amorites.
+**29** Moab, you will have much trouble! People of Chemosh, your enemies destroy you! Your god Chemosh let his sons run away. He let his daughters become prisoners of Sihon, the king of the Amorites.
 
-**30** But we defeated the Amorites. Heshbon is destroyed as far as Dibon. We destroyed their land as far as Nophah, near Medeba."
+**30** But we defeated the Amorites. We destroyed Heshbon as far as Dibon. We destroyed their land as far as Nophah, near Medeba."
 
 **31** Thus Israel lived in the land of the Amorites.
 
@@ -1643,7 +1643,7 @@
 
 **28** Then the LORD let the donkey speak. She said to Balaam, "What did I do to you? Why did you hit me these 3 times?"
 
-**29** Balaam said to the donkey, "You made me look foolish! I wish that I had a sword in my hand. Then I would kill you now."
+**29** Balaam said to the donkey, "You made me look foolish! I wish that I had a sword in my hand. If I had a sword, I will kill you now."
 
 **30** The donkey said to Balaam, "I am your donkey. You rode on me all your life until today. Did I ever do this to you before?" Balaam said, "No."
 
@@ -1651,7 +1651,7 @@
 
 **32** The angel of the LORD said to him, "Why did you hit your donkey these 3 times? I came to stop you, because your trip is wrong in my sight.
 
-**33** The donkey saw me and turned away from me 3 times. If she did not turn away from me, I would kill you now. But I would let the donkey live."
+**33** The donkey saw me and turned away from me 3 times. If she did not turn away from me, I will kill you now. But I will let the donkey live."
 
 **34** Balaam said to the angel of the LORD, "I sinned. I did not know that you stood in the road against me. If you think that my trip is wrong, I will go back home."
 
@@ -1689,7 +1689,7 @@
 
 **9** I see them from the top of the rocks. I look at them from the hills. They are a people who live separately. They do not think that they are one of the nations.
 
-**10** The descendants of Jacob are as many as the dust. Nobody can count them. Nobody can count even 1/4 of Israel. I wish that I could die as these good people die. I wish that my end would be the same as theirs!"
+**10** The descendants of Jacob are as many as the dust. Nobody can count them. Nobody can count even 1/4 of Israel. I wish that I could die as these good people die. I wish that my end is the same as theirs!"
 
 **11** Balak said to Balaam, "What did you do to me? I brought you here to curse my enemies. But you only blessed them!"
 
@@ -1753,7 +1753,7 @@
 
 **10** Balak became very angry with Balaam. He hit his hands together. He said to Balaam, "I called you to curse my enemies. But you blessed them these 3 times!
 
-**11** Now go home! I wanted to give you great honor. But the LORD stopped you from getting honor."
+**11** Now go home! I wanted to give you great honor. But the LORD stopped you. He did not let you get honor."
 
 **12** Balaam said to Balak, "You sent messengers to me. I told them,
 
@@ -1771,15 +1771,15 @@
 
 **19** A ruler will come from the descendants of Jacob. He will destroy the people who stay alive in the city."
 
-**20** Then Balaam looked at the people of Amalek. He spoke this message: "Amalek was the first of the nations. But at the end, Amalek will be destroyed for all time."
+**20** Then Balaam looked at the people of Amalek. He spoke this message: "Amalek was the first of the nations. But at the end, Amalek will die for all time."
 
 **21** Then Balaam looked at the Kenites. He spoke this message: "Your home is strong. It is the same as a nest high in a rock.
 
-**22** But the Kenites will be destroyed. Assyria will take you away as prisoners."
+**22** But the Kenites will become a ruin. Assyria will take you away as prisoners."
 
 **23** Then Balaam spoke this message: "When God does this, nobody will stay alive!
 
-**24** Ships will come from the coast of Cyprus (Kittim). They will attack Assyria and Eber. But they will also be destroyed for all time."
+**24** Ships will come from the coast of Cyprus (Kittim). They will attack Assyria and Eber. But they will also die for all time."
 
 **25** Then Balaam got up and went back home. Balak also went away.
 
@@ -1841,7 +1841,7 @@
 
 **9** The sons of Eliab were Nemuel, Dathan, and Abiram. Dathan and Abiram were the leaders of the community who fought against Moses and Aaron. They were in the group of Korah when that group fought against the LORD.
 
-**10** The ground opened and swallowed them with Korah. Their group died when the fire destroyed 250 men. The death of these men became a warning.
+**10** The ground opened and swallowed them with Korah. Their group died when the fire destroyed 250 men. The death of these men became a sign to the people.
 
 **11** But the sons of Korah did not die.
 
@@ -1939,7 +1939,7 @@
 
 **58** These were also families of the Levites: the Libnites, the Hebronites, the Mahlites, the Mushites, and the Korahites. Kohath was the father of Amram.
 
-**59** The name of the wife of Amram was Jochebed. She was a descendant of Levi. She was born in Egypt. She and Amram had 3 children: Aaron, Moses, and their sister Miriam.
+**59** The wife of Amram had the name Jochebed. She was a descendant of Levi. Her mother gave birth to her in Egypt. She and Amram had 3 children: Aaron, Moses, and their sister Miriam.
 
 **60** Aaron was the father of Nadab, Abihu, Eleazar, and Ithamar.
 
@@ -1951,7 +1951,7 @@
 
 **64** Moses and Aaron the priest counted the people of Israel before, in the desert of Sinai. But none of the men in that count were in this new count.
 
-**65** The LORD told the men of the first count that they would die in the desert. Only Caleb, the son of Jephunneh, and Joshua, the son of Nun, stayed alive.
+**65** The LORD told the men of the first count that they will die in the desert. Only Caleb, the son of Jephunneh, and Joshua, the son of Nun, stayed alive.
 
 ## Chapter 27
 
@@ -2007,7 +2007,7 @@
 
 **2** "Give this command to the people of Israel. Tell them, 'You must bring my offerings to me at the correct times. These offerings are my food. They are offerings by fire that make a pleasant smell for me.'
 
-**3** Tell them, 'This is the offering by fire that you must give to the LORD: Each day, offer 2 male lambs that are 1 year old and have no defect. They are a daily burnt offering.
+**3** Tell them, 'This is the offering by fire that you must give to the LORD. Each day, offer 2 male lambs that are 1 year old and have no defect. They are a daily burnt offering.
 
 **4** Offer 1 lamb in the morning. Offer the other lamb in the evening.
 
@@ -2029,7 +2029,7 @@
 
 **13** With each lamb, give a grain offering of 1/10 of an ephah of fine flour mixed with oil. This is a burnt offering that makes a pleasant smell. It is an offering by fire to the LORD.
 
-**14** The drink offerings are 1/2 of a hin of wine with each bull, 1/3 of a hin with the ram, and 1/4 of a hin with each lamb. This is the burnt offering for each month of the year.
+**14** The drink offerings are 1/2 of a hin of wine with each bull and 1/3 of a hin with the ram. Give 1/4 of a hin with each lamb. This is the burnt offering for each month of the year.
 
 **15** Also offer 1 male goat to the LORD as a sin offering. Give it together with the daily burnt offering and its drink offering.
 
@@ -2037,7 +2037,7 @@
 
 **17** On the 15th day of that month, there will be a festival. For 7 days, eat bread that has no yeast.
 
-**18** On the 1st day of the festival, have a holy meeting. Do not do your usual work.
+**18** On the 1st day of the festival, have a holy assembly. Do not do your usual work.
 
 **19** Give an offering by fire to the LORD as a burnt offering. Offer 2 young bulls, 1 ram, and 7 male lambs that are 1 year old. All the animals must have no defect.
 
@@ -2051,9 +2051,9 @@
 
 **24** In this way, give these offerings each day for 7 days. This is food for the offering by fire that makes a pleasant smell for the LORD. Give it together with the daily burnt offering and its drink offering.
 
-**25** On the 7th day, have a holy meeting. Do not do your usual work.
+**25** On the 7th day, have a holy assembly. Do not do your usual work.
 
-**26** On the day of the firstfruits, you will give a new grain offering to the LORD at your Festival of Weeks. On that day, have a holy meeting. Do not do your usual work.
+**26** On the day of the firstfruits, you will give a new grain offering to the LORD at your Festival of Weeks. On that day, have a holy assembly. Do not do your usual work.
 
 **27** Give a burnt offering that makes a pleasant smell for the LORD. Offer 2 young bulls, 1 ram, and 7 male lambs that are 1 year old.
 
@@ -2067,7 +2067,7 @@
 
 ## Chapter 29
 
-**1** "'On the 1st day of the 7th month, have a holy meeting. Do not do your usual work. On that day you will blow the trumpets.
+**1** "'On the 1st day of the 7th month, have a holy assembly. Do not do your usual work. On that day you will blow the trumpets.
 
 **2** Give a burnt offering that makes a pleasant smell for the LORD. Offer 1 young bull, 1 ram, and 7 male lambs that are 1 year old. All the animals must have no defect.
 
@@ -2079,7 +2079,7 @@
 
 **6** Give these offerings together with the burnt offering of the month and its grain offering. Also give them together with the daily burnt offering, its grain offering, and their drink offerings. Do these things by the rules. They are offerings by fire that make a pleasant smell for the LORD.
 
-**7** On the 10th day of the 7th month, have a holy meeting. On that day you must not eat, and you must humble yourselves. Do not do any work.
+**7** On the 10th day of the 7th month, have a holy assembly. On that day you must not eat, and you must humble yourselves. Do not do any work.
 
 **8** Give a burnt offering that makes a pleasant smell for the LORD. Offer 1 young bull, 1 ram, and 7 male lambs that are 1 year old. All the animals must have no defect.
 
@@ -2089,7 +2089,7 @@
 
 **11** Also offer 1 male goat as a sin offering. Give it together with the sin offering for atonement, the daily burnt offering, its grain offering, and their drink offerings.
 
-**12** On the 15th day of the 7th month, have a holy meeting. Do not do your usual work. Keep a festival to the LORD for 7 days.
+**12** On the 15th day of the 7th month, have a holy assembly. Do not do your usual work. Keep a festival to the LORD for 7 days.
 
 **13** Give a burnt offering by fire that makes a pleasant smell for the LORD. Offer 13 young bulls, 2 rams, and 14 male lambs that are 1 year old. All the animals must have no defect.
 
@@ -2135,7 +2135,7 @@
 
 **34** Also offer 1 male goat as a sin offering. Give it together with the daily burnt offering, its grain offering, and its drink offering.
 
-**35** On the 8th day, have a special meeting. Do not do your usual work.
+**35** On the 8th day, have a special assembly. Do not do your usual work.
 
 **36** Give a burnt offering by fire that makes a pleasant smell for the LORD. Offer 1 bull, 1 ram, and 7 male lambs that are 1 year old. All the animals must have no defect.
 
@@ -2157,7 +2157,7 @@
 
 **4** Her father can hear about her vow or her promise and say nothing to her. Then she must do all her vows and all her promises.
 
-**5** But her father can hear about them and refuse them on that same day. Then her vows and her promises are cancelled. The LORD will forgive her, because her father refused them.
+**5** But her father can hear about them and refuse them on that same day. Then her vows and her promises have no force. The LORD will forgive her, because her father refused them.
 
 **6** A woman can make a vow or a careless promise, and then she can get married.
 
@@ -2171,7 +2171,7 @@
 
 **11** Her husband can hear about it and say nothing to her. If he does not refuse it, then she must do all her vows and all her promises.
 
-**12** But her husband can cancel them on the day that he hears about them. Then her vows and her promises are cancelled. Her husband cancelled them, and the LORD will forgive her.
+**12** But her husband can cancel them on the day that he hears about them. Then her vows and her promises have no force. Her husband cancelled them, and the LORD will forgive her.
 
 **13** Her husband can accept or cancel each vow and each oath that she makes to deny herself.
 
@@ -2221,7 +2221,7 @@
 
 **19** Each man who killed a person or touched a dead body must stay outside the camp for 7 days. On the 3rd day and on the 7th day, you and your prisoners must make yourselves clean.
 
-**20** Make all your clothes clean. Also make clean all things that are made of leather, of goat hair, or of wood."
+**20** Make all your clothes clean. Also make clean all things that people make of leather, of goat hair, or of wood."
 
 **21** Then Eleazar the priest said to the soldiers who went to the battle, "This is the rule of the law that the LORD commanded Moses.
 
@@ -2279,7 +2279,7 @@
 
 **48** Then the officers of the army came to Moses. These were the commanders of 1,000 men and the commanders of 100 men.
 
-**49** They said to Moses, "We, your servants, counted the soldiers under our command. No man is missing.
+**49** They said to Moses, "We, your servants, counted the soldiers under our command. All the men are there. Not 1 man is absent.
 
 **50** Thus we bring an offering to the LORD. Each man brings the gold things that he found: bracelets, chains, rings, earrings, and necklaces. We give them to make atonement for ourselves in front of the LORD."
 
@@ -2323,7 +2323,7 @@
 
 **14** Now you take the place of your fathers. You are a new group of sinful men. You make the LORD more angry with Israel.
 
-**15** If you stop following the LORD, he will again leave the people in the desert. Then you will cause the destruction of all these people."
+**15** If you turn away from the LORD, he will again leave the people in the desert. Then you will cause the destruction of all these people."
 
 **16** Then the men of Gad and Reuben came near to Moses. They said, "We will build pens for our animals and cities for our children here.
 
@@ -2339,7 +2339,7 @@
 
 **22** When the LORD defeats the people of the land, you can come back. Then you will not be guilty in front of the LORD and in front of Israel. This land will be your property in front of the LORD.
 
-**23** But if you do not do this, you will sin against the LORD. You can be sure that you will be punished for your sin.
+**23** But if you do not do this, you will sin against the LORD. You can be sure that your sin will find you. God will punish you for it.
 
 **24** Build cities for your children and pens for your sheep. But do what you promised."
 
@@ -2349,9 +2349,9 @@
 
 **27** But each of your servants will prepare for war. We will go across the Jordan River to fight in front of the LORD, as you, our master, say."
 
-**28** So Moses gave orders about them to Eleazar the priest, to Joshua, the son of Nun, and to the family leaders of the tribes of Israel.
+**28** So Moses gave orders about them to Eleazar the priest and to Joshua, the son of Nun. He also gave orders to the family leaders of the tribes of Israel.
 
-**29** Moses said to them, "The people of Gad and Reuben must go with you across the Jordan River. Each man must prepare for battle in front of the LORD. If they do this and the land is defeated, then give them the land of Gilead as their property.
+**29** Moses said to them, "The people of Gad and Reuben must go with you across the Jordan River. Each man must prepare for battle in front of the LORD. If they do this and you defeat the land, then give them the land of Gilead as their property.
 
 **30** But if they do not go across with you for war, they must take land among you in Canaan."
 
@@ -2359,7 +2359,7 @@
 
 **32** We will prepare for war and go across in front of the LORD into the land of Canaan. But our land will be on this side of the Jordan River."
 
-**33** So Moses gave land to the people of Gad, to the people of Reuben, and to half of the tribe of Manasseh, the son of Joseph. He gave them the kingdom of Sihon, the king of the Amorites, and the kingdom of Og, the king of Bashan. He gave them all the land with its cities and the areas around the cities.
+**33** So Moses gave land to the people of Gad and to the people of Reuben. He also gave land to half of the tribe of Manasseh, the son of Joseph. He gave them the kingdom of Sihon, the king of the Amorites, and the kingdom of Og, the king of Bashan. He gave them all the land with its cities and the areas around the cities.
 
 **34** The people of Gad built again the cities of Dibon, Ataroth, Aroer,
 
@@ -2599,7 +2599,7 @@
 
 **22** But a person can push another person suddenly without hate. Or he can throw something at him without the intention to hurt him.
 
-**23** Or he can drop a stone that can kill on a person without seeing him. The person dies, but the attacker was not his enemy. He did not want to hurt him.
+**23** Or he can drop a stone that can kill on a person, but he does not see the person. The person dies, but the attacker was not his enemy. He did not want to hurt him.
 
 **24** Then the community must judge between the person who killed and the relative who wants revenge. They must use these rules.
 

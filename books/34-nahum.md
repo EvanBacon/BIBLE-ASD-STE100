@@ -40,7 +40,7 @@
 
 **3** The shields of the enemy soldiers are red. The brave soldiers wear red clothes. The metal on the chariots shines like fire on the day that the soldiers prepare for war. The soldiers shake their spears of fir wood.
 
-**4** The chariots move very quickly in the streets. They hit one another in the wide roads. They look like burning torches. They move as fast as lightning.
+**4** The chariots move very quickly in the streets. They hit one another in the wide roads. They look like torches of fire. They move as fast as lightning.
 
 **5** The king of Nineveh calls his best officers. But they fall as they walk. They run quickly to the wall of the city. The enemy puts a shield in position to protect the soldiers who attack.
 
@@ -58,7 +58,7 @@
 
 **12** The lion killed enough food for his young lions. He killed animals for his female lions. He filled his caves with the animals that he killed.
 
-**13** The LORD of armies says, "I am against you, Nineveh. I will burn your chariots, and they will become smoke. The sword will kill your young soldiers. I will stop you from taking things from the earth. People will not hear the voices of your messengers again."
+**13** The LORD of armies says, "I am against you, Nineveh. I will burn your chariots, and they will become smoke. The sword will kill your young soldiers. I will stop you. You will not take things from the earth again. People will not hear the voices of your messengers again."
 
 ## Chapter 3
 
@@ -66,7 +66,7 @@
 
 **2** Listen to the sound of the whips! Listen to the noise of the wheels! Hear the horses that run and the chariots that jump!
 
-**3** The horsemen attack with shining swords and bright spears. They kill very many people. There are very many dead bodies. People fall over the dead bodies.
+**3** The horsemen attack with bright swords and spears that shine. They kill very many people. There are very many dead bodies. People fall over the dead bodies.
 
 **4** All this happens because Nineveh is like a beautiful prostitute. She uses magic to get power. She makes nations into slaves by her prostitution. She controls families with her magic.
 
@@ -74,7 +74,7 @@
 
 **6** I will throw dirt on you. I will cause people to think that you are worthless. I will make you an example for all people to see.
 
-**7** All the people who see you will run away from you. They will say, 'Nineveh is destroyed. Who will be sad for her?' Nineveh, I cannot find a person who will comfort you."
+**7** All the people who see you will run away from you. They will say, 'Nineveh is a ruin. Who will be sad for her?' Nineveh, I cannot find a person who will comfort you."
 
 **8** Nineveh, are you better than the city of Thebes? Thebes was near the Nile River, and water was all around it. The river was its wall of defense. The water protected it.
 

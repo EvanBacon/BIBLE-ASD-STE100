@@ -6,7 +6,7 @@
 
 **2** Hanani, one of my brothers, came with some men from Judah. I asked them about the Jews who escaped and came back from captivity. I also asked them about Jerusalem.
 
-**3** They told me, "The people who came back from captivity live in the province. They have much trouble and shame. The wall of Jerusalem is broken down. Fire burned its gates."
+**3** They told me, "The people who came back from captivity live in the province. They have much trouble and shame. The wall of Jerusalem is in ruins. Fire burned its gates."
 
 **4** When I heard these words, I sat down and cried. For some days I was sad. I fasted and prayed to the God of heaven.
 
@@ -50,7 +50,7 @@
 
 **12** Then I got up in the night with a few men. I did not tell any person what my God told me to do for Jerusalem. There were no animals with me, only the animal that I rode.
 
-**13** At night I went out through the Valley Gate. I went toward the Dragon Well and to the Waste Gate (Dung Gate). I examined the walls of Jerusalem. The walls were broken down, and fire destroyed the gates.
+**13** At night I went out through the Valley Gate. I went toward the Dragon Well and to the Waste Gate (Dung Gate). I examined the walls of Jerusalem. The walls were in ruins, and fire destroyed the gates.
 
 **14** Then I continued to the Fountain Gate and to the Pool of the King. But there was no space for my animal to go through.
 
@@ -58,7 +58,7 @@
 
 **16** The officials did not know where I went or what I did. I did not yet tell the Jews, the priests, the nobles, the officials or the other workers.
 
-**17** Then I told them, "You see our trouble. Jerusalem is a ruin, and fire burned its gates. Come, let us build the wall of Jerusalem again. Then we will not be ashamed."
+**17** Then I told them, "You see our trouble. Jerusalem is a ruin, and fire burned its gates. Come, let us build the wall of Jerusalem again. Then people will not insult us again."
 
 **18** I told them that my God helped me. I also told them what the king said to me. They said, "Let us start to build." Thus they prepared for this good work.
 
@@ -152,7 +152,7 @@
 
 **9** But we prayed to our God. We put guards day and night to protect us from them.
 
-**10** The people of Judah said, "The workers who carry loads are tired. There is too much rubbish. We cannot build the wall."
+**10** The people of Judah said, "The workers who carry loads have no more strength. There is too much rubbish. We cannot build the wall."
 
 **11** Our enemies said, "The Jews will not know or see us until we come among them. Then we will kill them and stop the work."
 
@@ -194,13 +194,13 @@
 
 **6** When I heard their complaint and these words, I was very angry.
 
-**7** I thought carefully about the problem. Then I spoke strongly to the nobles and the officials. I told them, "You charge interest to your own brothers!" I called a large meeting against them.
+**7** I thought carefully about the problem. Then I spoke strongly to the nobles and the officials. I told them, "You charge interest to your own brothers!" I called a large assembly against them.
 
-**8** I told them, "As much as we can, we buy back our Jewish brothers who were sold to foreign nations. But now you sell your own brothers! Then we must buy them back again!" They were quiet. They had no answer.
+**8** I told them, "As much as we can, we buy back our Jewish brothers whom people sold to foreign nations. But now you sell your own brothers! Then we must buy them back again!" They were quiet. They had no answer.
 
 **9** I also said, "What you do is not good. You must obey our God and respect him. Then our foreign enemies will not insult us.
 
-**10** My brothers, my servants and I also lend money and grain to the people. Let us stop this practice of charging interest.
+**10** My brothers, my servants and I also lend money and grain to the people. Let us stop and not take interest from them.
 
 **11** Today give back to them their fields, vineyards, olive gardens and houses. Also give back the interest that you charge them on the money, grain, new wine and oil."
 
@@ -492,7 +492,7 @@
 
 **22** You gave them kingdoms and nations. You gave each of these lands to them. Thus they took the land of Sihon king of Heshbon. They also took the land of Og king of Bashan.
 
-**23** You made their children as many as the stars in the sky. You brought them into the land that you promised to their fathers. You told their fathers that they would go in and take it.
+**23** You made their children as many as the stars in the sky. You brought them into the land that you promised to their fathers. You told their fathers, 'Your children will go in and take it.'
 
 **24** Thus their children went in and took the land. You defeated the Canaanites who lived in the land. You gave the Canaanites, their kings and the people of the land to your people. Your people did as they wanted with them.
 
@@ -522,7 +522,7 @@
 
 **37** The large harvest of the land goes to the kings that you put over us because of our sins. They rule over our bodies and our animals as they want. We are in great trouble.
 
-**38** Because of all this, we make a firm agreement in writing. Our leaders, our Levites and our priests put their seals on it."
+**38** Because of all this, we make a firm agreement and write it down. Our leaders, our Levites and our priests put their seals on it."
 
 ## Chapter 10
 
@@ -582,7 +582,7 @@
 
 **28** The other people also joined: the priests, the Levites, the gatekeepers, the singers and the Nethinims. All the people who separated themselves from the people of the lands to obey the law of God joined. Their wives, sons and daughters who could understand also joined.
 
-**29** They joined their brothers, the nobles. They made a solemn promise. They agreed that a curse would come on them if they did not keep the promise. They promised to obey the law of God that God gave through his servant Moses. They promised to carefully obey all the commands, laws and rules of the LORD our Lord.
+**29** They joined their brothers, the nobles. They made a solemn promise. They agreed to accept a curse if they did not keep the promise. They promised to obey the law of God that God gave through his servant Moses. They promised to carefully obey all the commands, laws and rules of the LORD our Lord.
 
 **30** "We will not let our daughters marry the people of the land. We will not let our sons marry their daughters.
 
@@ -612,13 +612,13 @@
 
 **3** These are the leaders of the province who lived in Jerusalem. Other Israelites, priests, Levites, Nethinims and descendants of the servants of Solomon lived in the cities of Judah. Each person lived on his own property in his own city.
 
-**4** Some descendants of Judah and of Benjamin lived in Jerusalem. From the descendants of Judah: Athaiah the son of Uzziah, the son of Zechariah, the son of Amariah, the son of Shephatiah, the son of Mahalaleel, from the descendants of Perez.
+**4** Some descendants of Judah and of Benjamin lived in Jerusalem. From the descendants of Judah, there was Athaiah the son of Uzziah. Uzziah was the son of Zechariah, the son of Amariah, the son of Shephatiah, the son of Mahalaleel. Mahalaleel was from the descendants of Perez.
 
-**5** Also Maaseiah the son of Baruch, the son of Col-hozeh, the son of Hazaiah, the son of Adaiah, the son of Joiarib, the son of Zechariah, the son of Shiloni.
+**5** Also Maaseiah the son of Baruch lived there. Baruch was the son of Col-hozeh, the son of Hazaiah, the son of Adaiah. Adaiah was the son of Joiarib, the son of Zechariah, the son of Shiloni.
 
 **6** There were 468 brave men from the descendants of Perez who lived in Jerusalem.
 
-**7** These are the descendants of Benjamin: Sallu the son of Meshullam, the son of Joed, the son of Pedaiah, the son of Kolaiah, the son of Maaseiah, the son of Ithiel, the son of Jesaiah.
+**7** These are the descendants of Benjamin. There was Sallu the son of Meshullam, the son of Joed, the son of Pedaiah. Pedaiah was the son of Kolaiah, the son of Maaseiah, the son of Ithiel, the son of Jesaiah.
 
 **8** After him there were Gabbai and Sallai. In total there were 928 men.
 
@@ -626,9 +626,9 @@
 
 **10** From the priests: Jedaiah the son of Joiarib, and Jachin.
 
-**11** Seraiah the son of Hilkiah, the son of Meshullam, the son of Zadok, the son of Meraioth, the son of Ahitub, was the leader in the house of God.
+**11** Seraiah the son of Hilkiah was the leader in the house of God. Hilkiah was the son of Meshullam, the son of Zadok, the son of Meraioth, the son of Ahitub.
 
-**12** Their brothers who did the work in the temple were 822 men. Adaiah the son of Jeroham was also there. Adaiah was the son of Jeroham, the son of Pelaliah, the son of Amzi, the son of Zechariah, the son of Pashur, the son of Malchiah.
+**12** Their brothers who did the work in the temple were 822 men. Also there was Adaiah the son of Jeroham. Jeroham was the son of Pelaliah, the son of Amzi, the son of Zechariah, the son of Pashur, the son of Malchiah.
 
 **13** His brothers, who were family leaders, were 242 men. Amashai the son of Azareel was also there. Amashai was the son of Azareel, the son of Ahasai, the son of Meshillemoth, the son of Immer.
 
@@ -748,7 +748,7 @@
 
 **34** with Judah, Benjamin, Shemaiah and Jeremiah.
 
-**35** Some of the sons of the priests also followed with trumpets. One of them was Zechariah the son of Jonathan, the son of Shemaiah, the son of Mattaniah, the son of Michaiah, the son of Zaccur, the son of Asaph.
+**35** Some of the sons of the priests also followed with trumpets. One of them was Zechariah the son of Jonathan, the son of Shemaiah. Shemaiah was the son of Mattaniah, the son of Michaiah, the son of Zaccur, the son of Asaph.
 
 **36** His brothers also went. They were Shemaiah, Azarael, Milalai, Gilalai, Maai, Nethaneel, Judah and Hanani. They had the musical instruments of David, the man of God. Ezra the scribe walked in front of them.
 
@@ -812,7 +812,7 @@
 
 **18** Your fathers did the same things. Thus our God brought all this trouble on us and on this city. Now you make God more angry with Israel, because you make the Sabbath unholy."
 
-**19** Before the Sabbath, the shadows fell on the gates of Jerusalem. Then I gave an order to close the gates. I told the people not to open the gates until after the Sabbath. I put some of my servants at the gates. They had to stop all loads from coming in on the Sabbath day.
+**19** Before the Sabbath, the shadows fell on the gates of Jerusalem. Then I gave an order to close the gates. I told the people not to open the gates until after the Sabbath. I put some of my servants at the gates. They had to make sure that no person brought loads in on the Sabbath day.
 
 **20** Once or twice the merchants and sellers of all types of goods stayed the night outside Jerusalem.
 

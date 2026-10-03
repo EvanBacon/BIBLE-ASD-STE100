@@ -16,11 +16,11 @@
 
 **7** You put unclean food on my altar. But you ask, 'How did we make you unclean?' You did it when you said, 'The table of the LORD is not important.'
 
-**8** You bring blind animals as a sacrifice. That is wrong! You bring animals that cannot walk well or that are sick. That is wrong! Give them to your governor. Will he be pleased with you? Will he accept you?" says the LORD of armies.
+**8** You bring blind animals as a sacrifice. That is wrong! You bring animals that cannot walk well or that are sick. That is wrong! Give them to your governor. Will he be happy with you? Will he accept you?" says the LORD of armies.
 
 **9** "Now ask God to be kind to us. But you did these bad things. Will God accept you?" says the LORD of armies.
 
-**10** "I want one of you to close the doors of the temple. Then you will not light useless fires on my altar. I am not pleased with you," says the LORD of armies. "I will not accept an offering from your hands.
+**10** "I want one of you to close the doors of the temple. Then you will not light useless fires on my altar. I am not happy with you," says the LORD of armies. "I will not accept an offering from your hands.
 
 **11** My name will be great among the nations, from the east to the west. In every place people will burn incense to me. They will bring clean offerings to me. My name will be great among the nations," says the LORD of armies.
 
@@ -40,13 +40,13 @@
 
 **4** Then you will know that I sent this command to you. I want my agreement (covenant) with Levi to continue," says the LORD of armies.
 
-**5** "My covenant with Levi gave him life and peace. I gave these things to him so that he would respect me. He respected me and had fear of my name.
+**5** "My covenant with Levi gave him life and peace. I gave these things to him so that he will respect me. He respected me and had fear of my name.
 
 **6** He taught true instructions. He did not say wrong things. He lived with me in peace and honesty. He turned many people away from sin.
 
 **7** A priest must keep knowledge and teach it. People must get instructions from him, because he is the messenger of the LORD of armies.
 
-**8** But you turned away from the correct way. Your teaching caused many people to sin. You broke the covenant with Levi," says the LORD of armies.
+**8** But you turned away from the correct way. Your instructions caused many people to sin. You broke the covenant with Levi," says the LORD of armies.
 
 **9** "Thus I made all the people think that you are low and have no value. You did not obey my ways. When you taught the law, you treated people unfairly."
 
@@ -64,7 +64,7 @@
 
 **16** "I hate divorce," says the LORD, the God of Israel. "I hate it when a man is cruel to his wife," says the LORD of armies. "Thus be careful, and do not be unfaithful."
 
-**17** You make the LORD tired with your words. But you ask, "How do we make him tired?" You do it when you say, "All people who do evil are good to the LORD. He is pleased with them." You also do it when you ask, "Where is the God who is fair?"
+**17** You make the LORD tired with your words. But you ask, "How do we make him tired?" You do it when you say, "All people who do evil are good to the LORD. He is happy with them." You also do it when you ask, "Where is the God who is fair?"
 
 ## Chapter 3
 
@@ -78,7 +78,7 @@
 
 **5** "I will come near to you to judge you. I will quickly speak against people who use magic. I will speak against people who are not faithful in marriage. I will speak against people who make false promises. I will speak against people who cheat workers of their pay. I will speak against people who are cruel to widows, to children with no father, and to foreigners. These people do not respect me," says the LORD of armies.
 
-**6** "I am the LORD, and I do not change. Thus you, the descendants of Jacob, are not destroyed.
+**6** "I am the LORD, and I do not change. Thus I do not destroy you, the descendants of Jacob.
 
 **7** Since the time of your ancestors, you turned away from my laws. You did not obey them. Come back to me, and I will come back to you," says the LORD of armies. "But you ask, 'How must we come back?'
 
@@ -98,7 +98,7 @@
 
 **15** Thus now we say that proud people are happy. People who do evil are successful. They test God, and nothing bad occurs to them.'"
 
-**16** Then the people who respected the LORD spoke with each other. The LORD listened and heard them. In front of the LORD, a book of memories was written about the people who respected the LORD and thought about his name.
+**16** Then the people who respected the LORD spoke with each other. The LORD listened and heard them. In front of the LORD, someone wrote a book of memories. It told about the people who respected the LORD and thought about his name.
 
 **17** "They will be mine," says the LORD of armies. "On the day when I act, they will be my special possession. I will be kind to them, as a man is kind to his son who serves him.
 

@@ -18,7 +18,7 @@
 
 **8** Epaphras told us about your love in the Spirit.
 
-**9** Thus, since the day we heard about you, we do not stop our prayers for you. We ask God to fill you with the knowledge of his will. We ask him to give you all wisdom and spiritual understanding.
+**9** Thus, since the day we heard about you, we do not stop our prayers for you. We ask God to fill you with the knowledge of his will. We ask him to give you all wisdom and spiritual knowledge.
 
 **10** Then you will live in a way that is correct for the Lord. You will make him happy in all things. You will do all types of good work. You will know God better and better.
 
@@ -64,9 +64,9 @@
 
 **1** I want you to know how hard I work for you. I also work hard for the people in Laodicea. I work for all the people who did not meet me in person.
 
-**2** I want them to have encouragement in their hearts. I want love to join them together. I want them to have the riches of complete and certain understanding. Then they will know the secret of God, which is Christ.
+**2** I want them to have encouragement in their hearts. I want love to join them together. I want them to have the riches of complete and certain knowledge. Then they will know the secret of God, which is Christ.
 
-**3** All the treasures of wisdom and knowledge are hidden in Christ.
+**3** God put all the treasures of wisdom and knowledge in Christ, in a secret place.
 
 **4** I tell you this so that no person will trick you with words that sound good.
 
@@ -74,7 +74,7 @@
 
 **6** You received Christ Jesus as Lord. Thus, continue to live in him.
 
-**7** Let your roots grow deep into Christ, and let your lives be built on him. Become strong in the faith, as people taught you. Always give thanks.
+**7** Let your roots grow deep into Christ, and build your lives on him. Become strong in the faith, as people taught you. Always give thanks.
 
 **8** Be careful. Do not let any person take control of you through empty and false ideas. These ideas come from human traditions and from the spiritual powers of the world. They do not come from Christ.
 
@@ -86,7 +86,7 @@
 
 **12** When you received baptism, God buried you with Christ. In baptism, God also raised you with Christ through your faith. You believed in the power of God, who raised Christ from the dead.
 
-**13** You were dead because of your sins. You were not circumcised in your sinful nature. But God made you alive with Christ. God forgave all your sins.
+**13** You were dead because of your sins. You did not have circumcision in your sinful nature. But God made you alive with Christ. God forgave all your sins.
 
 **14** There was a written record of our debts against us. The rules in this record were against us. God removed this record. He nailed it to the cross.
 
@@ -104,7 +104,7 @@
 
 **21** These rules say, "Do not hold this. Do not taste that. Do not touch that."
 
-**22** All these things will be destroyed when people use them. These rules are only human commandments and teachings.
+**22** All these things go to destruction when people use them. These rules are only human commandments and lessons.
 
 **23** It is true that these rules seem wise. They cause people to worship in their own way, to show false humility and to treat the body badly. But these rules do not help people to stop the desires of the sinful nature.
 
@@ -114,7 +114,7 @@
 
 **2** Think about the things in heaven. Do not think about the things on earth.
 
-**3** You died, and your life is hidden with Christ in God.
+**3** You died, and God keeps your life in a secret place with Christ in God.
 
 **4** Christ is your life. When Christ comes again, you will also come with him in glory.
 
@@ -196,4 +196,4 @@
 
 **17** Say to Archippus, "Make sure that you complete the work that you received in the Lord."
 
-**18** I, Paul, write this greeting with my own hand. Remember that I am in chains. I ask that God give you grace. Amen.
+**18** I, Paul, write these words to greet you with my own hand. Remember that I am in chains. I ask that God give you grace. Amen.

@@ -70,9 +70,9 @@
 
 **13** I know where you live. Satan has his throne there. But you stay loyal to my name. You did not refuse your faith in me. You stayed loyal at the time when people killed Antipas in your city. Antipas was my loyal witness. Satan lives in your city.
 
-**14** But I have a few things against you. Some of you follow the teaching of Balaam. Balaam taught Balak to cause the people of Israel to sin. He caused them to eat food that people offered to idols. He caused them to do sexual sins.
+**14** But I have a few things against you. Some of you follow the message of Balaam. Balaam taught Balak to cause the people of Israel to sin. He caused them to eat food that people offered to idols. He caused them to do sexual sins.
 
-**15** Also, some of you follow the teaching of the Nicolaitans.
+**15** Also, some of you follow the message of the Nicolaitans.
 
 **16** Thus, repent! If you do not repent, I will come to you soon. I will fight against those people with the sword of my mouth.
 
@@ -90,7 +90,7 @@
 
 **23** I will kill her children. Then all the churches will know that I examine the thoughts and the hearts of people. I will pay each of you for the things that you did.
 
-**24** Now I speak to the other people in Thyatira. You do not follow the teaching of Jezebel. You did not learn what some people call the deep secrets of Satan. I will not put any other load on you.
+**24** Now I speak to the other people in Thyatira. You do not follow the message of Jezebel. You did not learn what some people call the deep secrets of Satan. I will not put any other load on you.
 
 **25** But hold tightly to the truth that you have until I come.
 
@@ -104,7 +104,7 @@
 
 ## Chapter 3
 
-**1** "Write this to the angel of the church in Sardis: The one who has the 7 Spirits of God and the 7 stars says these things: I know the things that you do. People say that you are alive, but you are dead.
+**1** "Write this to the angel of the church in Sardis. The one who has the 7 Spirits of God and the 7 stars says these things. I know the things that you do. People say that you are alive, but you are dead.
 
 **2** Wake up! Make strong the things that remain, because they will soon die. In the view of my God, your work is not complete.
 
@@ -122,7 +122,7 @@
 
 **9** Look, some people are from the synagogue of Satan. They say that they are Jews, but they are not. They are liars. I will cause them to come and bow down at your feet. They will know that I love you.
 
-**10** You obeyed my command to have patience. Thus, I will keep you safe from the time of testing. That time will come to the whole world. It will test the people who live on the earth.
+**10** You obeyed my command to have patience. Thus, I will keep you safe from the time of temptation. That time will come to the whole world. It will test the people who live on the earth.
 
 **11** I come soon. Hold tightly to what you have. Then no person can take your crown.
 
@@ -160,13 +160,13 @@
 
 **5** Lightning flashes, sounds, and thunder came out of the throne. 7 lamps of fire burned in front of the throne. These lamps are the 7 Spirits of God.
 
-**6** In front of the throne was a sea of glass, clear as crystal. In the center, around the throne, were 4 living creatures. They had many eyes on their front and on their back.
+**6** In front of the throne was a sea of glass, clear as crystal. In the center, around the throne, were 4 creatures. They had many eyes on their front and on their back.
 
-**7** The first living creature was like a lion. The second was like a young bull. The third had a face like a man. The fourth was like an eagle that flies.
+**7** The first creature was like a lion. The second was like a young bull. The third had a face like a man. The fourth was like an eagle that flies.
 
-**8** Each of the 4 living creatures had 6 wings. They had eyes all around and inside. Day and night they do not stop. They say, "Holy, holy, holy is the Lord God Almighty. He was, he is, and he will come."
+**8** Each of the 4 creatures had 6 wings. They had eyes all around and inside. Day and night they do not stop. They say, "Holy, holy, holy is the Lord God Almighty. He was, he is, and he will come."
 
-**9** The living creatures give glory, honor, and thanks to the person who sits on the throne. He lives forever and ever.
+**9** The creatures give glory, honor, and thanks to the person who sits on the throne. He lives forever and ever.
 
 **10** When the creatures do this, the 24 elders bow down in front of him. They worship the one who lives forever and ever. They put their crowns in front of the throne and say,
 
@@ -174,7 +174,7 @@
 
 ## Chapter 5
 
-**1** Then I saw a scroll in the right hand of the person who sat on the throne. The scroll had writing on the inside and on the outside. 7 seals closed the scroll.
+**1** Then I saw a scroll in the right hand of the person who sat on the throne. The scroll had words on the inside and on the outside. 7 seals closed the scroll.
 
 **2** I saw a strong angel. He spoke with a loud voice. He said, "Who deserves to break the seals and open the scroll?"
 
@@ -184,39 +184,39 @@
 
 **5** Then one of the elders said to me, "Do not cry. Look! The Lion from the tribe of Judah won the victory. He is the Root of David. He can open the scroll and its 7 seals."
 
-**6** Then I saw a Lamb. He stood in the center, near the throne and the 4 living creatures and among the elders. The Lamb looked as if someone killed him. He had 7 horns and 7 eyes. The eyes are the 7 Spirits of God. God sends them out into all the earth.
+**6** Then I saw a Lamb. He stood in the center, near the throne and the 4 creatures and among the elders. The Lamb looked as if someone killed him. He had 7 horns and 7 eyes. The eyes are the 7 Spirits of God. God sends them out into all the earth.
 
 **7** The Lamb came and took the scroll from the right hand of the person who sat on the throne.
 
-**8** When the Lamb took the scroll, the 4 living creatures and the 24 elders bowed down in front of him. Each elder had a harp. Each elder also had gold bowls full of incense. The incense is the prayers of God's holy people.
+**8** When the Lamb took the scroll, the 4 creatures and the 24 elders bowed down in front of him. Each elder had a harp. Each elder also had gold bowls full of incense. The incense is the prayers of God's holy people.
 
 **9** They sang a new song: "You deserve to take the scroll and to open its seals. People killed you. With your blood you bought us for God. We are from every tribe, language, people, and nation.
 
 **10** You made us kings and priests for our God. We will rule on the earth."
 
-**11** Then I looked, and I heard the voices of many angels. They stood around the throne, the living creatures, and the elders. There were thousands and thousands of angels. There were millions of angels.
+**11** Then I looked, and I heard the voices of many angels. They stood around the throne, the creatures, and the elders. There were thousands and thousands of angels. There were millions of angels.
 
 **12** They said with a loud voice, "People killed the Lamb. He deserves to get power, wealth, wisdom, strength, honor, glory, and praise!"
 
-**13** Then I heard all creatures in heaven, on the earth, under the earth, and in the sea. All the creatures in those places said, "Praise, honor, glory, and power belong to the one who sits on the throne and to the Lamb, forever and ever!"
+**13** Then I heard all creatures in heaven, on the earth, under the earth, and in the sea. All the creatures in those places spoke. They said, "Praise, honor, glory, and power belong to the one who sits on the throne and to the Lamb, forever and ever!"
 
-**14** The 4 living creatures said, "Amen." Then the 24 elders bowed down. They worshiped the one who lives forever and ever.
+**14** The 4 creatures said, "Amen." Then the 24 elders bowed down. They worshiped the one who lives forever and ever.
 
 ## Chapter 6
 
-**1** I watched when the Lamb opened the first of the 7 seals. Then I heard one of the 4 living creatures speak with a voice like thunder. It said, "Come!"
+**1** I watched when the Lamb opened the first of the 7 seals. Then I heard one of the 4 creatures speak with a voice like thunder. It said, "Come!"
 
 **2** I looked and saw a white horse. The rider of the horse had a bow. God gave him a crown. He went out to win battles. He wanted to win the victory.
 
-**3** The Lamb opened the second seal. Then I heard the second living creature say, "Come!"
+**3** The Lamb opened the second seal. Then I heard the second creature say, "Come!"
 
 **4** Then another horse came out. It was red. God gave its rider power to take peace from the earth. The rider caused people to kill each other. God gave him a large sword.
 
-**5** The Lamb opened the third seal. Then I heard the third living creature say, "Come!" I looked and saw a black horse. Its rider held a pair of scales in his hand.
+**5** The Lamb opened the third seal. Then I heard the third creature say, "Come!" I looked and saw a black horse. Its rider held a pair of scales in his hand.
 
-**6** Then I heard a sound like a voice among the 4 living creatures. The voice said, "A quart of wheat costs the pay for 1 day of work. 3 quarts of barley cost the pay for 1 day of work. But do not damage the olive oil and the wine!"
+**6** Then I heard a sound like a voice among the 4 creatures. The voice said, "A quart of wheat costs the pay for 1 day of work. 3 quarts of barley cost the pay for 1 day of work. But do not damage the olive oil and the wine!"
 
-**7** The Lamb opened the fourth seal. Then I heard the voice of the fourth living creature say, "Come!"
+**7** The Lamb opened the fourth seal. Then I heard the voice of the fourth creature say, "Come!"
 
 **8** I looked and saw a pale horse. The name of its rider was Death. Hades followed close behind him. God gave them power over a fourth of the earth. They killed people with the sword, with hunger, with disease, and with the wild animals of the earth.
 
@@ -242,7 +242,7 @@
 
 **1** After this, I saw 4 angels. They stood at the 4 corners of the earth. They held back the 4 winds of the earth. They stopped the wind. Thus no wind blew on the land, on the sea, or on any tree.
 
-**2** Then I saw another angel. He came up from the east. He had the seal of the living God. God gave the 4 angels power to damage the land and the sea. The other angel shouted with a loud voice to them.
+**2** Then I saw another angel. He came up from the east. He had the seal of the God who lives. God gave the 4 angels power to damage the land and the sea. The other angel shouted with a loud voice to them.
 
 **3** He said, "Do not damage the land, the sea, or the trees yet. First we must put a seal on the foreheads of the servants of our God."
 
@@ -260,7 +260,7 @@
 
 **10** They shouted with a loud voice, "Our God, who sits on the throne, and the Lamb have the power to save!"
 
-**11** All the angels stood around the throne, the elders, and the 4 living creatures. The angels bowed down with their faces to the ground in front of the throne. They worshiped God.
+**11** All the angels stood around the throne, the elders, and the 4 creatures. The angels bowed down with their faces to the ground in front of the throne. They worshiped God.
 
 **12** They said, "Amen! Praise, glory, wisdom, thanks, honor, power, and strength belong to our God forever and ever. Amen!"
 
@@ -292,7 +292,7 @@
 
 **8** The second angel blew his trumpet. Then something like a large mountain that burned with fire fell into the sea. A third of the sea became blood.
 
-**9** A third of the living creatures in the sea died. The fire destroyed a third of the ships.
+**9** A third of the creatures in the sea died. The fire destroyed a third of the ships.
 
 **10** The third angel blew his trumpet. Then a large star fell from the sky. It burned like a torch. It fell on a third of the rivers and on the springs of water.
 
@@ -372,7 +372,7 @@
 
 ## Chapter 11
 
-**1** Someone gave me a measuring stick like a rod. The angel said to me, "Go and measure the temple of God and the altar. Count the people who worship there.
+**1** Someone gave me a stick like a rod to measure with. The angel said to me, "Go and measure the temple of God and the altar. Count the people who worship there.
 
 **2** But do not measure the court outside the temple. God gave that court to the Gentiles. They will walk on the holy city and damage it for 42 months.
 
@@ -452,7 +452,7 @@
 
 **2** The beast that I saw was like a leopard. Its feet were like the feet of a bear. Its mouth was like the mouth of a lion. The dragon gave the beast its power, its throne, and much authority.
 
-**3** One of the heads of the beast looked as if it had a wound that would kill it. But the wound became healed. The whole world was surprised and followed the beast.
+**3** One of the heads of the beast looked as if it had a wound that can kill it. But the wound became well. The whole world was full of wonder and followed the beast.
 
 **4** People worshiped the dragon, because it gave its authority to the beast. They also worshiped the beast. They said, "Who is like the beast? Who can fight against it?"
 
@@ -470,7 +470,7 @@
 
 **11** Then I saw another beast. It came up out of the earth. It had 2 horns like a lamb, but it spoke like a dragon.
 
-**12** It uses all the authority of the first beast in the presence of the first beast. It causes the earth and all the people on the earth to worship the first beast. The first beast had the wound that would kill it, but the wound became healed.
+**12** It uses all the authority of the first beast in the presence of the first beast. It causes the earth and all the people on the earth to worship the first beast. The first beast had a wound that can kill, but the wound became well.
 
 **13** The second beast does great miracles. It causes fire to come down from the sky to the earth. People see this.
 
@@ -482,7 +482,7 @@
 
 **17** No person can buy or sell without the mark. The mark is the name of the beast or the number of its name.
 
-**18** Here you need wisdom. A person with understanding can calculate the number of the beast. It is the number of a man. The number is 666.
+**18** Here you need wisdom. A person with wisdom can calculate the number of the beast. It is the number of a man. The number is 666.
 
 ## Chapter 14
 
@@ -490,7 +490,7 @@
 
 **2** I heard a sound from heaven. It was like the sound of a large quantity of water that flows fast. It was like loud thunder. The sound that I heard was like the sound of many people who play harps.
 
-**3** They sang a new song in front of the throne, the 4 living creatures, and the elders. Only the 144,000 people could learn the song. God bought them from the earth.
+**3** They sang a new song in front of the throne, the 4 creatures, and the elders. Only the 144,000 people could learn the song. God bought them from the earth.
 
 **4** These people did not make themselves unclean with women. They are pure like virgins. They follow the Lamb to all places where he goes. God bought them from among all people. They are the first part of the harvest for God and for the Lamb.
 
@@ -540,7 +540,7 @@
 
 **6** The 7 angels with the 7 disasters came out of the temple. They wore clean, bright linen. They had gold belts around their chests.
 
-**7** Then one of the 4 living creatures gave 7 gold bowls to the 7 angels. The bowls were full of the anger of God, who lives forever and ever.
+**7** Then one of the 4 creatures gave 7 gold bowls to the 7 angels. The bowls were full of the anger of God, who lives forever and ever.
 
 **8** Smoke from the glory and the power of God filled the temple. No person could go into the temple until the 7 angels completed the 7 disasters.
 
@@ -550,7 +550,7 @@
 
 **2** The first angel went and poured out his bowl on the land. Then bad and painful sores came on the people who had the mark of the beast. The sores also came on the people who worshiped its statue.
 
-**3** The second angel poured out his bowl on the sea. The sea became like the blood of a dead person. Every living creature in the sea died.
+**3** The second angel poured out his bowl on the sea. The sea became like the blood of a dead person. Every creature that lived in the sea died.
 
 **4** The third angel poured out his bowl on the rivers and the springs of water. They became blood.
 
@@ -576,9 +576,9 @@
 
 **15** "Look! I will come as a thief comes, when people do not expect him. God blesses the person who stays awake and keeps his clothes on. That person will not walk naked. People will not see his shame."
 
-**16** Then the spirits gathered the kings at a place that is called Armageddon in Hebrew.
+**16** Then the spirits gathered the kings at a place that has the name Armageddon in Hebrew.
 
-**17** The seventh angel poured out his bowl into the air. Then a loud voice came out of the temple, from the throne. It said, "It is done!"
+**17** The seventh angel poured out his bowl into the air. Then a loud voice came out of the temple, from the throne. It said, "It is the end!"
 
 **18** Then there were lightning flashes, loud sounds, and thunder. There was a very strong earthquake. No earthquake was this strong at any time since people lived on the earth.
 
@@ -596,7 +596,7 @@
 
 **3** Then the Spirit controlled me, and the angel carried me away into a desert. There I saw a woman. She sat on a red beast. Names that insulted God covered the beast. The beast had 7 heads and 10 horns.
 
-**4** The woman wore purple and red clothes. She wore gold, valuable stones, and pearls. She held a gold cup in her hand. The cup was full of disgusting things and the dirty things of her sexual sins.
+**4** The woman wore purple and red clothes. She wore gold, valuable stones, and pearls. She held a gold cup in her hand. The cup was full of hateful things and the dirty things of her sexual sins.
 
 **5** A name was on her forehead. The name has a secret meaning: BABYLON THE GREAT, THE MOTHER OF PROSTITUTES AND OF THE DISGUSTING THINGS OF THE EARTH.
 
@@ -604,7 +604,7 @@
 
 **7** The angel said to me, "Why are you surprised? I will tell you the secret meaning of the woman and of the beast that carries her. The beast has 7 heads and 10 horns.
 
-**8** The beast that you saw was alive at one time, but now it is not. It will come up out of the bottomless pit and go to its destruction. Some people who live on the earth will see the beast. They will be surprised, because it was, and it is not, and it will come. Their names are not in the book of life since the start of the world.
+**8** The beast that you saw was alive at one time, but now it is not. It will come up out of the bottomless pit and go to its destruction. Some people who live on the earth will see the beast. They will be full of wonder, because it was, and it is not, and it will come. Their names are not in the book of life since the start of the world.
 
 **9** To understand this, you must have wisdom. The 7 heads are 7 mountains. The woman sits on these mountains.
 
@@ -650,7 +650,7 @@
 
 **11** The merchants of the earth will cry and feel sorrow for her. No person buys their goods any more.
 
-**12** They sold gold, silver, valuable stones, and pearls. They sold fine linen, purple cloth, silk, and red cloth. They sold all types of sweet-smelling wood. They sold all types of objects made of ivory, valuable wood, bronze, iron, and marble.
+**12** They sold gold, silver, valuable stones, and pearls. They sold fine linen, purple cloth, silk, and red cloth. They sold all types of wood with a sweet smell. They sold all types of objects made of ivory, valuable wood, bronze, iron, and marble.
 
 **13** They sold cinnamon, spice, incense, perfume, and frankincense. They sold wine, olive oil, fine flour, and wheat. They sold cattle, sheep, horses, and chariots. They sold slaves, and they sold the souls of people.
 
@@ -664,9 +664,9 @@
 
 **18** They saw the smoke when she burned. They shouted, 'No city was like this great city!'
 
-**19** They threw dust on their heads to show their sorrow. They cried and shouted, 'Terrible! Terrible! All the people with ships on the sea became rich because of the wealth of the great city. But in 1 hour she is destroyed!'
+**19** They threw dust on their heads to show their sorrow. They cried and shouted, 'Terrible! Terrible! All the people with ships on the sea became rich because of the wealth of the great city. But in 1 hour God destroyed her!'
 
-**20** Heaven, be happy because she is destroyed! Holy people, apostles, and prophets, be happy! God punished her because of what she did to you.
+**20** Heaven, be happy because God destroyed her! Holy people, apostles, and prophets, be happy! God punished her because of what she did to you.
 
 **21** Then a strong angel picked up a large stone like a millstone. He threw it into the sea. He said, "In the same manner, God will throw down the great city Babylon with force. People will never find her again.
 
@@ -684,7 +684,7 @@
 
 **3** Again the people said, "Alleluia!" The smoke from the city goes up for all time.
 
-**4** The 24 elders and the 4 living creatures fell down. They worshipped God, who sat on the throne. They said, "Amen. Alleluia!"
+**4** The 24 elders and the 4 creatures fell down. They worshipped God, who sat on the throne. They said, "Amen. Alleluia!"
 
 **5** Then a voice came from the throne. The voice said, "Praise our God, all you servants of God. Praise him, all you who fear him, the small people and the great people."
 
@@ -728,7 +728,7 @@
 
 **3** The angel threw him into the bottomless pit. He closed the pit and put a seal on it above Satan. Thus Satan cannot deceive the nations until the 1,000 years are complete. After that time, Satan must go free for a short time.
 
-**4** Then I saw thrones. People sat on the thrones, and God gave them the authority to judge. I also saw the souls of the people whose heads were cut off. Their enemies killed them because they spoke the truth about Jesus and the word of God. These people did not worship the beast or its image. They did not take the mark of the beast on their foreheads or on their hands. They came back to life and ruled with Christ for 1,000 years.
+**4** Then I saw thrones. People sat on the thrones, and God gave them the authority to judge. I also saw the souls of the people whose heads their enemies cut off. Their enemies killed them because they spoke the truth about Jesus and the word of God. These people did not worship the beast or its image. They did not take the mark of the beast on their foreheads or on their hands. They came back to life and ruled with Christ for 1,000 years.
 
 **5** The other dead people did not come back to life until the 1,000 years were complete. This is the first resurrection.
 
@@ -760,7 +760,7 @@
 
 **3** I heard a loud voice from heaven. The voice said, "Look! The home (tabernacle) of God is with people. God will live with them. They will be his people. God himself will be with them and be their God.
 
-**4** God will remove all tears from their eyes. There will be no more death. There will be no more sadness, no more crying, and no more pain. The old things are gone."
+**4** God will remove all tears from their eyes. There will be no more death. There will be no more sadness, no more tears, and no more pain. The old things are gone."
 
 **5** The person who sat on the throne said, "Look! I make all things new." He also said, "Write this, because these words are true and you can trust them."
 
@@ -768,7 +768,7 @@
 
 **7** The person who wins the fight will get all these things. I will be his God, and he will be my son.
 
-**8** But some people will have their place in the lake of fire and sulfur. These are the cowards, the people who do not believe, and the people who do disgusting things. They are also the murderers, the people who commit sexual sins, the people who use magic, the people who worship idols, and all liars. The lake of fire is the second death."
+**8** But some people will have their place in the lake of fire and sulfur. These are the cowards, the people who do not believe, and the people who do hateful things. They are also the murderers and the people who commit sexual sins. They are also the people who use magic, the people who worship idols, and all liars. The lake of fire is the second death."
 
 **9** One of the 7 angels came to me. These angels held the 7 bowls full of the 7 last plagues. The angel said to me, "Come here. I will show you the bride, the wife of the Lamb."
 
@@ -778,7 +778,7 @@
 
 **12** The city had a large, high wall with 12 gates. There were 12 angels at the gates. On the gates were the names of the 12 tribes of Israel.
 
-**13** There were 3 gates on the east side, 3 gates on the north side, 3 gates on the south side, and 3 gates on the west side.
+**13** There were 3 gates on the east side and 3 gates on the north side. There were 3 gates on the south side and 3 gates on the west side.
 
 **14** The wall of the city had 12 foundation stones. On the stones were the 12 names of the 12 apostles of the Lamb.
 
@@ -806,7 +806,7 @@
 
 **26** The people will bring the glory and the honor of the nations into the city.
 
-**27** Nothing unclean will go into the city. No person who does disgusting things or tells lies will go into the city. Only the people whose names are in the book of life of the Lamb will go in.
+**27** Nothing unclean will go into the city. No person who does hateful things or tells lies will go into the city. Only the people whose names are in the book of life of the Lamb will go in.
 
 ## Chapter 22
 

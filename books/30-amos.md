@@ -82,7 +82,7 @@
 
 **7** The Lord GOD does nothing until he tells his plan to his servants, the prophets.
 
-**8** The lion roared. Who will not be afraid? The Lord GOD spoke. Who can stop himself from prophesying?
+**8** The lion roared. Who will not be afraid? The Lord GOD spoke. Who can stop himself? He must prophesy.
 
 **9** Announce this to the strong buildings of Ashdod and the strong buildings of the land of Egypt. Say, "Gather on the mountains around Samaria. Look at the great confusion in Samaria. Look at how the people there hurt each other."
 
@@ -90,13 +90,13 @@
 
 **11** Thus the Lord GOD says this: "An enemy will surround the land. The enemy will destroy your defenses. The enemy will take everything from your strong buildings."
 
-**12** The LORD says this: "A shepherd tries to save his sheep from a lion. But he saves only 2 leg bones or a piece of an ear. In the same way, only a small part of the people of Israel will be saved. Those people live in Samaria and sit on the corners of beds and on the cushions of couches."
+**12** The LORD says this: "A shepherd tries to save his sheep from a lion. But he saves only 2 leg bones or a piece of an ear. In the same way, I will save only a small part of the people of Israel. Those people live in Samaria and sit on the corners of beds and on the cushions of couches."
 
 **13** "Hear this and warn the family of Jacob," the Lord GOD, the God of armies, says.
 
-**14** "On the day when I punish Israel for its sins, I will also destroy the altars of Bethel. The horns of the altar will be cut off and fall to the ground.
+**14** "On the day when I punish Israel for its sins, I will also destroy the altars of Bethel. Someone will cut off the horns of the altar, and they will fall to the ground.
 
-**15** I will destroy the winter houses and the summer houses. The houses decorated with ivory will be destroyed. The large houses will be destroyed," the LORD says.
+**15** I will destroy the winter houses and the summer houses. The houses with ivory decorations will fall. The large houses will come to an end," the LORD says.
 
 ## Chapter 4
 
@@ -120,7 +120,7 @@
 
 **10** "I sent diseases among you, as I did in Egypt. I killed your young men with the sword. I let the enemy take away your horses. I filled your noses with the smell of the dead bodies in your camps. But you did not come back to me," the LORD says.
 
-**11** "I destroyed some of you, as I destroyed Sodom and Gomorrah. You were like a burning stick that someone pulled out of a fire. But you did not come back to me," the LORD says.
+**11** "I destroyed some of you, as I destroyed Sodom and Gomorrah. You were like a stick that someone pulled out of a fire while it burned. But you did not come back to me," the LORD says.
 
 **12** "Thus I will punish you, Israel. Because I will do this to you, prepare to meet your God, Israel."
 
@@ -230,13 +230,13 @@
 
 **8** The LORD asked me, "Amos, what do you see?" I said, "A plumb line." Then the Lord said, "I will use a plumb line to examine my people Israel. I will not forgive them again.
 
-**9** The high places of Isaac will be destroyed. The holy places of Israel will become ruins. I will attack the family of Jeroboam with the sword."
+**9** The high places of Isaac will become empty. The holy places of Israel will become ruins. I will attack the family of Jeroboam with the sword."
 
 **10** Then Amaziah, the priest of Bethel, sent a message to Jeroboam, the king of Israel. He said, "Amos makes a plan against you among the people of Israel. The land cannot accept all his words.
 
 **11** Amos says, 'Jeroboam will die by the sword. The people of Israel will surely go as captives away from their land.'"
 
-**12** Then Amaziah said to Amos, "You prophet, go away. Go back to the land of Judah. Earn your living there. Prophesy there.
+**12** Then Amaziah said to Amos, "You prophet, go away. Go back to the land of Judah. Eat your bread there. Prophesy there.
 
 **13** But do not prophesy at Bethel again. Bethel is the holy place of the king. It is the temple of the kingdom."
 
@@ -254,7 +254,7 @@
 
 **2** He asked, "Amos, what do you see?" I said, "A basket of ripe summer fruit." Then the LORD said to me, "The end comes for my people Israel. I will not forgive them again.
 
-**3** On that day the songs in the temple will change into loud crying," the Lord GOD says. "There will be many dead bodies in all places. People will throw the bodies out in silence."
+**3** On that day the songs in the temple will change into loud cries of sorrow," the Lord GOD says. "There will be many dead bodies in all places. People will throw the bodies out in silence."
 
 **4** Hear this, you people who walk on the needy. You try to destroy the poor people of the land.
 
@@ -270,13 +270,13 @@
 
 **10** I will change your festivals into times of sadness. I will change all your songs into sad songs. I will make all of you wear sackcloth. I will make you shave your heads. It will be like the sadness for an only son who died. The end of that day will be very bitter.
 
-**11** The days will come," the Lord GOD says, "when I will send a famine on the land. It will not be a famine of bread. It will not be a thirst for water. It will be a famine of hearing the words of the LORD.
+**11** The days will come," the Lord GOD says, "when I will send a famine on the land. It will not be a famine of bread. It will not be a thirst for water. The people will not hear the words of the LORD.
 
 **12** People will wander from sea to sea. They will go from the north to the east. They will run here and there to look for the word of the LORD. But they will not find it.
 
 **13** On that day the beautiful young women and the young men will become weak from thirst.
 
-**14** Some people make promises by the shameful idol of Samaria. They say, 'Dan, we promise by your living god.' They say, 'We promise by the living god of Beersheba.' Those people will fall and never get up again."
+**14** Some people make promises by the shameful idol of Samaria. They say, 'Dan, we promise by your god, who lives.' They say, 'We promise by the god of Beersheba, who lives.' Those people will fall and never get up again."
 
 ## Chapter 9
 
@@ -304,7 +304,7 @@
 
 **12** Then my people will take what remains of Edom. They will take all the nations that belong to my name," the LORD says. The LORD will do this.
 
-**13** "The days will come," the LORD says, "when the harvest will be very large. The plowman will plow before the harvester finishes the harvest. The person who crushes grapes will work before the farmer finishes the planting. Sweet wine will flow from the mountains. Wine will flow from all the hills.
+**13** "The days will come," the LORD says, "when the harvest will be very large. The plowman will plow before the harvester finishes the harvest. The person who crushes grapes will work before the farmer finishes his work with the seed. Sweet wine will flow from the mountains. Wine will flow from all the hills.
 
 **14** I will bring my people Israel back from captivity. They will build again the destroyed cities and live in them. They will plant vineyards and drink their wine. They will make gardens and eat their fruit.
 

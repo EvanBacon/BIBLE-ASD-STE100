@@ -10,15 +10,15 @@
 
 **4** They give good sense to simple people. They give knowledge and good judgment to young men.
 
-**5** A wise man will listen and learn more. A man with understanding will get good advice.
+**5** A wise man will listen and learn more. A man with good sense will get good advice.
 
 **6** Then he will understand proverbs and their meanings. He will understand the words of wise people and their difficult sayings.
 
 **7** Fear of the LORD is the start of knowledge. But fools hate wisdom and correction.
 
-**8** My son, listen to the teaching of your father. Do not forget the teaching of your mother.
+**8** My son, listen to the instruction of your father. Do not forget the law of your mother.
 
-**9** Their teaching will be like a beautiful crown on your head. It will be like a chain of honor around your neck.
+**9** Their words will be like a beautiful crown on your head. They will be like a chain of honor around your neck.
 
 **10** My son, sinners will try to make you do wrong. Do not agree with them.
 
@@ -72,15 +72,15 @@
 
 **1** My son, accept my words. Keep my commands in your memory.
 
-**2** Listen carefully to wisdom. Use all your mind to get understanding.
+**2** Listen carefully to wisdom. Use all your mind to get good sense.
 
-**3** Call out for knowledge. Ask loudly for understanding.
+**3** Call out for knowledge. Ask loudly for good sense.
 
 **4** Look for wisdom as you look for silver. Search for it as you search for hidden treasure.
 
 **5** If you do these things, then you will understand the fear of the LORD. You will find the knowledge of God.
 
-**6** The LORD gives wisdom. Knowledge and understanding come from his mouth.
+**6** The LORD gives wisdom. Knowledge and good sense come from his mouth.
 
 **7** He keeps good wisdom for honest people. He is a shield to the people who live correctly.
 
@@ -116,7 +116,7 @@
 
 ## Chapter 3
 
-**1** My son, do not forget my teaching. Keep my commands in your heart.
+**1** My son, do not forget my law. Keep my commands in your heart.
 
 **2** My commands will give you a long life. They will give you many years and peace.
 
@@ -124,7 +124,7 @@
 
 **4** Then God and people will like you. They will think well of you.
 
-**5** Trust in the LORD with all your heart. Do not depend on your own understanding.
+**5** Trust in the LORD with all your heart. Do not depend on your own knowledge.
 
 **6** Remember the LORD in all that you do. He will make your paths straight.
 
@@ -140,7 +140,7 @@
 
 **12** The LORD corrects the people that he loves. A father corrects the son that gives him pleasure.
 
-**13** The man who finds wisdom is happy. The man who gets understanding is happy.
+**13** The man who finds wisdom is happy. The man who gets good sense is happy.
 
 **14** Wisdom is better than silver. Its profit is better than gold.
 
@@ -152,7 +152,7 @@
 
 **18** Wisdom is a tree of life to the people who hold her. The people who keep her are happy.
 
-**19** The LORD used wisdom to make the earth. He used understanding to put the heavens in their place.
+**19** The LORD used wisdom to make the earth. He used his knowledge to put the heavens in their place.
 
 **20** His knowledge caused the deep waters to break out. His knowledge causes the clouds to drop dew.
 
@@ -188,19 +188,19 @@
 
 ## Chapter 4
 
-**1** Children, listen to the teaching of your father. Pay attention so that you get understanding.
+**1** Children, listen to the instruction of your father. Pay attention so that you get good sense.
 
-**2** I give you good teaching. Do not leave my instruction.
+**2** I give you good instruction. Do not leave my law.
 
 **3** I was a son to my father. I was young and the only child that my mother loved.
 
 **4** My father taught me. He said, "Keep my words in your heart. Obey my commands and you will live.
 
-**5** Get wisdom. Get understanding. Do not forget my words. Do not turn away from them.
+**5** Get wisdom. Get good sense. Do not forget my words. Do not turn away from them.
 
 **6** Do not leave wisdom, and she will protect you. Love her, and she will keep you safe.
 
-**7** Wisdom is the most important thing. Thus, get wisdom. Use all that you have to get understanding.
+**7** Wisdom is the most important thing. Thus, get wisdom. Use all that you have to get good sense.
 
 **8** Think highly of wisdom, and she will make you great. Hold her close, and she will give you honor.
 
@@ -244,7 +244,7 @@
 
 ## Chapter 5
 
-**1** My son, pay attention to my wisdom. Listen carefully to my understanding.
+**1** My son, pay attention to my wisdom. Listen carefully to my words of knowledge.
 
 **2** Then you will keep good judgment. Your lips will keep knowledge.
 
@@ -266,7 +266,7 @@
 
 **11** At the end of your life you will cry. Your body will be weak and sick.
 
-**12** You will say, "I hated correction. My heart did not accept a warning.
+**12** You will say, "I hated correction. My heart did not accept words of correction.
 
 **13** I did not obey my teachers. I did not listen to the people who taught me.
 
@@ -320,7 +320,7 @@
 
 **14** His heart is dishonest. He always plans evil. He causes arguments.
 
-**15** Thus disaster will come on him suddenly. He will be destroyed suddenly, and nothing will help him.
+**15** Thus disaster will come on him suddenly. Suddenly he will break, and nothing will help him.
 
 **16** The LORD hates 6 things. There are 7 things that he hates very much:
 
@@ -330,13 +330,13 @@
 
 **19** a false witness who tells lies, and a person who causes arguments among brothers.
 
-**20** My son, obey the commands of your father. Do not forget the teaching of your mother.
+**20** My son, obey the commands of your father. Do not forget the law of your mother.
 
 **21** Always keep their words in your heart. Tie them around your neck.
 
-**22** When you walk, their teaching will lead you. When you sleep, it will protect you. When you wake up, it will speak to you.
+**22** When you walk, their words will lead you. When you sleep, they will protect you. When you wake up, they will speak to you.
 
-**23** The command is a lamp. The teaching is a light. Correction and discipline show you the way of life.
+**23** The command is a lamp. The law is a light. Correction and discipline show you the way of life.
 
 **24** They will keep you away from the evil woman. They will keep you from the sweet words of the adulterous woman.
 
@@ -348,7 +348,7 @@
 
 **28** Can a man walk on hot coals and not burn his feet?
 
-**29** The same is true for the man who sleeps with his neighbor's wife. Every man who touches her will be punished.
+**29** The same is true for the man who sleeps with his neighbor's wife. Every man who touches her will receive punishment.
 
 **30** People do not hate a thief if he steals food when he is hungry.
 
@@ -366,11 +366,11 @@
 
 **1** My son, obey my words. Keep my commands in your heart.
 
-**2** Obey my commands and you will live. Protect my teaching as you protect your eyes.
+**2** Obey my commands and you will live. Protect my law as you protect your eyes.
 
 **3** Tie my commands on your fingers. Write them on your heart.
 
-**4** Say to wisdom, "You are my sister." Call understanding your close relative.
+**4** Say to wisdom, "You are my sister." Call good sense your close relative.
 
 **5** They will keep you away from the adulterous woman. They will keep you away from the foreign woman who speaks false sweet words.
 
@@ -406,7 +406,7 @@
 
 **21** She used her many sweet words to persuade him. Her false words caused him to agree.
 
-**22** He followed her immediately. He went like an ox that goes to be killed. He went like a deer that goes into a trap.
+**22** He followed her immediately. He went like an ox that goes to its death. He went like a deer that goes into a trap.
 
 **23** He went until an arrow went into his body. He went like a bird that flies quickly into a trap. He did not know that the trap will kill him.
 
@@ -428,7 +428,7 @@
 
 **4** She says, "People, I call to you. I speak to all humans.
 
-**5** Simple people, learn to be careful. Fools, learn to have understanding.
+**5** Simple people, learn to be careful. Fools, learn to have good sense.
 
 **6** Listen, because I will tell you very good things. My lips will say what is right.
 
@@ -438,7 +438,7 @@
 
 **9** All my words are clear to the people who understand. They are correct to the people who have knowledge.
 
-**10** Accept my teaching instead of silver. Accept knowledge instead of the best gold.
+**10** Accept my instruction instead of silver. Accept knowledge instead of the best gold.
 
 **11** Wisdom is better than rubies. Nothing that you want is equal to her.
 
@@ -446,7 +446,7 @@
 
 **13** The fear of the LORD is to hate evil. I hate pride and arrogance. I hate the evil way and dishonest words.
 
-**14** I give advice and good wisdom. I have understanding and strength.
+**14** I give advice and good wisdom. I have good sense and strength.
 
 **15** Kings rule with my help. Rulers make fair laws with my help.
 
@@ -484,7 +484,7 @@
 
 **32** Now, children, listen to me. The people who obey my ways are happy.
 
-**33** Listen to my teaching and be wise. Do not refuse my teaching.
+**33** Listen to my instruction and be wise. Do not refuse my instruction.
 
 **34** The person who listens to me is happy. He watches at my gates every day. He waits at my doors.
 
@@ -504,7 +504,7 @@
 
 **5** "Come, eat my food. Drink the wine that I mixed.
 
-**6** Stop your foolish ways, and live. Walk in the way of understanding."
+**6** Stop your foolish ways, and live. Walk in the way of good sense."
 
 **7** If you correct a mocker, he will insult you. If you correct a wicked man, he will hurt you.
 
@@ -512,7 +512,7 @@
 
 **9** Teach a wise man, and he will become wiser. Teach a good man, and he will learn more.
 
-**10** Fear of the LORD is the start of wisdom. Knowledge of the Holy One is understanding.
+**10** Fear of the LORD is the start of wisdom. Knowledge of the Holy One gives good sense.
 
 **11** Wisdom will give you more days. She will add years to your life.
 
@@ -536,7 +536,7 @@
 
 **2** Wealth that a person gets by wicked acts has no value. But good acts save a person from death.
 
-**3** The LORD does not let good people become hungry. But he stops wicked people from getting what they want.
+**3** The LORD does not let good people become hungry. But he takes away the things that wicked people want.
 
 **4** Lazy hands make a man poor. But hard work makes a man rich.
 
@@ -556,7 +556,7 @@
 
 **12** Hate causes arguments. But love forgives all wrongs.
 
-**13** People find wisdom in the words of a person with understanding. But a person with no sense will get punishment with a stick.
+**13** People find wisdom in the words of a person with good sense. But a person with no sense will get punishment with a stick.
 
 **14** Wise people collect knowledge. But the words of a fool bring destruction near.
 
@@ -576,7 +576,7 @@
 
 **22** The blessing of the LORD makes a person rich. And the LORD adds no sadness to it.
 
-**23** A fool enjoys evil acts. But a man with understanding enjoys wisdom.
+**23** A fool enjoys evil acts. But a man with good sense enjoys wisdom.
 
 **24** The thing that a wicked person fears will come to him. But good people will get what they want.
 
@@ -620,7 +620,7 @@
 
 **11** The blessing of honest people makes a city great. But the words of wicked people destroy a city.
 
-**12** A person with no sense insults his neighbor. But a person with understanding stays quiet.
+**12** A person with no sense insults his neighbor. But a person with good sense stays quiet.
 
 **13** A gossip tells secrets. But a faithful person keeps a secret.
 
@@ -720,11 +720,11 @@
 
 ## Chapter 13
 
-**1** A wise son listens to the teaching of his father. But a mocker does not listen to correction.
+**1** A wise son listens to the instruction of his father. But a mocker does not listen to correction.
 
 **2** A good man gets good things from his words. But dishonest people want violence.
 
-**3** The person who controls his words protects his life. But the person who speaks carelessly will be destroyed.
+**3** The person who controls his words protects his life. But the person who speaks carelessly will come to ruin.
 
 **4** A lazy person wants things, but he gets nothing. A person who works hard gets all that he needs.
 
@@ -744,15 +744,15 @@
 
 **12** When hope comes late, the heart becomes sick. But when a desire comes true, it is like a tree of life.
 
-**13** The person who hates the word of God will be destroyed. But the person who respects the command will get a reward.
+**13** The person who hates the word of God will come to ruin. But the person who respects the command will get a reward.
 
-**14** The teaching of wise people is like a spring of life. It keeps a person away from the traps of death.
+**14** The law of wise people is like a spring of life. It keeps a person away from the traps of death.
 
-**15** Good understanding makes people like you. But the way of dishonest people is hard.
+**15** Good sense makes people like you. But the way of dishonest people is hard.
 
 **16** A wise person thinks before he acts. But a fool shows his foolishness.
 
-**17** A wicked messenger causes trouble. But a faithful messenger brings healing.
+**17** A wicked messenger causes trouble. But a faithful messenger brings health.
 
 **18** The person who refuses correction will become poor and have shame. But the person who accepts correction will get honor.
 
@@ -776,13 +776,13 @@
 
 **2** The person who lives honestly fears the LORD. But the person who is dishonest hates the LORD.
 
-**3** The words of a fool cause him to be punished for his pride. But the words of wise people protect them.
+**3** The words of a fool bring punishment on him because of his pride. But the words of wise people protect them.
 
 **4** If there are no oxen, the feed box is empty. But strong oxen give a large harvest.
 
 **5** An honest witness does not lie. But a false witness tells lies.
 
-**6** A mocker looks for wisdom, but he does not find it. But knowledge comes easily to a person with understanding.
+**6** A mocker looks for wisdom, but he does not find it. But knowledge comes easily to a person with good sense.
 
 **7** Go away from a foolish man. You will not hear knowledge from him.
 
@@ -826,9 +826,9 @@
 
 **27** Fear of the LORD is like a spring of life. It keeps a person away from the traps of death.
 
-**28** A king with many people has honor. But a prince without people is destroyed.
+**28** A king with many people has honor. But a prince without people comes to ruin.
 
-**29** A person who is slow to get angry has great understanding. But a person who gets angry quickly shows foolishness.
+**29** A person who is slow to get angry has much wisdom. But a person who gets angry quickly shows foolishness.
 
 **30** A calm heart gives life to the body. But envy is like a disease in the bones.
 
@@ -836,7 +836,7 @@
 
 **32** The wicked acts of wicked people destroy them. But good people have hope even at death.
 
-**33** Wisdom stays in the heart of a person with understanding. Even fools can know wisdom.
+**33** Wisdom stays in the heart of a person with good sense. Even fools can know wisdom.
 
 **34** Good acts make a nation great. But sin brings shame to all people.
 
@@ -870,7 +870,7 @@
 
 **13** A happy heart makes a happy face. But a sad heart breaks the spirit.
 
-**14** A person with understanding looks for knowledge. But fools are satisfied with foolishness.
+**14** A person with good sense looks for knowledge. But fools feed on foolishness.
 
 **15** All the days of a person in trouble are bad. But a happy heart is like a continuous feast.
 
@@ -884,7 +884,7 @@
 
 **20** A wise son makes his father happy. But a foolish man hates his mother.
 
-**21** Foolishness gives joy to a person with no sense. But a man with understanding goes straight ahead.
+**21** Foolishness gives joy to a person with no sense. But a man with good sense goes straight ahead.
 
 **22** Plans fail when there is no advice. But plans succeed when there are many advisers.
 
@@ -906,7 +906,7 @@
 
 **31** The person who listens to correction that gives life will live among wise people.
 
-**32** The person who refuses correction hurts himself. But the person who listens to correction gets understanding.
+**32** The person who refuses correction hurts himself. But the person who listens to correction gets good sense.
 
 **33** Fear of the LORD teaches wisdom. Humility comes before honor.
 
@@ -942,7 +942,7 @@
 
 **15** When the king is happy, there is life. His kindness is like a cloud that brings rain in spring.
 
-**16** It is much better to get wisdom than gold. It is much better to get understanding than silver.
+**16** It is much better to get wisdom than gold. It is much better to get good sense than silver.
 
 **17** The road of honest people goes away from evil. The person who watches his way protects his life.
 
@@ -964,7 +964,7 @@
 
 **26** The hunger of a worker makes him work. His hunger pushes him.
 
-**27** A wicked man makes evil plans. His words are like a burning fire.
+**27** A wicked man makes evil plans. His words are like a hot fire.
 
 **28** A dishonest man causes arguments. A gossip separates close friends.
 
@@ -1012,7 +1012,7 @@
 
 **16** A fool can have money to buy wisdom. But he does not want to learn, so the money has no use.
 
-**17** A friend loves at all times. A brother is born to help in times of trouble.
+**17** A friend loves at all times. A brother comes into the world to help in times of trouble.
 
 **18** A man with no sense promises to pay the debt of his neighbor. He makes an agreement for his neighbor.
 
@@ -1026,21 +1026,21 @@
 
 **23** A wicked man takes a bribe in secret. He uses it to make judgment unfair.
 
-**24** A person with understanding keeps wisdom in front of him. But the eyes of a fool look to the ends of the earth.
+**24** A person with good sense keeps wisdom in front of him. But the eyes of a fool look to the ends of the earth.
 
 **25** A foolish son makes his father sad. He makes his mother bitter.
 
 **26** It is not good to punish innocent people. It is not correct to hit honest leaders.
 
-**27** A person with knowledge uses few words. A person with understanding stays calm.
+**27** A person with knowledge uses few words. A person with good sense stays calm.
 
-**28** Even a fool seems wise when he is quiet. When he closes his lips, people think that he has understanding.
+**28** Even a fool seems wise when he is quiet. When he closes his lips, people think that he has good sense.
 
 ## Chapter 18
 
 **1** A person who stays away from others follows only his own desires. He argues against all good advice.
 
-**2** A fool does not enjoy understanding. He only wants to tell his own opinions.
+**2** A fool does not enjoy good sense. He only wants to tell his own opinions.
 
 **3** When a wicked person comes, hate also comes. Shame comes with disgrace.
 
@@ -1048,7 +1048,7 @@
 
 **5** It is not good to favor wicked people. It is not good to refuse justice to innocent people.
 
-**6** The words of a fool cause arguments. His mouth asks for a beating.
+**6** The words of a fool cause arguments. His mouth asks for blows.
 
 **7** The words of a fool destroy him. His lips are a trap for his soul.
 
@@ -1102,7 +1102,7 @@
 
 **7** All the brothers of a poor man hate him. His friends go far away from him. He calls after them, but they are gone.
 
-**8** The person who gets wisdom loves himself. The person who keeps understanding will succeed.
+**8** The person who gets wisdom loves himself. The person who keeps good sense will succeed.
 
 **9** A false witness will get punishment. A person who tells lies will die.
 
@@ -1132,7 +1132,7 @@
 
 **22** People want a person who is loyal. It is better to be poor than to be a liar.
 
-**23** Fear of the LORD leads to life. The person who fears the LORD will be satisfied and safe from harm.
+**23** Fear of the LORD leads to life. The person who fears the LORD will have all that he needs, and evil will not hurt him.
 
 **24** A lazy man puts his hand in the dish. But he does not even lift the food to his mouth.
 
@@ -1140,7 +1140,7 @@
 
 **26** A son who robs his father and sends away his mother causes shame and disgrace.
 
-**27** My son, if you stop listening to correction, you will turn away from the words of knowledge.
+**27** My son, if you stop and do not listen to correction, you will turn away from the words of knowledge.
 
 **28** A wicked witness mocks justice. Wicked people enjoy evil as if it is food.
 
@@ -1156,7 +1156,7 @@
 
 **4** A lazy person does not plow in the cold season. Thus at the harvest he looks for food and finds nothing.
 
-**5** The plans in the heart of a man are like deep water. But a man with understanding can find them.
+**5** The plans in the heart of a man are like deep water. But a man with good sense can find them.
 
 **6** Many men say that they are loyal. But it is hard to find a faithful man.
 
@@ -1230,7 +1230,7 @@
 
 **10** A wicked person wants evil. He shows no kindness to his neighbor.
 
-**11** When a mocker gets punishment, simple people become wise. When a wise person gets teaching, he gets more knowledge.
+**11** When a mocker gets punishment, simple people become wise. When a wise person gets instruction, he gets more knowledge.
 
 **12** God, who is good, watches the house of wicked people. He destroys the wicked people because of their evil.
 
@@ -1240,7 +1240,7 @@
 
 **15** When people do justice, good people are happy. But evil people are afraid.
 
-**16** A person who goes away from the way of understanding will stay with the dead.
+**16** A person who goes away from the way of good sense will stay with the dead.
 
 **17** The person who loves pleasure will become poor. The person who loves wine and oil will not be rich.
 
@@ -1268,13 +1268,13 @@
 
 **29** A wicked man acts boldly. But an honest person thinks carefully about his way.
 
-**30** No wisdom, no understanding and no plan can succeed against the LORD.
+**30** No wisdom, no insight and no plan can succeed against the LORD.
 
 **31** People make horses ready for the day of battle. But the LORD gives the victory.
 
 ## Chapter 22
 
-**1** Choose a good name instead of much wealth. Choose to be respected instead of silver and gold.
+**1** Choose a good name instead of much wealth. Choose the respect of people instead of silver and gold.
 
 **2** Rich people and poor people are the same in one thing. The LORD made all of them.
 
@@ -1330,7 +1330,7 @@
 
 **28** Do not move the old boundary stone that your ancestors put in its place.
 
-**29** Look at a man who is skilled in his work. He will work for kings. He will not work for unimportant people.
+**29** Look at a man who has skill and works hard. He will work for kings. He will not work for unimportant people.
 
 ## Chapter 23
 
@@ -1348,7 +1348,7 @@
 
 **7** The selfish man always thinks about the cost. He tells you, "Eat and drink." But he does not really want to give it to you.
 
-**8** You will vomit the small quantity of food that you ate. Your kind words to him will be wasted.
+**8** You will vomit the small quantity of food that you ate. You will lose your kind words to him.
 
 **9** Do not speak to a fool. He will hate the wisdom of your words.
 
@@ -1378,7 +1378,7 @@
 
 **22** Listen to your father, who gave you life. Do not hate your mother when she is old.
 
-**23** Get the truth, and do not sell it. Also get wisdom, instruction and understanding.
+**23** Get the truth, and do not sell it. Also get wisdom, instruction and insight.
 
 **24** The father of a righteous child will be very glad. A man who has a wise child will have joy because of that child.
 
@@ -1410,7 +1410,7 @@
 
 **2** Evil men think about how to cause damage. Their words speak about trouble.
 
-**3** A man builds a house with wisdom. He makes the house strong with understanding.
+**3** A man builds a house with wisdom. He makes the house strong with insight.
 
 **4** With knowledge, he fills the rooms with all types of valuable and good things.
 
@@ -1418,7 +1418,7 @@
 
 **6** You must have wise advice before you go to war. With many advisers, you will win.
 
-**7** Wisdom is too high for a fool. In the meeting place at the city gate, the fool does not speak.
+**7** Wisdom is too high for a fool. In the assembly at the city gate, the fool does not speak.
 
 **8** People will call a man who plans evil a troublemaker.
 
@@ -1440,9 +1440,9 @@
 
 **17** Do not be glad when your enemy falls. Do not be happy when he trips.
 
-**18** If you are glad, the LORD will see it and He will not be pleased. Then He can stop His anger against your enemy.
+**18** If you are glad, the LORD will see it and He will not be happy. Then He can stop His anger against your enemy.
 
-**19** Do not be worried because of evil men. Do not be jealous of the wicked.
+**19** Do not worry because of evil men. Do not be jealous of the wicked.
 
 **20** The evil man has no future. The life of the wicked will stop, as a lamp goes out.
 
@@ -1466,7 +1466,7 @@
 
 **30** I went past the field of a lazy man. I went past the vineyard of a man without good sense.
 
-**31** Thorns grew everywhere on the field. Weeds covered the ground. The stone wall was broken.
+**31** Thorns grew everywhere on the field. Weeds covered the ground. The stone wall fell down.
 
 **32** I looked at it and thought about it. I learned a lesson from what I saw.
 
@@ -1496,9 +1496,9 @@
 
 **10** If you tell it, then the person who hears it can bring shame on you. Your bad name will not go away.
 
-**11** A word that is spoken at the correct time is beautiful. It is like gold apples in a silver frame.
+**11** A word that a person speaks at the correct time is beautiful. It is like gold apples in a silver frame.
 
-**12** A wise correction to a person who listens is valuable. It is like a gold earring or a jewel of fine gold.
+**12** A wise correction to a person who listens is valuable. It is like a gold ring for the ear or a jewel of fine gold.
 
 **13** A faithful messenger is like cold snow at the time of harvest. He refreshes the masters who send him.
 
@@ -1514,7 +1514,7 @@
 
 **19** To trust an unfaithful man at a time of trouble is bad. It is like a broken tooth or a lame foot.
 
-**20** Do not sing happy songs to a person who is very sad. That is like taking away a coat on a cold day. It is like pouring vinegar on soda.
+**20** Do not sing happy songs to a person who is very sad. That is like when you take away a coat on a cold day. It is like when you pour vinegar on soda.
 
 **21** If your enemy is hungry, give him bread to eat. If he is thirsty, give him water to drink.
 
@@ -1544,7 +1544,7 @@
 
 **5** Answer a fool as his foolishness deserves. If you do not, he will think that he is wise.
 
-**6** A man who sends a message with a fool causes damage to himself. It is like cutting off his own feet.
+**6** A man who sends a message with a fool causes damage to himself. It is as if he cuts off his own feet.
 
 **7** The legs of a lame man hang weak. Also, a proverb in the mouth of fools has no strength.
 
@@ -1568,13 +1568,13 @@
 
 **17** A man goes by and gets involved in an argument of other people. He is like a man who takes a dog by the ears.
 
-**18** A crazy man throws burning sticks, arrows and death.
+**18** A crazy man throws sticks that burn, arrows and death.
 
 **19** A man who deceives his neighbor and then says, "I only made a joke," is like that crazy man.
 
 **20** Without wood, a fire goes out. Without a person who gossips, an argument stops.
 
-**21** Coals keep a fire hot, and wood keeps a fire burning. Also, a man who argues causes more arguments.
+**21** Coals keep a fire hot, and wood keeps a fire alive. Also, a man who argues causes more arguments.
 
 **22** The words of a gossip are like tasty food. People take those words deep inside themselves.
 
@@ -1622,7 +1622,7 @@
 
 **15** A wife who argues is like water that drops all the time on a rainy day.
 
-**16** To control her is like trying to control the wind. It is like trying to hold oil in your hand.
+**16** To control her is like when you try to control the wind. It is like when you try to hold oil in your hand.
 
 **17** Iron makes iron sharp. Also, one man makes his friend better.
 
@@ -1650,7 +1650,7 @@
 
 **1** The wicked run away when nobody chases them. But the righteous are brave like a lion.
 
-**2** When a country rebels, it has many rulers. But a man with understanding and knowledge keeps order for a long time.
+**2** When a country rebels, it has many rulers. But a man with insight and knowledge keeps order for a long time.
 
 **3** A poor man who oppresses the poor is like a hard rain that destroys the crops.
 
@@ -1668,7 +1668,7 @@
 
 **10** A man can cause the righteous to go on an evil road. That man will fall into his own pit. But the honest will get good things.
 
-**11** A rich man thinks that he is wise. But a poor man with understanding sees the truth about him.
+**11** A rich man thinks that he is wise. But a poor man with insight sees the truth about him.
 
 **12** When the righteous win, there is a great celebration. But when the wicked get power, people hide.
 
@@ -1676,9 +1676,9 @@
 
 **14** A man who always fears the LORD is happy. But a man who makes his heart hard will fall into trouble.
 
-**15** A wicked ruler over poor people is like a roaring lion or an attacking bear.
+**15** A wicked ruler over poor people is like a lion that roars or a bear that attacks.
 
-**16** A ruler without understanding oppresses the people very much. But a ruler who hates greed will have a long life.
+**16** A ruler without insight oppresses the people very much. But a ruler who hates greed will have a long life.
 
 **17** A man who is guilty of murder will run until he dies. Do not help him.
 
@@ -1706,7 +1706,7 @@
 
 ## Chapter 29
 
-**1** A man can refuse correction many times. Suddenly, that man will be destroyed. Nothing will help him.
+**1** A man can refuse correction many times. Suddenly, destruction will come to that man. Nothing will help him.
 
 **2** When the righteous have power, the people are glad. But when a wicked man rules, the people are sad.
 
@@ -1716,7 +1716,7 @@
 
 **5** A man who flatters his neighbor puts a trap for his feet.
 
-**6** An evil man is caught by his own sin. But a righteous man sings and is glad.
+**6** The sin of an evil man is a trap for him. But a righteous man sings and is glad.
 
 **7** A righteous man knows the rights of the poor. But a wicked man does not care about the poor.
 
@@ -1764,7 +1764,7 @@
 
 **1** These are the words of Agur, the son of Jakeh. This is his message. He spoke to Ithiel, to Ithiel and to Ucal.
 
-**2** "I am more foolish than all other men. I do not have the understanding of a man.
+**2** "I am more foolish than all other men. I do not have the wisdom of a man.
 
 **3** I did not learn wisdom. I do not have the knowledge of the Holy God.
 

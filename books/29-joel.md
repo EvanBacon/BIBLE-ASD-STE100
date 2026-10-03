@@ -8,9 +8,9 @@
 
 **3** Tell your children about it. Your children must tell their children. And their children must tell the next generation.
 
-**4** The cutting locusts ate some of the crops. The swarming locusts ate what remained. The young locusts ate what remained after that. The other locusts ate what remained after that.
+**4** The first group of locusts ate some of the crops. The large groups of locusts ate what remained. The young locusts ate what remained after that. The other locusts ate what remained after that.
 
-**5** Wake up, you drunk people, and cry. All you people who drink wine, cry loudly. The new wine is taken away from your mouths.
+**5** Wake up, you drunk people, and cry. All you people who drink wine, cry loudly. The new wine is gone from your mouths.
 
 **6** An army of locusts came against my land. It is strong, and nobody can count it. Its teeth are like the teeth of a lion. It has the jaws of a strong lion.
 
@@ -20,9 +20,9 @@
 
 **9** The grain offering and the drink offering stop at the house of the LORD. The priests, who serve the LORD, are sad.
 
-**10** The fields are destroyed. The ground is sad, because the grain is destroyed. The new wine is dry. The olive oil is gone.
+**10** The fields are in ruins. The ground is sad, because the grain is gone. The new wine is dry. The olive oil is gone.
 
-**11** Farmers, be ashamed. People who work in the vineyards, cry loudly. Cry for the wheat and for the barley, because the harvest of the field is destroyed.
+**11** Farmers, feel shame. People who work in the vineyards, cry loudly. Cry for the wheat and for the barley, because the harvest of the field is gone.
 
 **12** The vine is dry. The fig tree becomes weak. The pomegranate tree, the palm tree, the apple tree, and all the trees of the field are dry. The joy of the people is gone.
 
@@ -32,7 +32,7 @@
 
 **15** That day will be terrible. The day of the LORD is near. It will come as destruction from the Almighty.
 
-**16** Our food is taken away in front of our eyes. Joy and happiness are taken away from the house of our God.
+**16** Our food is gone in front of our eyes. Joy and happiness are gone from the house of our God.
 
 **17** The seeds become dry under the ground. The storehouses are empty. The barns fall down, because the grain is dry.
 
@@ -66,7 +66,7 @@
 
 **11** The LORD shouts in front of his army. His army is very large. The army that obeys his command is strong. The day of the LORD is great and very terrible. Nobody can survive it.
 
-**12** "But even now," the LORD says, "come back to me with all your heart. Come back with fasting, with crying, and with sadness."
+**12** "But even now," the LORD says, "come back to me with all your heart. Do not eat food. Cry and show your sadness when you come back to me."
 
 **13** Tear your hearts, not your clothes. Come back to the LORD your God. He is kind and merciful. He is slow to become angry, and his love is very large. He changes his mind and does not send disaster.
 
@@ -90,13 +90,13 @@
 
 **23** People of Zion, be glad. Celebrate because of the LORD your God. He gives you the autumn rain in the correct quantity. He sends you the rain. He sends the autumn rain and the spring rain, as before.
 
-**24** The threshing floors will be full of grain. The containers will be full of new wine and olive oil.
+**24** The floors where people beat grain will be full of grain. The containers will be full of new wine and olive oil.
 
-**25** "I will give back to you the crops that the locusts ate during those years. I sent the swarming locusts, the young locusts, the other locusts, and the cutting locusts. They were my large army that I sent against you.
+**25** "I will give back to you the crops that the locusts ate in those years. I sent the large groups of locusts, the young locusts, the other locusts, and the first group of locusts. They were my large army that I sent against you.
 
-**26** You will have much food to eat, and you will be satisfied. You will praise the name of the LORD your God. He did wonderful things for you. My people will never be ashamed again.
+**26** You will have much food to eat, and you will have enough. You will praise the name of the LORD your God. He did wonderful things for you. My people will never feel shame again.
 
-**27** Then you will know that I am among the people of Israel. You will know that I am the LORD your God, and that there is no other God. My people will never be ashamed again.
+**27** Then you will know that I am among the people of Israel. You will know that I am the LORD your God, and that there is no other God. My people will never feel shame again.
 
 **28** After that, I will pour out my Spirit on all people. Your sons and your daughters will speak as prophets. Your old men will dream dreams. Your young men will see visions.
 
@@ -128,7 +128,7 @@
 
 **9** Announce this among the nations: "Prepare for war. Wake up the soldiers. All the warriors must come near and attack.
 
-**10** Change your plows into swords. Change your pruning knives into spears. The weak person must say, 'I am strong.'
+**10** Change your plows into swords. Change the knives that cut your vines into spears. The weak person must say, 'I am strong.'
 
 **11** All you nations around Israel, come quickly. Gather together there." LORD, send your warriors down.
 

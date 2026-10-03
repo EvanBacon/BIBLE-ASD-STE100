@@ -14,11 +14,11 @@
 
 **6** From the bottom of the foot to the top of the head, no part of the body is healthy. There are only cuts, bruises, and open sores. Nobody cleaned them. Nobody put bandages or oil on them.
 
-**7** Your country is empty and ruined. Fire burned your cities. Foreign people eat the crops of your land while you watch. The land is ruined, as when foreign people destroy a land.
+**7** Your country is empty and in ruins. Fire burned your cities. Foreign people eat the crops of your land while you watch. The land is in ruins, as when foreign people destroy a land.
 
 **8** The city of Zion is alone, as a small shelter in a vineyard. It is as a hut in a field of cucumbers. It is as a city that an enemy surrounds.
 
-**9** The LORD of armies kept a small number of us alive. If he did not, we would be as Sodom. We would be as Gomorrah.
+**9** The LORD of armies kept a small number of us alive. Because of this, we did not become as Sodom. We did not become as Gomorrah.
 
 **10** Hear the word of the LORD, you rulers of Sodom! Listen to the law of our God, you people of Gomorrah!
 
@@ -26,9 +26,9 @@
 
 **12** You come to my temple to meet me. But who told you to do this? Who told you to walk on the floors of my courts?
 
-**13** Do not bring more offerings that have no value. Your incense is disgusting to me. I cannot accept your festivals of the new moon, your Sabbaths, and your meetings. I cannot accept your sin together with your holy meetings.
+**13** Do not bring more offerings that have no value. I hate your incense. I cannot accept your festivals of the new moon, your Sabbaths, and your assemblies. I cannot accept your sin together with your holy assemblies.
 
-**14** I hate your festivals of the new moon and your other festivals. They are a heavy load for me. I am tired of them.
+**14** I hate your festivals of the new moon and your other festivals. They are a heavy load for me. I feel tired of them.
 
 **15** When you lift your hands to pray, I will not look at you. When you make many prayers, I will not listen. Your hands are full of blood.
 
@@ -58,7 +58,7 @@
 
 **28** But the LORD will destroy the sinners and the people who turn against him together. The people who leave the LORD will die.
 
-**29** You will be ashamed of the sacred oak trees that you loved. You will be ashamed of the gardens that you chose for your idols.
+**29** You will feel shame because of the sacred oak trees that you loved. You will feel shame because of the gardens that you chose for your idols.
 
 **30** You will be as an oak tree with dry leaves. You will be as a garden that has no water.
 
@@ -108,7 +108,7 @@
 
 **21** People will go into the cracks of the rocks and into the high cliffs. They will hide from the terror of the LORD and from his great glory. They will hide when he comes to shake the earth.
 
-**22** Stop trusting in humans. Humans are only breath. They have no value.
+**22** Stop your trust in humans. Humans are only breath. They have no value.
 
 ## Chapter 3
 
@@ -126,7 +126,7 @@
 
 **7** But on that day the brother will refuse. He will say, "I cannot solve your problems. I have no food or clothing in my house. Do not make me ruler of the people."
 
-**8** Jerusalem will fall. Judah will be ruined. The words and actions of the people are against the LORD. They insult his glory.
+**8** Jerusalem will fall. Judah will fall into ruin. The words and actions of the people are against the LORD. They insult his glory.
 
 **9** The look on their faces shows that they are guilty. They show their sin as Sodom did. They do not hide it. They are in very bad trouble. They cause their own disaster.
 
@@ -170,7 +170,7 @@
 
 **2** On that day the branch of the LORD will be beautiful and glorious. The fruit of the land will be the pride of the people of Israel who stay alive.
 
-**3** The people who stay in Zion and Jerusalem will be holy. God wrote their names in the list of the living in Jerusalem.
+**3** The people who stay in Zion and Jerusalem will be holy. God wrote their names in the list of the people who are alive in Jerusalem.
 
 **4** The Lord will wash away the dirt of the women of Zion. He will clean the blood out of Jerusalem. He will do this with a spirit of judgment and a spirit of fire.
 
@@ -232,7 +232,7 @@
 
 **26** The LORD will lift up a flag as a signal to a far nation. He will whistle to call the people from the ends of the earth. Look! They will come very quickly.
 
-**27** None of the soldiers will be tired or fall. None of them will sleep. Their belts will stay tight. The straps of their sandals will not break.
+**27** None of the soldiers will feel tired or fall. None of them will sleep. Their belts will stay tight. The straps of their sandals will not break.
 
 **28** Their arrows are sharp. All their bows are ready. The hooves of their horses are as hard as stone. The wheels of their chariots turn as fast as a storm.
 
@@ -250,7 +250,7 @@
 
 **4** Their voices shook the posts of the doors. Smoke filled the temple.
 
-**5** Then I said, "I am in very bad trouble! I am ruined! My lips are not clean. I live among people whose lips are not clean. But my eyes saw the King, the LORD of armies!"
+**5** Then I said, "I am in very bad trouble! My end is near! My lips are not clean. I live among people whose lips are not clean. But my eyes saw the King, the LORD of armies!"
 
 **6** Then one of the seraphim flew to me. He held a hot coal in his hand. He took the coal from the altar with tongs.
 
@@ -262,7 +262,7 @@
 
 **10** Make the minds of these people dull. Make their ears deaf. Close their eyes. If you do not, they will see with their eyes. They will hear with their ears. They will understand with their minds. Then they will turn back to me and I will heal them."
 
-**11** Then I said, "Lord, how long must I do this?" He said, "Do it until the cities are ruined and have no people. Do it until the houses are empty and the land is completely destroyed.
+**11** Then I said, "Lord, how long must I do this?" He said, "Do it until the cities are in ruins and have no people. Do it until the houses are empty and the land is completely empty.
 
 **12** Do it until the LORD sends the people far away. The land will be empty.
 
@@ -284,7 +284,7 @@
 
 **7** But the Lord GOD says, 'Their plan will not succeed. It will not happen.
 
-**8** Damascus is the capital of Syria. Rezin is only the king of Damascus. In 65 years Ephraim will be destroyed. It will not be a nation.
+**8** Damascus is the capital of Syria. Rezin is only the king of Damascus. In 65 years Ephraim will break into pieces. It will not be a nation.
 
 **9** Samaria is the capital of Ephraim. The son of Remaliah is only the king of Samaria. If you do not stay firm in your faith, you will not stay firm at all.'"
 
@@ -338,7 +338,7 @@
 
 **8** He will move through Judah as a flood. The water will come up to the neck of the people. His army will spread out as wings and cover all your land, Immanuel!"
 
-**9** Nations, make your war cries! But you will be broken. Listen, all you far countries! Prepare for war, but you will be broken! Prepare for war, but you will be broken!
+**9** Nations, make your war cries! But you will break into pieces. Listen, all you far countries! Prepare for war, but you will break into pieces! Prepare for war, but you will break into pieces!
 
 **10** Make your plans, but they will fail. Give your orders, but they will not succeed. God is with us.
 
@@ -350,15 +350,15 @@
 
 **14** He will be a safe place. But for the 2 kingdoms of Israel, he will be a stone that causes people to fall. He will be a rock that makes them trip. For the people of Jerusalem, he will be a trap and a net.
 
-**15** Many of them will fall over this stone. They will fall and break. They will be caught in the trap."
+**15** Many of them will fall over this stone. They will fall and break. The trap will catch them."
 
-**16** Keep this message safe. Seal the teaching and give it to my disciples.
+**16** Keep this message safe. Seal the law and give it to my disciples.
 
 **17** I will wait for the LORD. He hides his face from the family of Jacob. But I will trust him.
 
 **18** I and the children that the LORD gave me are signs in Israel. We are warnings from the LORD of armies. He lives on Mount Zion.
 
-**19** People will tell you, "Ask the people who speak with the dead. Ask the people who whisper and mumble magic words." But people must ask their God. Why ask the dead to help the living?
+**19** People will tell you, "Ask the people who speak with the dead. Ask the people who whisper and mumble magic words." But people must ask their God. Why ask the dead to help the people who are alive?
 
 **20** Go to the law and the testimony of God! If people do not speak by this word, they have no light.
 
@@ -378,7 +378,7 @@
 
 **5** Fire will burn every boot of the soldiers. It will burn every coat with blood on it.
 
-**6** A child is born to us. A son is given to us. He will rule over us. His names will be Wonderful Counselor, Mighty God, Eternal Father, and Prince of Peace.
+**6** A woman gives birth to a child for us. God gives a son to us. He will rule over us. His names will be Wonderful Counselor, Mighty God, Eternal Father, and Prince of Peace.
 
 **7** His rule and his peace will grow. They will have no end. He will rule from the throne of David over his kingdom. He will make it strong with justice and righteousness from now until always. The strong love of the LORD of armies will do this.
 
@@ -398,7 +398,7 @@
 
 **15** The old and important leaders are the head. The prophets who teach lies are the tail.
 
-**16** The leaders of these people cause them to go the wrong way. The people who follow them are destroyed.
+**16** The leaders of these people cause them to go the wrong way. The people who follow them go to destruction.
 
 **17** Thus the Lord is not happy with the young men. He will not show mercy to the children with no father and the widows. All the people are godless and evil. Each mouth speaks foolish things. But after all this, the anger of the LORD will not stop. His hand is still ready to punish.
 
@@ -406,13 +406,13 @@
 
 **19** The anger of the LORD of armies burns the land. The people are as fuel for the fire. No man shows mercy to his brother.
 
-**20** People will take food on the right but they will still be hungry. They will eat on the left but they will not be satisfied. Each man will eat the flesh of his own arm.
+**20** People will take food on the right but they will still be hungry. They will eat on the left but they will still want more. Each man will eat the flesh of his own arm.
 
 **21** Manasseh will fight Ephraim. Ephraim will fight Manasseh. Together they will fight Judah. But after all this, the anger of the LORD will not stop. His hand is still ready to punish.
 
 ## Chapter 10
 
-**1** You are in very bad trouble, you who make unfair laws! You write rules that cause suffering.
+**1** You are in very bad trouble, you who make unfair laws! You write rules that cause pain.
 
 **2** You do not give justice to the poor. You take the rights of the poor people of God. You steal from widows. You rob children with no father.
 
@@ -484,7 +484,7 @@
 
 **1** A new shoot will grow from the stump of Jesse. A Branch will grow from his roots and give fruit.
 
-**2** The Spirit of the LORD will stay on him. It is the Spirit of wisdom and understanding. It is the Spirit of good advice and power. It is the Spirit of knowledge and respect for the LORD.
+**2** The Spirit of the LORD will stay on him. It is the Spirit of wisdom and insight. It is the Spirit of good advice and power. It is the Spirit of knowledge and respect for the LORD.
 
 **3** He will be happy when he obeys the LORD. He will not judge by what he sees with his eyes. He will not decide by what he hears with his ears.
 
@@ -504,7 +504,7 @@
 
 **11** On that day the Lord will reach out his hand a second time. He will bring back the people of Israel who stay alive. He will bring them back from Assyria, Egypt, Pathros, Cush, Elam, Shinar, Hamath, and the islands of the sea.
 
-**12** He will lift up a flag for the nations. He will bring together the people of Israel who were sent away. He will collect the scattered people of Judah from the 4 corners of the earth.
+**12** He will lift up a flag for the nations. He will bring together the people of Israel whom enemies sent away. He will collect the scattered people of Judah from the 4 corners of the earth.
 
 **13** Ephraim will not be jealous again. The LORD will destroy the enemies of Judah. Ephraim will not be jealous of Judah. Judah will not be an enemy of Ephraim.
 
@@ -544,7 +544,7 @@
 
 **7** Thus all hands will become weak. All men will lose their courage.
 
-**8** They will be terrified. Pain and sorrow will take hold of them. They will have pain as a woman who gives birth. They will look at each other in shock. Their faces will be red as fire.
+**8** They will feel terror. Pain and sorrow will take hold of them. They will have pain as a woman who gives birth. They will look at each other in shock. Their faces will be red as fire.
 
 **9** Look! The day of the LORD comes. It will be a cruel day of great anger. The LORD will make the land empty. He will destroy the sinners in it.
 
@@ -562,7 +562,7 @@
 
 **16** The enemy will crush their babies while they watch. The enemy will rob their houses and rape their wives.
 
-**17** Look! I will cause the Medes to attack Babylon. The Medes do not want silver. They are not interested in gold.
+**17** Look! I will cause the Medes to attack Babylon. The Medes do not want silver. They do not want gold.
 
 **18** Their bows will kill the young men. They will have no mercy on babies. They will not show pity to children.
 
@@ -586,19 +586,19 @@
 
 **5** The LORD broke the rod of the evil people. He broke the power of the cruel rulers.
 
-**6** The king of Babylon hit the nations in anger. He did not stop hitting them. He ruled the nations in anger. He attacked them without stopping.
+**6** The king of Babylon hit the nations in anger. He did not stop. He ruled the nations in anger. He attacked them all the time.
 
 **7** Now all the earth has rest and peace. The people start to sing.
 
 **8** Even the pine trees and the cedars of Lebanon are happy that you fell. They say, 'Since you fell, nobody comes to cut us down.'
 
-**9** The place of the dead (Sheol) below is excited to meet you when you come. It wakes up the dead to meet you. It wakes up all the leaders of the earth. It makes all the kings of the nations get up from their thrones.
+**9** The place of the dead (Sheol) below is full of excitement to meet you when you come. It wakes up the dead to meet you. It wakes up all the leaders of the earth. It makes all the kings of the nations get up from their thrones.
 
 **10** They all will say to you, 'Now you are weak, as we are! You became the same as us!'
 
 **11** Your glory and the music of your harps went down to the place of the dead. Maggots are your bed. Worms are your blanket.
 
-**12** You fell from the sky, morning star, son of the dawn! You defeated nations, but now you are cut down to the ground!
+**12** You fell from the sky, morning star, son of the dawn! You defeated nations, but now God cuts you down to the ground!
 
 **13** You said in your heart, 'I will go up to heaven. I will put my throne above the stars of God. I will sit on the mountain where the gods meet, far in the north.
 
@@ -612,7 +612,7 @@
 
 **18** All the kings of the nations lie in honor. Each king lies in his own tomb.
 
-**19** But you are thrown out of your tomb as a branch that nobody wants. Dead soldiers that swords killed cover you. You will go down to the stones of the pit. You are as a dead body that people walk on.
+**19** But God throws you out of your tomb as a branch that nobody wants. Dead soldiers that swords killed cover you. You will go down to the stones of the pit. You are as a dead body that people walk on.
 
 **20** You will not have a burial with the other kings. You destroyed your land and you killed your people. Nobody will remember the children of evil people.
 
@@ -632,7 +632,7 @@
 
 **28** This message came in the year that King Ahaz died.
 
-**29** People of Philistia, do not be happy that the rod that hit you is broken. A more dangerous snake will come from the root of that snake. Its child will be a flying snake with poison as fire.
+**29** People of Philistia, do not be happy that the rod that hit you is now in pieces. A more dangerous snake will come from the root of that snake. Its child will be a snake that flies, with poison as fire.
 
 **30** The poorest people will have food. The needy people will lie down in safety. But I will kill your root with hunger. I will kill your people who stay alive.
 
@@ -642,7 +642,7 @@
 
 ## Chapter 15
 
-**1** This is the message about Moab. In 1 night the city of Ar in Moab was destroyed. In 1 night the city of Kir in Moab was destroyed.
+**1** This is the message about Moab. In 1 night enemies destroyed the city of Ar in Moab. In 1 night enemies destroyed the city of Kir in Moab.
 
 **2** The people of Moab go up to the temple and to Dibon. They go to the high places to cry. They cry about Nebo and Medeba. They shave all their heads. They cut off all their beards.
 
@@ -664,7 +664,7 @@
 
 **1** People of Moab, send a lamb as a gift to the ruler of the land. Send it from Sela across the desert to the mountain of Zion.
 
-**2** The women of Moab are at the places where people cross the Arnon River. They are as birds that are pushed out of their nest.
+**2** The women of Moab are at the places where people cross the Arnon River. They are as birds that fell out of their nest.
 
 **3** "Give us advice. Make a decision. Give us shade, as the night gives shade at noon. Hide the people who run away. Do not tell the enemy about the refugees.
 
@@ -700,7 +700,7 @@
 
 **4** "On that day the glory of Jacob will become small. His fat body will become thin.
 
-**5** It will be as when a farmer collects the grain in the field. He cuts the heads of grain with his arm. It will be as when a person collects the grain that is left in the Valley of Rephaim.
+**5** It will be as when a farmer collects the grain in the field. He cuts the heads of grain with his arm. It will be as when a person collects the grain that remains in the Valley of Rephaim.
 
 **6** But a few people will stay, as a few olives stay on a tree after people shake it. 2 or 3 olives stay at the top of the highest branch. 4 or 5 olives stay on the outer branches," says the LORD, the God of Israel.
 
@@ -708,7 +708,7 @@
 
 **8** They will not look to the altars that their hands made. They will not trust the Asherah poles or the incense altars that their fingers made.
 
-**9** On that day their strong cities will be empty, as the forests and hilltops that the Amorites left when Israel came. Everything will be ruined.
+**9** On that day their strong cities will be empty, as the forests and hilltops that the Amorites left when Israel came. Everything will be in ruins.
 
 **10** You forgot God, who saves you. You did not remember the Rock, who is your strength. So you plant beautiful gardens. You plant vines from foreign countries.
 
@@ -722,7 +722,7 @@
 
 ## Chapter 18
 
-**1** The land of buzzing insects is in very bad trouble! That land is on the other side of the rivers of Cush.
+**1** The land where insects buzz is in very bad trouble! That land is on the other side of the rivers of Cush.
 
 **2** It sends messengers on the Nile River in boats made of reeds. Go, quick messengers, to a tall people with smooth skin. Go to a people that all nations fear. They are a strong nation that defeats other nations. Rivers divide their land.
 
@@ -794,11 +794,11 @@
 
 **2** At that time the LORD spoke through Isaiah the son of Amoz. The LORD said, "Remove the rough cloth (sackcloth) from your body. Remove the sandals from your feet." Isaiah obeyed. He walked around with no clothes and no sandals.
 
-**3** Then the LORD said, "My servant Isaiah walked with no clothes and no sandals for 3 years. This is a sign and a warning against Egypt and Cush.
+**3** Then the LORD said, "My servant Isaiah walked with no clothes and no sandals for 3 years. This is a sign and a wonder against Egypt and Cush.
 
 **4** The king of Assyria will take away the people of Egypt and Cush as prisoners. He will take the young and the old. They will have no clothes and no sandals. Their buttocks will be bare. This will bring shame to Egypt.
 
-**5** The people who trusted Cush will be afraid. The people who were proud of Egypt will be ashamed.
+**5** The people who trusted Cush will be afraid. The people who were proud of Egypt will feel shame.
 
 **6** On that day the people who live on this coast will say, 'Look what happened to the nations that we trusted! We ran to them for help against the king of Assyria. How can we escape now?'"
 
@@ -806,11 +806,11 @@
 
 **1** This is the message about the desert by the sea. An enemy comes from the desert, from a terrible land. It comes as a storm that moves across the south.
 
-**2** God showed me a terrible vision. I saw a traitor who betrays. I saw a destroyer who destroys. Elam, attack! Media, surround the city! I will stop all the suffering that Babylon caused.
+**2** God showed me a terrible vision. I saw a traitor who betrays. I saw a destroyer who destroys. Elam, attack! Media, surround the city! I will stop all the pain that Babylon caused.
 
 **3** Thus my body is full of pain. Pain takes hold of me as the pain of a woman who gives birth. What I hear makes me weak. What I see makes me afraid.
 
-**4** My heart beats fast. I shake with fear. I wanted a calm evening, but now I am terrified.
+**4** My heart beats fast. I shake with fear. I wanted a calm evening, but now I feel terror.
 
 **5** They prepare the table. They put out the rugs. They eat and drink. Get up, commanders! Put oil on your shields!
 
@@ -822,9 +822,9 @@
 
 **9** Look! A man comes in a chariot with a pair of horses." Then the man said, "Babylon fell! Babylon fell! All the idols of its gods lie broken on the ground!"
 
-**10** My people, you were crushed as grain on a threshing floor. I told you what I heard from the LORD of armies, the God of Israel.
+**10** My people, enemies crushed you as grain on a floor where people beat the grain. I told you what I heard from the LORD of armies, the God of Israel.
 
-**11** This is the message about Dumah. Someone calls to me from Seir, "Guard, how much of the night is left? Guard, how much of the night is left?"
+**11** This is the message about Dumah. Someone calls to me from Seir, "Guard, how much of the night remains? Guard, how much of the night remains?"
 
 **12** The guard says, "The morning comes, but the night comes again. If you want to ask, ask. Then come back again."
 
@@ -846,7 +846,7 @@
 
 **3** All your leaders ran away together. The enemy captured them before they could use a bow. The enemy captured all the people that it found, while they ran far away.
 
-**4** Thus I say, "Do not look at me. Let me cry bitterly. Do not try to comfort me. My people are destroyed."
+**4** Thus I say, "Do not look at me. Let me cry bitterly. Do not try to comfort me. Enemies destroyed my people."
 
 **5** The Lord GOD of armies brings a day of terror and confusion in the Valley of Vision. The enemy breaks down the walls. The people shout to the mountains for help.
 
@@ -892,13 +892,13 @@
 
 ## Chapter 23
 
-**1** This is the message about Tyre. Cry, ships of Tarshish! Tyre is destroyed. No house or harbor stays. The sailors got the news on the island of Cyprus.
+**1** This is the message about Tyre. Cry, ships of Tarshish! Enemies destroyed Tyre. No house or harbor stays. The sailors got the news on the island of Cyprus.
 
 **2** Be silent, you people who live on the coast. The merchants of Sidon traveled across the sea and made you rich.
 
 **3** Ships brought grain from Egypt across the large sea. The harvest of the Nile was the income of Tyre. Tyre was the market of the nations.
 
-**4** Be ashamed, Sidon! The sea speaks. The strong fortress of the sea says, "I did not have pain to give birth. I did not give birth to children. I did not raise sons or daughters."
+**4** Feel shame, Sidon! The sea speaks. The strong fortress of the sea says, "I did not have pain to give birth. I did not give birth to children. I did not raise sons or daughters."
 
 **5** When the news comes to Egypt, the Egyptians will be very sad about Tyre.
 
@@ -918,7 +918,7 @@
 
 **13** Look at the land of the Chaldeans! That nation does not exist now. The Assyrians made it a place for wild animals. They built siege towers against Babylon. They destroyed its palaces. They made it a ruin.
 
-**14** Cry, ships of Tarshish! Your fortress is destroyed.
+**14** Cry, ships of Tarshish! Enemies destroyed your fortress.
 
 **15** On that day people will forget Tyre for 70 years. That is the life of 1 king. After 70 years, Tyre will be as the prostitute in the song:
 
@@ -948,7 +948,7 @@
 
 **9** People do not drink wine with songs. Beer is bitter for the people who drink it.
 
-**10** The ruined city is broken down. People lock the doors of all the houses. Nobody can go in.
+**10** The ruined city falls down. People lock the doors of all the houses. Nobody can go in.
 
 **11** People in the streets shout for wine. All joy changes to sadness. All happiness goes from the land.
 
@@ -964,7 +964,7 @@
 
 **17** People of the earth, terror, pits, and traps wait for you.
 
-**18** The person who runs from the noise of terror will fall into a pit. The person who climbs out of the pit will be caught in a trap. The windows of the sky open for a flood. The foundations of the earth shake.
+**18** The person who runs from the noise of terror will fall into a pit. A trap will catch the person who climbs out of the pit. The windows of the sky open for a flood. The foundations of the earth shake.
 
 **19** The earth breaks apart. The earth splits open. The earth shakes very much.
 
@@ -974,7 +974,7 @@
 
 **22** He will put them together as prisoners in a pit. He will lock them in a prison. After a long time, he will punish them.
 
-**23** The moon will be ashamed. The sun will be embarrassed. The LORD of armies will rule as king on Mount Zion and in Jerusalem. He will show his glory to the leaders of his people.
+**23** The moon will feel shame. The sun will feel shame. The LORD of armies will rule as king on Mount Zion and in Jerusalem. He will show his glory to the leaders of his people.
 
 ## Chapter 25
 
@@ -1024,7 +1024,7 @@
 
 **10** You show kindness to evil people, but they do not learn to do what is right. Even in a land of honest people, they continue to do wrong. They do not see the greatness of the LORD.
 
-**11** LORD, your hand is ready to punish, but they do not see it. Let them see how you love your people, and let them be ashamed. Let the fire that you keep for your enemies burn them.
+**11** LORD, your hand is ready to punish, but they do not see it. Let them see how you love your people, and let them feel shame. Let the fire that you keep for your enemies burn them.
 
 **12** LORD, you give us peace. All the good things that we do, you do for us.
 
@@ -1044,7 +1044,7 @@
 
 **20** My people, go into your rooms. Close the doors behind you. Hide for a short time until the anger of the LORD stops.
 
-**21** Look! The LORD comes from his place to punish the people of the earth for their sins. The earth will show the blood that people spilled on it. It will not hide the people that were killed.
+**21** Look! The LORD comes from his place to punish the people of the earth for their sins. The earth will show the blood that people spilled on it. It will not hide the people that others killed.
 
 ## Chapter 27
 
@@ -1062,7 +1062,7 @@
 
 **7** Did the LORD hit Israel as he hit the enemies of Israel? Did he kill the people of Israel as he killed their enemies?
 
-**8** No, he punished Israel by sending the people away. He removed them with his strong wind, as on a day when the east wind blows.
+**8** No, he punished Israel when he sent the people away. He removed them with his strong wind, as on a day when the east wind blows.
 
 **9** In this way the LORD will forgive the guilt of Jacob. The result will be that he removes the sin of Jacob. The people will crush the stones of the altars to powder, as chalk. No Asherah poles or incense altars will stay.
 
@@ -1072,7 +1072,7 @@
 
 **12** On that day the LORD will collect his people as a farmer collects grain. He will collect them from the Euphrates River to the stream of Egypt. People of Israel, he will collect you 1 by 1.
 
-**13** On that day someone will blow a large trumpet. The people who were lost in Assyria will come back. The people who were sent away to Egypt will come back. They will worship the LORD on the holy mountain in Jerusalem.
+**13** On that day someone will blow a large trumpet. The people who almost died in Assyria will come back. The people whom enemies sent away to Egypt will come back. They will worship the LORD on the holy mountain in Jerusalem.
 
 ## Chapter 28
 
@@ -1088,11 +1088,11 @@
 
 **6** He will give a spirit of justice to the people who judge. He will give strength to the soldiers who push back the enemy at the gate.
 
-**7** But the leaders of Judah also walk unsteadily because of wine. They are confused because of beer. The priests and the prophets are drunk with beer and wine. They walk unsteadily because of beer. They make mistakes when they see visions. They make mistakes when they decide cases.
+**7** But the leaders of Judah also walk unsteadily because of wine. Beer makes them confused. The priests and the prophets are drunk with beer and wine. They walk unsteadily because of beer. They make mistakes when they see visions. They make mistakes when they decide cases.
 
-**8** All their tables are covered with vomit. No place is clean.
+**8** Vomit covers all their tables. No place is clean.
 
-**9** The leaders say, "Who is this man to teach us? To whom does he explain his message? Is he teaching babies who stopped drinking milk?
+**9** The leaders say, "Who is this man to teach us? To whom does he explain his message? Does he teach babies who stopped their mother's milk?
 
 **10** He tells us one rule after another rule, one line after another line. He teaches a little here and a little there."
 
@@ -1100,7 +1100,7 @@
 
 **12** God told them, "This is the place of rest. Let the tired people rest. This is the place of peace." But they did not listen.
 
-**13** So the word of the LORD to them will be one rule after another rule, one line after another line. It will be a little here and a little there. Thus they will fall back and break. They will be caught in a trap.
+**13** So the word of the LORD to them will be one rule after another rule, one line after another line. It will be a little here and a little there. Thus they will fall back and break. A trap will catch them.
 
 **14** Thus hear the word of the LORD, you men who laugh at God! You rule these people in Jerusalem.
 
@@ -1108,17 +1108,17 @@
 
 **16** Thus the Lord GOD says, "Look! I put a stone in Zion as a foundation. It is a tested stone, a valuable cornerstone. It is a strong foundation. The person who believes will not be afraid.
 
-**17** I will use justice as a measuring line. I will use righteousness as a plumb line. Hail will remove your safe place of lies. Water will flood your hiding place.
+**17** I will use justice as a line to measure. I will use righteousness as a plumb line. Hail will remove your safe place of lies. Water will flood the place where you hide.
 
 **18** Your covenant with death will end. Your agreement with the place of the dead will fail. When the flood of disaster comes, it will crush you.
 
-**19** Each time it comes, it will take you. It will come each morning, during the day and during the night." When you understand this message, you will be terrified.
+**19** Each time it comes, it will take you. It will come each morning, during the day and during the night." When you understand this message, you will feel terror.
 
 **20** You will be as a man whose bed is too short for him. His blanket is too narrow to cover him.
 
 **21** The LORD will get up and fight as he did at Mount Perazim. He will be angry as he was in the Valley of Gibeon. He will do his work, his strange work. He will do his task, his unusual task.
 
-**22** So stop laughing at God. If you do not stop, your chains will become stronger. I heard the Lord GOD of armies. He decided to destroy the whole land.
+**22** So do not laugh at God. If you do not stop, your chains will become stronger. I heard the Lord GOD of armies. He decided to destroy the whole land.
 
 **23** Listen to me. Hear what I say. Pay attention.
 
@@ -1142,7 +1142,7 @@
 
 **3** I will put my army around you. I will put towers around you. I will build ramps against your walls.
 
-**4** You will be thrown down. You will speak from the ground. Your words will be low, from the dust. Your voice will be as the voice of a ghost from the ground. You will whisper from the dust.
+**4** God will throw you down. You will speak from the ground. Your words will be low, from the dust. Your voice will be as the voice of a ghost from the ground. You will whisper from the dust.
 
 **5** But your many enemies will become as fine dust. The cruel armies will be as straw that the wind blows away. This will happen suddenly.
 
@@ -1152,17 +1152,17 @@
 
 **8** A hungry man dreams that he eats. But when he wakes up, he is still hungry. A thirsty man dreams that he drinks. But when he wakes up, he is still weak and thirsty. The armies of all the nations that fight against Mount Zion will be the same.
 
-**9** Be surprised and shocked! Make yourselves blind, and stay blind! You are drunk, but not from wine. You walk unsteadily, but not from beer.
+**9** Stop and feel surprise! Make yourselves blind, and stay blind! You are drunk, but not from wine. You walk unsteadily, but not from beer.
 
 **10** The LORD made you sleep deeply. He closed your eyes, which are the prophets. He covered your heads, which are the seers.
 
-**11** All this vision is as the words of a sealed book for you. People give the book to a man who can read. They say, "Please read this." But he says, "I cannot, because the book is sealed."
+**11** All this vision is as the words of a book with a seal for you. People give the book to a man who can read. They say, "Please read this." But he says, "I cannot, because the book has a seal."
 
 **12** Then people give the book to a man who cannot read. They say, "Please read this." But he says, "I cannot read."
 
 **13** The Lord says, "These people come to me with their mouths. They honor me with their lips. But their hearts are far from me. Their worship of me is only rules that men taught them.
 
-**14** Thus I will again do wonderful things to these people. I will do wonderful and surprising things. The wisdom of their wise men will disappear. The understanding of their clever men will be gone."
+**14** Thus I will again do wonderful things to these people. I will do wonderful and strange things. The wisdom of their wise men will disappear. The insight of their clever men will go away."
 
 **15** You are in very bad trouble, you who try to hide your plans from the LORD! You do your work in the dark. You say, "Who sees us? Who will know?"
 
@@ -1178,7 +1178,7 @@
 
 **21** They make false statements against people in court. They put traps for people who defend justice at the city gate. They tell lies to refuse justice to innocent people.
 
-**22** Thus the LORD, who saved Abraham, says this about the family of Jacob: "The people of Jacob will not be ashamed again. Their faces will not become pale with fear again.
+**22** Thus the LORD, who saved Abraham, says this about the family of Jacob: "The people of Jacob will not feel shame again. Their faces will not become pale with fear again.
 
 **23** They will see their children, whom I made, among them. Then they will honor my name as holy. They will honor the Holy One of Jacob. They will respect the God of Israel with fear.
 
@@ -1194,19 +1194,19 @@
 
 **4** Your officials went to Zoan. Your messengers went to Hanes.
 
-**5** But they will all be ashamed because of a people that cannot help them. Egypt will give no help or advantage. It will only bring shame and disgrace."
+**5** But they will all feel shame because of a people that cannot help them. Egypt will give no help or advantage. It will only bring shame and disgrace."
 
-**6** This is the message about the animals of the Negev. The messengers go through a land of trouble and danger. In that land there are lions and poisonous snakes and flying snakes. The messengers carry their riches on the backs of donkeys. They carry their treasures on the humps of camels. They take them to a nation that cannot help them.
+**6** This is the message about the animals of the Negev. The messengers go through a land of trouble and danger. In that land there are lions and poisonous snakes and snakes that fly. The messengers carry their riches on the backs of donkeys. They carry their treasures on the humps of camels. They take them to a nation that cannot help them.
 
 **7** The help of Egypt has no value. Thus I call Egypt "Rahab who does nothing."
 
 **8** Now go and write this on a tablet for them. Write it in a book. It will be a witness for all time in the future.
 
-**9** These people are stubborn. They are lying children. They refuse to hear the teaching of the LORD.
+**9** These people are stubborn. They are children who tell lies. They refuse to hear the law of the LORD.
 
 **10** They tell the seers, "Do not see visions!" They tell the prophets, "Do not tell us what is true! Tell us nice things. Tell us false things.
 
-**11** Go away from the correct path. Stop telling us about the Holy One of Israel!"
+**11** Go away from the correct path. Do not tell us about the Holy One of Israel again!"
 
 **12** Thus the Holy One of Israel says, "You refuse this message. You trust in cruelty and lies. You depend on them.
 
@@ -1224,7 +1224,7 @@
 
 **19** People of Zion who live in Jerusalem, you will not cry again. The LORD will be kind to you when you cry for help. When he hears you, he will answer you.
 
-**20** The Lord will give you trouble as your bread and suffering as your water. But your Teacher will not hide again. You will see your Teacher with your eyes.
+**20** The Lord will give you trouble as your bread and pain as your water. But your Teacher will not hide again. You will see your Teacher with your eyes.
 
 **21** When you turn to the right or to the left, you will hear a voice behind you. It will say, "This is the correct way. Walk on it."
 
@@ -1234,7 +1234,7 @@
 
 **24** The oxen and donkeys that plow the ground will eat good food. Farmers will clean the food for them with a shovel and a fork.
 
-**25** On that day there will be streams of water on every high mountain and every hill. That will be the day of the great killing, when the towers fall.
+**25** On that day there will be streams of water on every high mountain and every hill. On that day the enemies will kill many people, and the towers will fall.
 
 **26** The moon will be as bright as the sun. The sun will be 7 times brighter, as the light of 7 days. This will happen on the day when the LORD puts bandages on his people. He will heal the wounds that he gave them.
 
@@ -1250,7 +1250,7 @@
 
 **32** Each time the LORD hits them with his rod, his people will play tambourines and harps. The LORD will fight against the Assyrians with his strong arm.
 
-**33** Long ago God prepared a place to burn the king of Assyria. It is deep and wide. It has much fire and wood. The breath of the LORD will start the fire, as a stream of burning sulfur.
+**33** Long ago God prepared a place to burn the king of Assyria. It is deep and wide. It has much fire and wood. The breath of the LORD will start the fire, as a stream of sulfur that burns.
 
 ## Chapter 31
 
@@ -1270,7 +1270,7 @@
 
 **8** "Assyria will fall by a sword, but not the sword of a man. A sword, but not the sword of a human, will kill the Assyrians. They will run away from the sword. Their young men will become slaves.
 
-**9** Their strong fortress will fall because of terror. Their commanders will see the battle flag and they will be terrified," says the LORD. His fire is in Zion. His furnace is in Jerusalem.
+**9** Their strong fortress will fall because of terror. Their commanders will see the battle flag and they will have much fear," says the LORD. His fire is in Zion. His furnace is in Jerusalem.
 
 ## Chapter 32
 
@@ -1278,7 +1278,7 @@
 
 **2** Each of them will be as a shelter from the wind and a safe place from the storm. They will be as streams of water in the desert. They will be as the shade of a large rock in a dry land.
 
-**3** Then the eyes of the people who see will not be closed. The ears of the people who hear will listen.
+**3** Then the eyes of the people who see will not close. The ears of the people who hear will listen.
 
 **4** The people who do things quickly without thought will understand. The people who cannot speak well will speak clearly.
 
@@ -1316,7 +1316,7 @@
 
 ## Chapter 33
 
-**1** You destroyer, you are in very bad trouble! Nobody destroyed you. You traitor, nobody betrayed you. When you stop destroying, someone will destroy you. When you stop betraying, someone will betray you.
+**1** You destroyer, you are in very bad trouble! Nobody destroyed you. You traitor, nobody betrayed you. When you stop your destruction, someone will destroy you. When you stop your betrayal, someone will betray you.
 
 **2** LORD, be kind to us. We wait for you. Be our strength each morning. Save us in times of trouble.
 
@@ -1332,13 +1332,13 @@
 
 **8** The roads are empty. No travelers go on them. The enemy broke the agreement. He hates the witnesses. He does not respect anybody.
 
-**9** The land mourns and becomes weak. Lebanon is ashamed and it dies. Sharon is as a desert. The trees of Bashan and Carmel lose their leaves.
+**9** The land mourns and becomes weak. Lebanon feels shame and it dies. Sharon is as a desert. The trees of Bashan and Carmel lose their leaves.
 
 **10** "Now I will get up," says the LORD. "Now I will show my greatness. Now I will show my power.
 
 **11** Your plans are as dry grass. Your actions are as straw. Your breath is a fire that will burn you.
 
-**12** The peoples will be burned to powder. They will burn as thorns that are cut and thrown into the fire.
+**12** The fire will burn the peoples to powder. They will burn as thorns that people cut and throw into the fire.
 
 **13** You people who are far away, hear what I did. You people who are near, know my power."
 
@@ -1368,7 +1368,7 @@
 
 **1** Come near, nations, and hear! Listen, peoples! Let the earth and all the things in it listen! Let the world and all the things that come from it listen!
 
-**2** The LORD is angry with all the nations. He is very angry with all their armies. He will completely destroy them. He will give them to be killed.
+**2** The LORD is angry with all the nations. He is very angry with all their armies. He will completely destroy them. He will give them to their killers.
 
 **3** Their dead bodies will lie on the ground. The bodies will smell bad. Their blood will flow down the mountains.
 
@@ -1376,13 +1376,13 @@
 
 **5** The LORD says, "My sword is ready in the sky. Look! It will come down on Edom to judge it. It will come down on the people that I decided to destroy."
 
-**6** The sword of the LORD is covered with blood and fat. It has the blood of lambs and goats. It has the fat from the kidneys of rams. The LORD will make a sacrifice in Bozrah. He will kill many people in the land of Edom.
+**6** Blood and fat cover the sword of the LORD. It has the blood of lambs and goats. It has the fat from the kidneys of rams. The LORD will make a sacrifice in Bozrah. He will kill many people in the land of Edom.
 
 **7** Wild oxen will die with them. Young bulls and strong bulls will die. Blood will cover the land. Fat will cover the ground.
 
 **8** The LORD has a day of revenge. It is a year when he will pay back the enemies of Zion.
 
-**9** The streams of Edom will become tar. Its dust will become burning sulfur. Its land will become burning tar.
+**9** The streams of Edom will become tar. Its dust will become sulfur that burns. Its land will become tar that burns.
 
 **10** The fire will burn day and night. Nobody will stop it. Its smoke will go up always. The land will be empty for all generations. Nobody will travel through it again.
 
@@ -1396,7 +1396,7 @@
 
 **15** Owls will make their nests there. They will lay eggs and hatch their young. They will protect their young under their wings. Hawks will also come there, each with its mate.
 
-**16** Look in the book of the LORD and read it. None of these animals will be missing. Each animal will have its mate. The LORD gave the order. His Spirit will bring the animals together.
+**16** Look in the book of the LORD and read it. None of these animals will be absent. Each animal will have its mate. The LORD gave the order. His Spirit will bring the animals together.
 
 **17** He divided the land and gave each animal its part. He measured the land for them with a line. They will own the land for all time. They will live there for all generations.
 
@@ -1420,7 +1420,7 @@
 
 **9** No lion will be there. No dangerous animal will come on it. The people whom the LORD saved will walk on it.
 
-**10** The people whom the LORD rescued will come back. They will come to Zion with songs. Joy will be on their heads always. They will be happy and full of joy. Sadness and crying will go away.
+**10** The people whom the LORD rescued will come back. They will come to Zion with songs. Joy will be on their heads always. They will be happy and full of joy. Sadness and tears will go away.
 
 ## Chapter 36
 
@@ -1434,7 +1434,7 @@
 
 **5** You say that you have plans and power for war. But your words have no value. Whom do you trust? Why do you turn against me?
 
-**6** Look! You trust Egypt. But Egypt is as a broken reed. If a man uses it as a walking stick, it will cut his hand. Pharaoh, the king of Egypt, is the same for all the people who trust him.
+**6** Look! You trust Egypt. But Egypt is as a broken reed. If a man leans on it as a stick, it will cut his hand. Pharaoh, the king of Egypt, is the same for all the people who trust him.
 
 **7** But maybe you will tell me, "We trust the LORD our God." But Hezekiah removed the high places and the altars of the LORD! He told Judah and Jerusalem, "You must worship at this altar."
 
@@ -1476,7 +1476,7 @@
 
 **3** They said to Isaiah, "Hezekiah says: Today is a day of trouble, punishment, and shame. We are as a woman who is ready to give birth. But she has no strength to give birth to the baby.
 
-**4** The king of Assyria sent his field commander to insult the living God. Maybe the LORD your God will hear his words. Maybe he will punish him for the words that the LORD your God heard. Thus pray for the people who stay alive."
+**4** The king of Assyria sent his field commander to insult the God who lives. Possibly the LORD your God will hear his words. Possibly he will punish him for the words that the LORD your God heard. Thus pray for the people who stay alive."
 
 **5** The officials of King Hezekiah came to Isaiah.
 
@@ -1502,7 +1502,7 @@
 
 **16** "LORD of armies, God of Israel, you sit on your throne above the cherubim. Only you are God of all the kingdoms of the earth. You made the heavens and the earth.
 
-**17** LORD, listen and hear. LORD, open your eyes and see. Hear all the words that Sennacherib sent to insult the living God.
+**17** LORD, listen and hear. LORD, open your eyes and see. Hear all the words that Sennacherib sent to insult the God who lives.
 
 **18** LORD, it is true that the kings of Assyria destroyed all these nations and their lands.
 
@@ -1568,9 +1568,9 @@
 
 **10** I said, "In the middle of my life I must go to the gates of the place of the dead (Sheol). I must lose the rest of my years."
 
-**11** I said, "I will not see the LORD again in the land of the living. I will not see people again among the people who live in the world.
+**11** I said, "I will not see the LORD again in the land of the people who live. I will not see people again among the people who live in the world.
 
-**12** My life is pulled down and taken away from me, as a tent of a shepherd. My life is cut off, as a weaver cuts cloth from the loom. From day until night you bring me to an end.
+**12** Someone pulls down my life and takes it away from me, as a tent of a shepherd. My life ends, as a weaver cuts cloth from the loom. From day until night you bring me to an end.
 
 **13** I waited calmly until morning. But he broke all my bones as a lion does. From day until night you bring me to an end.
 
@@ -1584,7 +1584,7 @@
 
 **18** The dead in the grave cannot praise you. Death cannot sing praises to you. The people who go down into the pit cannot hope for your faithfulness.
 
-**19** The living people, only the living people, praise you, as I do today. Fathers tell their children about your faithfulness.
+**19** The people who live, only the people who live, praise you, as I do today. Fathers tell their children about your faithfulness.
 
 **20** The LORD will save me. So we will play music on stringed instruments in the temple of the LORD. We will do this all the days of our lives."
 
@@ -1614,7 +1614,7 @@
 
 **1** "Comfort my people. Comfort them," says your God.
 
-**2** "Speak kindly to the people of Jerusalem. Tell them that their hard service is finished. Tell them that I forgave their sin. The LORD punished them 2 times for all their sins."
+**2** "Speak kindly to the people of Jerusalem. Tell them that their hard service is at an end. Tell them that I forgave their sin. The LORD punished them 2 times for all their sins."
 
 **3** A voice calls, "Prepare a road for the LORD in the wilderness! Make a straight road in the desert for our God!
 
@@ -1638,7 +1638,7 @@
 
 **13** Who can know the Spirit of the LORD? Who can be his advisor and teach him?
 
-**14** God did not ask anyone for advice. Nobody taught him the correct path. Nobody gave him knowledge. Nobody showed him the way of understanding.
+**14** God did not ask anyone for advice. Nobody taught him the correct path. Nobody gave him knowledge. Nobody showed him the way of wisdom.
 
 **15** Look! The nations are as a drop of water in a bucket. They are as dust on a scale. He lifts the islands as fine dust.
 
@@ -1662,11 +1662,11 @@
 
 **25** "To whom can you compare me? Who is equal to me?" says the Holy One.
 
-**26** Look up at the sky. Who made all the stars? He leads them out as an army, and he counts them. He calls each star by its name. His power is great and his strength is strong. Thus not 1 star is missing.
+**26** Look up at the sky. Who made all the stars? He leads them out as an army, and he counts them. He calls each star by its name. His power is great and his strength is strong. Thus not 1 star is absent.
 
 **27** People of Jacob, why do you complain? People of Israel, why do you say, "The LORD does not see my trouble. My God does not give me justice"?
 
-**28** Do you not know? Did you not hear? The LORD is the eternal God. He made all the earth. He does not become weak or tired. Nobody can know how great his understanding is.
+**28** Do you not know? Did you not hear? The LORD is the eternal God. He made all the earth. He does not become weak or tired. Nobody can know how great his wisdom is.
 
 **29** He gives strength to tired people. He gives more power to weak people.
 
@@ -1688,15 +1688,15 @@
 
 **6** Each person helped his neighbor. Each said to his brother, 'Be strong!'
 
-**7** The carpenter encourages the goldsmith. The worker who makes the metal smooth with a hammer encourages the worker who hits the anvil. He says, 'The welding is good.' He uses nails to make the idol firm, so that it will not fall over.
+**7** The carpenter encourages the goldsmith. The worker who makes the metal smooth with a hammer encourages the worker who hits the anvil. He says, 'The joint is good.' He uses nails to make the idol firm, so that it will not fall over.
 
 **8** But you, Israel, are my servant. People of Jacob, I chose you. You are the descendants of my friend Abraham.
 
 **9** I took you from the ends of the earth. I called you from its far corners. I said, 'You are my servant. I chose you and I did not refuse you.'
 
-**10** Do not be afraid, because I am with you. Do not be worried, because I am your God. I will make you strong and help you. I will hold you up with my right hand of righteousness.
+**10** Do not be afraid, because I am with you. Do not have fear, because I am your God. I will make you strong and help you. I will hold you up with my right hand of righteousness.
 
-**11** Look! All the people who are angry with you will be ashamed and confused. The people who fight against you will become as nothing. They will die.
+**11** Look! All the people who are angry with you will feel shame and confusion. The people who fight against you will become as nothing. They will die.
 
 **12** You will look for your enemies, but you will not find them. The people who make war against you will become as nothing.
 
@@ -1704,7 +1704,7 @@
 
 **14** Do not be afraid, people of Jacob, although you are small as a worm. People of Israel, I will help you," says the LORD. The Holy One of Israel is your Redeemer.
 
-**15** "Look! I will make you as a new threshing sledge with many sharp teeth. You will crush the mountains into small pieces. You will make the hills as straw.
+**15** "Look! I will make you as a new sledge with many sharp teeth. Farmers use it to separate grain. You will crush the mountains into small pieces. You will make the hills as straw.
 
 **16** You will throw them into the air. The wind will carry them away. The storm will scatter them. But you will be happy in the LORD. You will praise the Holy One of Israel.
 
@@ -1722,7 +1722,7 @@
 
 **23** Tell us what will happen in the future. Then we will know that you are gods. Do something, good or bad. Then we will be afraid and amazed.
 
-**24** Look! You are less than nothing. Your work has no value. The person who chooses you is disgusting.
+**24** Look! You are less than nothing. Your work has no value. The person who chooses you is a thing that God hates.
 
 **25** I caused a man to come from the north, and he comes. He comes from the east, and he calls on my name. He walks on rulers as on mud. He walks on them as a potter walks on clay.
 
@@ -1742,7 +1742,7 @@
 
 **3** He will not break a damaged reed. He will not put out a weak flame. He will faithfully bring justice.
 
-**4** He will not become weak or lose courage until he puts justice on the earth. The islands will wait for his teaching."
+**4** He will not become weak or lose courage until he puts justice on the earth. The islands will wait for his law."
 
 **5** God the LORD made the sky and spread it out. He spread out the earth and all the things that grow on it. He gives breath to the people on the earth. He gives life to all who live on it. He says,
 
@@ -1776,13 +1776,13 @@
 
 **20** You see many things, but you do not pay attention. Your ears are open, but you do not listen."
 
-**21** The LORD wanted to show that he is righteous. So he made his teaching great and glorious.
+**21** The LORD wanted to show that he is righteous. So he made his law great and glorious.
 
-**22** But these people are robbed and their goods are taken. They are all caught in holes. They are hidden in prisons. Enemies take them, and nobody saves them. Enemies rob them, and nobody says, "Give them back!"
+**22** But enemies rob these people and take their goods. Enemies catch all of them in holes. Enemies hide them in prisons. Enemies take them, and nobody saves them. Enemies rob them, and nobody says, "Give them back!"
 
 **23** Which of you will listen to this? Who will pay attention in the future?
 
-**24** Who let the enemies rob the people of Jacob? Who gave Israel to the thieves? The LORD did it, because we sinned against him. The people did not live as he told them. They did not obey his teaching.
+**24** Who let the enemies rob the people of Jacob? Who gave Israel to the thieves? The LORD did it, because we sinned against him. The people did not live as he told them. They did not obey his law.
 
 **25** Thus the LORD poured his strong anger on them. He sent war against them. His anger burned all around them, but they did not understand. It burned them, but they did not learn.
 
@@ -1790,7 +1790,7 @@
 
 **1** But now the LORD made you, people of Jacob. He formed you, people of Israel. He says, "Do not be afraid, because I saved you. I called you by your name. You are mine.
 
-**2** When you go through deep water, I will be with you. When you go through rivers, they will not cover you. When you walk through fire, you will not be burned. The flames will not hurt you.
+**2** When you go through deep water, I will be with you. When you go through rivers, they will not cover you. When you walk through fire, it will not burn you. The flames will not hurt you.
 
 **3** I am the LORD your God, the Holy One of Israel, your Savior. I gave Egypt as the price to free you. I gave Cush and Seba in your place.
 
@@ -1800,7 +1800,7 @@
 
 **6** I will tell the north, 'Let them go!' I will tell the south, 'Do not keep them!' Bring my sons from far away. Bring my daughters from the ends of the earth.
 
-**7** Bring all the people who are called by my name. I made them for my glory. I formed them and made them."
+**7** Bring all the people who carry my name. I made them for my glory. I formed them and made them."
 
 **8** Bring out the people who have eyes but are blind. Bring out the people who have ears but are deaf.
 
@@ -1810,7 +1810,7 @@
 
 **11** I, only I, am the LORD. There is no savior except me.
 
-**12** I told you what would happen. I saved you and I showed you my power. No foreign god among you did this. You are my witnesses that I am God," says the LORD.
+**12** I told you what will happen. I saved you and I showed you my power. No foreign god among you did this. You are my witnesses that I am God," says the LORD.
 
 **13** "I am God from all time. Nobody can take anything out of my hand. When I do something, nobody can stop it."
 
@@ -1842,13 +1842,13 @@
 
 **27** Your first ancestor sinned. Your leaders turned against me.
 
-**28** Thus I removed the honor of the leaders of the temple. I let Jacob be destroyed. I let people insult Israel."
+**28** Thus I removed the honor of the leaders of the temple. I let enemies destroy Jacob. I let people insult Israel."
 
 ## Chapter 44
 
 **1** "But now listen, people of Jacob, my servant. Listen, people of Israel, whom I chose."
 
-**2** The LORD made you. He formed you before you were born. He will help you. He says, "Do not be afraid, people of Jacob, my servant. Do not be afraid, Jeshurun, whom I chose.
+**2** The LORD made you. He formed you before your birth. He will help you. He says, "Do not be afraid, people of Jacob, my servant. Do not be afraid, Jeshurun, whom I chose.
 
 **3** I will pour water on the thirsty land. I will make streams flow on the dry ground. I will pour my Spirit on your children. I will pour my blessing on your descendants.
 
@@ -1860,13 +1860,13 @@
 
 **7** Who is the same as me? Let him speak and tell what happened since I made my people long ago. Let him explain it to me. Let him tell what will happen in the future.
 
-**8** Do not be afraid. Do not shake with fear. I told you these things long ago. I told you what would happen. You are my witnesses. Is there any God except me? No, there is no other Rock. I know of none."
+**8** Do not be afraid. Do not shake with fear. I told you these things long ago. I told you what will happen. You are my witnesses. Is there any God except me? No, there is no other Rock. I know of none."
 
-**9** All the people who make idols are nothing. The things that they love have no value. Their worshippers are their witnesses. But these witnesses are blind and know nothing. Thus they will be ashamed.
+**9** All the people who make idols are nothing. The things that they love have no value. Their worshippers are their witnesses. But these witnesses are blind and know nothing. Thus they will feel shame.
 
 **10** Who makes a god or shapes an idol that cannot help him?
 
-**11** Look! All the people who worship that idol will be ashamed. The workers who make idols are only humans. Let them all come together and stand up. They will be terrified and ashamed together.
+**11** Look! All the people who worship that idol will feel shame. The workers who make idols are only humans. Let them all come together and stand up. They will have much fear and shame together.
 
 **12** The blacksmith uses a tool and works over the hot coals. He shapes the idol with hammers. He uses the strength of his arms. Then he becomes hungry and loses his strength. He drinks no water and becomes tired.
 
@@ -1878,11 +1878,11 @@
 
 **16** He burns half of the wood in the fire. On it he cooks meat and eats until he is full. He warms himself and says, "Good! I am warm. I see the fire."
 
-**17** From the wood that is left, he makes a god, his idol. He bows down to it and worships it. He prays to it and says, "Save me, because you are my god!"
+**17** From the wood that remains, he makes a god, his idol. He bows down to it and worships it. He prays to it and says, "Save me, because you are my god!"
 
 **18** These people do not know or understand anything. God closed their eyes, so that they cannot see. He closed their minds, so that they cannot understand.
 
-**19** Nobody stops to think. Nobody has the knowledge or understanding to say, "I burned half of the wood in the fire. I baked bread on its coals. I cooked meat and ate it. Must I make a disgusting thing from the wood that is left? Must I bow down to a block of wood?"
+**19** Nobody stops to think. Nobody has the knowledge or wisdom to say, "I burned half of the wood in the fire. I baked bread on its coals. I cooked meat and ate it. Must I make a thing that God hates from the wood that remains? Must I bow down to a block of wood?"
 
 **20** He is as a person who eats ashes. His foolish mind leads him the wrong way. He cannot save himself. He cannot say, "The idol in my right hand is a lie."
 
@@ -1892,7 +1892,7 @@
 
 **23** Sing for joy, you heavens, because the LORD did this! Shout, you deep places of the earth! Sing, you mountains, forests, and all the trees! The LORD saved the people of Jacob. He shows his glory in Israel.
 
-**24** The LORD, your Redeemer, formed you before you were born. He says, "I am the LORD. I made all things. I alone spread out the sky. I spread out the earth by myself.
+**24** The LORD, your Redeemer, formed you before your birth. He says, "I am the LORD. I made all things. I alone spread out the sky. I spread out the earth by myself.
 
 **25** I show that the signs of false prophets are lies. I make fools of the people who tell the future. I make wise men confused. I make their knowledge foolish.
 
@@ -1908,7 +1908,7 @@
 
 **2** I will go in front of you. I will make the mountains level. I will break down the bronze gates. I will cut through the iron bars.
 
-**3** I will give you treasures that are hidden in dark places. I will give you riches from secret places. Then you will know that I am the LORD, the God of Israel. I call you by your name.
+**3** I will give you treasures from dark places. I will give you riches from secret places. Then you will know that I am the LORD, the God of Israel. I call you by your name.
 
 **4** I call you by your name because of my servant Jacob, Israel, whom I chose. I give you a title of honor, although you do not know me.
 
@@ -1920,7 +1920,7 @@
 
 **8** Sky above, rain down righteousness! Let the clouds pour it down! Let the earth open, and let salvation grow. Let righteousness grow with it. I, the LORD, made it."
 
-**9** The person who argues with God, who made him, is in very bad trouble! He is only a piece of broken pot among other pieces on the ground. The clay does not say to the potter, "What are you making?" The pot does not say, "He has no hands!"
+**9** The person who argues with God, who made him, is in very bad trouble! He is only a piece of broken pot among other pieces on the ground. The clay does not say to the potter, "What do you make?" The pot does not say, "He has no hands!"
 
 **10** The person who says to his father, "Why did you become my father?" is in very bad trouble! The person who says to his mother, "Why did you give birth to me?" is in very bad trouble!
 
@@ -1934,9 +1934,9 @@
 
 **15** Truly you are a God who hides himself, God of Israel, the Savior.
 
-**16** All the people who make idols will be ashamed and confused. They will all go away in shame together.
+**16** All the people who make idols will feel shame and confusion. They will all go away in shame together.
 
-**17** But the LORD will save Israel with a salvation that will last always. You will never be ashamed or confused again.
+**17** But the LORD will save Israel with a salvation that will last always. You will never feel shame or confusion again.
 
 **18** The LORD made the heavens. He is God. He formed the earth and made it. He made it firm. He did not make it empty. He made it for people to live on. He says, "I am the LORD, and there is no other God.
 
@@ -1946,21 +1946,21 @@
 
 **21** Speak and tell your case. Let them talk to each other. Who told about these things long ago? Who said them in the past? I, the LORD, did it! There is no other God except me. I am a righteous God and a Savior. There is no other God except me.
 
-**22** All the people at the ends of the earth, turn to me and be saved! I am God, and there is no other God.
+**22** All the people at the ends of the earth, turn to me and receive salvation! I am God, and there is no other God.
 
 **23** I made a promise by my own name. I spoke a true word, and I will not change it: All people will bow down to me. All people will promise to be loyal to me.
 
-**24** They will say about me, 'Only the LORD gives righteousness and strength.'" All the people who were angry with him will come to him and be ashamed.
+**24** They will say about me, 'Only the LORD gives righteousness and strength.'" All the people who were angry with him will come to him. They will feel shame.
 
 **25** The LORD will make all the descendants of Israel righteous. They will praise him.
 
 ## Chapter 46
 
-**1** Bel bows down. Nebo bends low. Their idols are carried on animals. The idols that people carried before are now a heavy load. They are a heavy load for tired animals.
+**1** Bel bows down. Nebo bends low. Animals carry their idols. The idols that people carried before are now a heavy load. They are a heavy load for tired animals.
 
 **2** The gods bend low and bow down together. They cannot save the load. They themselves go away as prisoners.
 
-**3** "Listen to me, people of Jacob. Listen, all you people of Israel who stay alive. I carried you since you were born. I took care of you since your birth.
+**3** "Listen to me, people of Jacob. Listen, all you people of Israel who stay alive. I carried you since your birth. I took care of you since the time you came from the womb.
 
 **4** Even when you are old, I will be the same. When your hair is gray, I will carry you. I made you, and I will carry you. I will carry you and save you.
 
@@ -1996,7 +1996,7 @@
 
 **6** I was angry with my people. I let my own people become unclean. I gave them to you. But you showed them no mercy. You put a very heavy load even on old people.
 
-**7** You said, 'I will always be the queen!' You did not think about these things. You did not think about what would happen at the end.
+**7** You said, 'I will always be the queen!' You did not think about these things. You did not think about what will happen at the end.
 
 **8** Now listen, you who love pleasure! You feel safe. You say to yourself, 'I am the only one. Nobody is the same as me. I will never be a widow. I will never lose my children.'
 
@@ -2008,7 +2008,7 @@
 
 **12** Continue to use your magic spells and your many charms! You used them since you were young. Maybe they will help you. Maybe you will make your enemies afraid.
 
-**13** You are tired of all the advice that you get. Let your astrologers come and save you. Let the people who look at the stars and tell the future each month save you from what will happen.
+**13** All the advice that you get makes you weary. Let your astrologers come and save you. Let the people who look at the stars and tell the future each month save you from what will happen.
 
 **14** Look! They are as straw. The fire will burn them. They cannot save themselves from the power of the flames. This fire is not a coal to warm a person. It is not a fire to sit near.
 
@@ -2026,11 +2026,11 @@
 
 **5** Thus I told you about these events a long time ago. I told you before they occurred. I did this so that you could not say, 'My idol did these things. My carved statue and my metal statue caused them.'
 
-**6** You heard about these things. Now look at all of them. Will you not say that they are true? From now on I tell you about new things. These things were hidden, and you did not know them.
+**6** You heard about these things. Now look at all of them. Will you not say that they are true? From now on I tell you about new things. I hid these things, and you did not know them.
 
 **7** I make them now. I did not make them a long time ago. You did not hear about them before today. Thus you cannot say, 'I knew about them.'
 
-**8** You did not hear about them and you did not know about them. Your ears were closed from the start. I knew that you would be very disloyal. People called you a rebel from the time of your birth.
+**8** You did not hear about them and you did not know about them. Your ears did not open from the start. I knew that you will be very disloyal. People called you a rebel from the time of your birth.
 
 **9** For the honor of my name, I will wait to show my anger. For my praise, I will control my anger toward you. Thus I will not destroy you.
 
@@ -2050,9 +2050,9 @@
 
 **17** The LORD, who saves you, the Holy One of Israel, says this: "I am the LORD your God. I teach you what is good for you. I lead you on the road that you must go.
 
-**18** I wish that you obeyed my commands! Then your peace would be like a river that flows always. Your goodness would be like the waves of the sea.
+**18** I wish that you obeyed my commands! Then you could have peace like a river that flows always. You could have goodness like the waves of the sea.
 
-**19** Your descendants would be as many as the grains of sand. Your children would be as many as the small stones on the shore. I would not remove or destroy their name from in front of me."
+**19** Then you could have descendants as many as the grains of sand. You could have children as many as the small stones on the shore. Their name could stay in front of me always."
 
 **20** Go out of Babylon! Run away from the Chaldeans! Shout with joy and tell this news. Send the news to all parts of the earth. Say, "The LORD paid the price to free his servant Jacob."
 
@@ -2106,7 +2106,7 @@
 
 **22** The Lord GOD says this: "Look, I will lift my hand to signal to the Gentiles. I will raise my flag for the nations. They will carry your sons in their arms. They will carry your daughters on their shoulders.
 
-**23** Kings will take care of your children like fathers. Queens will take care of them like mothers. They will bow down to you with their faces to the ground. They will show you complete respect. Then you will know that I am the LORD. The people who wait for me will not be ashamed."
+**23** Kings will take care of your children like fathers. Queens will take care of them like mothers. They will bow down to you with their faces to the ground. They will show you complete respect. Then you will know that I am the LORD. The people who wait for me will not feel shame."
 
 **24** Can a person take the stolen goods from a strong warrior? Can a prisoner escape from a cruel ruler?
 
@@ -2116,7 +2116,7 @@
 
 ## Chapter 50
 
-**1** The LORD says this: "Where is the document that shows that I divorced your mother? To which of my creditors did I sell you? Look, you were sold because of your sins. I sent your mother away because of your rebellion.
+**1** The LORD says this: "Where is the document that shows that I divorced your mother? To which of my creditors did I sell you? Look, I sold you because of your sins. I sent your mother away because of your rebellion.
 
 **2** When I came, why was no person there? When I called, why did no person answer? Is my arm too short to save you? Do I not have the power to rescue you? Look, I speak a command and the sea becomes dry. I make the rivers into a desert. The fish die because there is no water, and they smell bad.
 
@@ -2128,7 +2128,7 @@
 
 **6** I let people hit my back. I let them pull out the hair of my beard. I did not hide my face when they insulted me and spat on me.
 
-**7** The Lord GOD helps me, thus I will not be ashamed. I made my face firm like a hard stone. I know that I will not be put to shame.
+**7** The Lord GOD helps me, thus I will not feel shame. I made my face firm like a hard stone. I know that nobody will put me to shame.
 
 **8** The God who says that I am innocent is near. Who will accuse me? Let us stand together in court. Who is my enemy? Let him come near to me.
 
@@ -2176,7 +2176,7 @@
 
 **18** You gave birth to many sons and raised them. But not 1 of them can guide you. Not 1 of them can hold your hand.
 
-**19** These 2 disasters came to you. Who will feel sorry for you? Your land is destroyed, and your people are hungry and dead in war. Who will comfort you?
+**19** These 2 disasters came to you. Who will feel sorry for you? Enemies destroyed your land, and your people are hungry and dead in war. Who will comfort you?
 
 **20** Your sons are weak and fall down. They lie at the corners of all the streets. They are like an animal caught in a net. The anger of the LORD fills them. Your God punished them.
 
@@ -2188,7 +2188,7 @@
 
 ## Chapter 52
 
-**1** Wake up, wake up, Zion! Be strong again! Put on your beautiful clothes, Jerusalem, the holy city! People who are not circumcised and people who are unclean will not come into you again.
+**1** Wake up, wake up, Zion! Be strong again! Put on your beautiful clothes, Jerusalem, the holy city! People who did not receive circumcision and people who are unclean will not come into you again.
 
 **2** Shake off the dust and stand up, Jerusalem. Sit on your throne. Remove the chains from your neck, captive people of Zion.
 
@@ -2212,9 +2212,9 @@
 
 **12** You will not leave quickly. You will not need to run away. The LORD will go in front of you. The God of Israel will protect you from behind.
 
-**13** Look, my servant will act wisely. He will be honored and lifted up. He will be very great.
+**13** Look, my servant will act wisely. People will honor him and lift him up. He will be very great.
 
-**14** Many people were shocked when they saw him. His face was so damaged that he did not look like a man. His body did not look like a human body.
+**14** Many people felt shock when they saw him. His face had so much damage that he did not look like a man. His body did not look like a human body.
 
 **15** But now he will surprise many nations. Kings will be silent because of him. They will see things that no person told them. They will understand things that they did not hear.
 
@@ -2232,27 +2232,27 @@
 
 **6** All of us went away from God, as sheep go away from the shepherd. Each of us went his own way. But the LORD put the sin of all of us on him.
 
-**7** People did cruel things to him and caused him pain. But he did not say a word. People led him away like a lamb to be killed. A sheep is silent when men cut its wool. Thus he did not say a word.
+**7** People did cruel things to him and caused him pain. But he did not say a word. People led him away like a lamb to its death. A sheep is silent when men cut its wool. Thus he did not say a word.
 
 **8** People arrested him, judged him unfairly and took him away. No person of his generation thought about him. People killed him. God punished him because of the sins of my people.
 
-**9** People made his grave with the graves of wicked men. He was buried with a rich man. But he did no violent act, and he told no lies.
+**9** People made his grave with the graves of wicked men. People put him in the grave of a rich man. But he did no violent act, and he told no lies.
 
 **10** But the LORD wanted to crush him and to cause him to suffer. His life was an offering to remove sin. Thus he will see his descendants and he will live a long time. Through him, the LORD will do what he wants.
 
-**11** After his suffering, he will see the light of life and be satisfied. My servant does what is right. By his knowledge he will make many people right with God. He will carry the punishment for their sins.
+**11** After the pain of his soul, he will see the light of life and be content. My servant does what is right. By his knowledge he will make many people right with God. He will carry the punishment for their sins.
 
 **12** Thus I will give him a place among the great people. He will share the rewards of victory with the strong. He gave his life and he died. People counted him with the sinners. He carried the sins of many people. He asked God to forgive the sinners.
 
 ## Chapter 54
 
-**1** "Sing, woman who has no children! You never gave birth. Start to sing and shout with joy, you who never felt the pain of birth. The woman who was left alone will have more children than the woman with a husband," says the LORD.
+**1** "Sing, woman who has no children! You never gave birth. Start to sing and shout with joy, you who never felt the pain of birth. The woman whom her husband left alone will have more children than the woman with a husband," says the LORD.
 
 **2** "Make your tent larger. Spread out the curtains of your home. Do not stop. Make your ropes longer and make your tent posts stronger.
 
 **3** You will spread out to the right and to the left. Your descendants will take the land of the nations. They will make people live in the empty cities again.
 
-**4** Do not be afraid, because you will not be ashamed. Do not be confused, because people will not disgrace you. You will forget the shame of your youth. You will not remember the disgrace of the time when you were a widow.
+**4** Do not be afraid, because you will not feel shame. Do not have confusion, because people will not disgrace you. You will forget the shame of your youth. You will not remember the disgrace of the time when you were a widow.
 
 **5** The God who made you is your husband. His name is the LORD of armies. The Holy One of Israel saves you. People call him the God of all the earth.
 
@@ -2268,7 +2268,7 @@
 
 **11** "You suffered much, city of Jerusalem. Storms hit you, and no person comforted you. Look, I will build you with beautiful stones. I will make your foundations with sapphires.
 
-**12** I will make your towers of rubies. I will make your gates of shining jewels. I will make all your walls of valuable stones.
+**12** I will make your towers of rubies. I will make your gates of bright jewels. I will make all your walls of valuable stones.
 
 **13** The LORD will teach all your children. Your children will have much peace.
 
@@ -2306,7 +2306,7 @@
 
 **12** You will go out of Babylon with joy. I will lead you in peace. The mountains and the hills will sing in front of you. All the trees in the fields will clap their hands.
 
-**13** Fir trees will grow where thorn plants grew. Myrtle trees will grow where weeds grew. This will bring honor to the LORD. It will be a sign that continues always. It will not be destroyed."
+**13** Fir trees will grow where thorn plants grew. Myrtle trees will grow where weeds grew. This will bring honor to the LORD. It will be a sign that continues always. Nothing will destroy it."
 
 ## Chapter 56
 
@@ -2318,13 +2318,13 @@
 
 **4** The LORD says this: "Some eunuchs keep my Sabbaths. They choose to do the things that please me. They obey my agreement (covenant).
 
-**5** I will give them a place in my temple and inside my walls. I will give them a name that is better than sons and daughters. I will give them a name that continues always. It will not be destroyed.
+**5** I will give them a place in my temple and inside my walls. I will give them a name that is better than sons and daughters. I will give them a name that continues always. Nothing will destroy it.
 
 **6** Some foreigners join themselves to the LORD. They serve him and love his name. They become his servants. They keep the Sabbath and do not make it unholy. They obey my agreement.
 
 **7** I will bring these foreigners to my holy mountain. I will make them happy in my house of prayer. I will accept their burnt offerings and their sacrifices on my altar. People will call my temple a house of prayer for all nations."
 
-**8** The Lord GOD, who gathers the people of Israel who were sent away, says this: "I will gather more people to them. I will add these to the people that I already gathered."
+**8** The Lord GOD, who gathers the people of Israel whom enemies sent away, says this: "I will gather more people to them. I will add these to the people that I already gathered."
 
 **9** Come, all you wild animals in the fields and in the forest. Come and eat!
 
@@ -2336,7 +2336,7 @@
 
 ## Chapter 57
 
-**1** Good people die, and no person thinks about it. Faithful people are taken away, and no person understands. God takes good people away to protect them from the evil that will come.
+**1** Good people die, and no person thinks about it. Death takes faithful people away, and no person understands. God takes good people away to protect them from the evil that will come.
 
 **2** They go into peace. People who live honest lives find rest in death.
 
@@ -2346,7 +2346,7 @@
 
 **5** You have strong sexual desire for idols under every large green tree. You kill your children as sacrifices in the valleys, under the edges of the rocks.
 
-**6** You worship the smooth stones of the valley. You chose those stones. You pour out drink offerings to them. You give grain offerings to them. Must I be satisfied with these things?
+**6** You worship the smooth stones of the valley. You chose those stones. You pour out drink offerings to them. You give grain offerings to them. Must I feel content with these things?
 
 **7** You made your bed on a high mountain. You went up there to give sacrifices.
 
@@ -2366,7 +2366,7 @@
 
 **15** God is high and great. He lives always, and his name is Holy. He says this: "I live in a high and holy place. But I also live with people who are sorry for their sins and humble. I give new life to the spirit of humble people. I give new life to the heart of people who are sorry for their sins.
 
-**16** I will not accuse people always. I will not be angry always. If I did, the spirit of people would become weak in front of me. The people that I made would become weak.
+**16** I will not accuse people always. I will not be angry always. If I did, the spirit of people will become weak in front of me. The people that I made will become weak.
 
 **17** I was angry because of the greed and sin of my people. Thus I punished them. I hid my face and I was angry. But they continued to do what they wanted.
 
@@ -2384,7 +2384,7 @@
 
 **2** Every day they look for me. They seem to want to know my ways. They act like a nation that does what is right. They act like a nation that obeys the laws of its God. They ask me for fair decisions. They seem to want to come near to God.
 
-**3** They say, 'Why did we fast (stop eating food) when you did not see? Why did we make ourselves humble when you did not notice?' Look, on your days of fasting you do what you want. You force your workers to work hard.
+**3** They say, 'Why did we fast (stop to eat food) when you did not see? Why did we make ourselves humble when you did not notice?' Look, on your fast days you do what you want. You force your workers to work hard.
 
 **4** Look, when you fast, you argue and you fight. You hit people with your fists. If you fast like this, I will not hear your prayers.
 
@@ -2396,7 +2396,7 @@
 
 **8** Then your light will shine like the sun in the morning. You will quickly become healthy. Your goodness will go in front of you. The glory of the LORD will protect you from behind.
 
-**9** Then you will call, and the LORD will answer. You will call for help, and he will say, 'I am here.' Stop the cruel acts against other people. Stop pointing your finger at people and speaking evil.
+**9** Then you will call, and the LORD will answer. You will call for help, and he will say, 'I am here.' Stop the cruel acts against other people. Do not point your finger at people. Do not speak evil.
 
 **10** Give food to hungry people. Help people who suffer. Then your light will shine in the darkness. Your darkness will become as bright as noon.
 
@@ -2438,9 +2438,9 @@
 
 **14** Thus there is no justice. Goodness stays far away. Truth falls down in the street. Honesty cannot come in.
 
-**15** There is no truth. People attack the person who stops doing evil. The LORD saw that there was no justice, and he was not pleased.
+**15** There is no truth. People attack the person who stops his evil acts. The LORD saw that there was no justice, and he was not happy.
 
-**16** He saw that there was no person to help. He was surprised that no person came to help. Thus he used his own power to save his people. His goodness gave him strength.
+**16** He saw that there was no person to help. He wondered why no person came to help. Thus he used his own power to save his people. His goodness gave him strength.
 
 **17** He put on goodness like a breastplate. He put salvation on his head like a helmet. He put on the clothes of punishment. He covered himself with strong zeal like a coat.
 
@@ -2462,7 +2462,7 @@
 
 **4** Look around you and see. All your people come together and come to you. Your sons come from far away. People carry your daughters in their arms.
 
-**5** Then you will see this and your face will shine with joy. Your heart will be excited and full of joy. The wealth of the sea will come to you. The riches of the nations will come to you.
+**5** Then you will see this and your face will shine with joy. Your heart will beat fast and be full of joy. The wealth of the sea will come to you. The riches of the nations will come to you.
 
 **6** Many camels will fill your land. Young camels will come from Midian and Ephah. All the people from Sheba will come. They will bring gold and incense. They will praise the LORD.
 
@@ -2476,7 +2476,7 @@
 
 **11** Your gates will always be open. People will not close them in the day or in the night. Thus people can bring you the riches of the nations. Their kings will come in a procession.
 
-**12** The nation or kingdom that does not serve you will be destroyed. Those nations will be completely destroyed.
+**12** The nation or kingdom that does not serve you will die. Those nations will become complete ruins.
 
 **13** The best trees of Lebanon will come to you. The fir tree, the pine tree and the cypress tree will come together. They will make my temple beautiful. I will make the place of my feet glorious.
 
@@ -2500,7 +2500,7 @@
 
 ## Chapter 61
 
-**1** The Spirit of the Lord GOD is on me. The LORD anointed me (chose me with oil) to tell good news to poor people. He sent me to heal people whose hearts are broken. He sent me to tell the captives that they are free. He sent me to tell the prisoners that they will be released.
+**1** The Spirit of the Lord GOD is on me. The LORD anointed me (chose me with oil) to tell good news to poor people. He sent me to heal people with broken hearts. He sent me to tell the captives that they are free. He sent me to tell the prisoners that I will release them.
 
 **2** He sent me to announce the year when the LORD will show his kindness. He sent me to announce the day when our God will punish his enemies. He sent me to comfort all sad people.
 
@@ -2516,7 +2516,7 @@
 
 **8** "I, the LORD, love justice. I hate robbery and wrong acts. I will be faithful and give my people their reward. I will make an agreement (covenant) with them that continues always.
 
-**9** Their descendants will be famous among the nations. Their children will be known among the peoples. All people who see them will know that the LORD blessed them."
+**9** Their descendants will be famous among the nations. The peoples will know their children. All people who see them will know that the LORD blessed them."
 
 **10** I am very happy in the LORD. My soul is full of joy in my God. He put on me the clothes of salvation. He covered me with a coat of goodness. I am like a bridegroom who puts on a decorated hat. I am like a bride who puts on her jewels.
 
@@ -2530,7 +2530,7 @@
 
 **3** You will be like a beautiful crown in the hand of the LORD. You will be like the crown of a king in the hand of your God.
 
-**4** People will not call you "Left Alone" again. They will not call your land "Empty" again. Your new name will be "Hephzibah", which means "I am happy with her." Your land will be called "Beulah", which means "Married." The LORD is happy with you, and your land will have a husband.
+**4** People will not call you "Left Alone" again. They will not call your land "Empty" again. Your new name will be "Hephzibah", which means "I am happy with her." People will call your land "Beulah", which means "Married." The LORD is happy with you, and your land will have a husband.
 
 **5** A young man marries a young woman. Thus your sons will marry you. A bridegroom is happy with his bride. Thus your God will be happy with you.
 
@@ -2558,7 +2558,7 @@
 
 **4** I decided that the time to punish my enemies was here. The year to free my people came.
 
-**5** I looked, but there was no person to help me. I was surprised that no person gave me support. Thus I used my own power to save my people. My anger gave me strength.
+**5** I looked, but there was no person to help me. I wondered why no person gave me support. Thus I used my own power to save my people. My anger gave me strength.
 
 **6** In my anger I walked on the nations. I caused them to stagger with my anger. I poured their blood on the ground."
 
@@ -2586,11 +2586,11 @@
 
 **18** Your holy people owned your land for only a short time. Now our enemies walk on your temple and destroy it.
 
-**19** We are like people that you never ruled. We are like people who are not called by your name.
+**19** We are like people that you never ruled. We are like people who do not carry your name.
 
 ## Chapter 64
 
-**1** We wish that you would tear open the sky and come down! Then the mountains would shake in front of you.
+**1** We want you to tear open the sky and come down! Then the mountains will shake in front of you.
 
 **2** Come like a fire that burns sticks. Come like a fire that causes water to boil. Show your name to your enemies. Then the nations will shake with fear in front of you.
 
@@ -2598,7 +2598,7 @@
 
 **4** From the start of the world no person heard of a God like you. No ear heard about one and no eye saw one. Only you act for the people who wait for you.
 
-**5** You help people who are happy to do what is right. You help people who remember your ways. But you were angry because we sinned. We continued to sin for a long time. How can we be saved?
+**5** You help people who are happy to do what is right. You help people who remember your ways. But you were angry because we sinned. We continued to sin for a long time. How can you save us?
 
 **6** All of us became like a person who is unclean. All our good acts are like dirty cloth. All of us are like dead leaves. Our sins carry us away like the wind.
 
@@ -2610,7 +2610,7 @@
 
 **10** Your holy cities are now a desert. Zion is a desert. Jerusalem is empty and destroyed.
 
-**11** Our holy and beautiful temple is burned. Our ancestors praised you there. All the things that we loved are destroyed.
+**11** Fire burned our holy and beautiful temple. Our ancestors praised you there. Enemies destroyed all the things that we loved.
 
 **12** LORD, after all these things, will you not do something? Will you be silent and punish us very much?
 
@@ -2638,11 +2638,11 @@
 
 **11** But some of you left the LORD and forgot my holy mountain. You prepare food for the god Fortune. You pour out mixed wine for the god Fate.
 
-**12** Thus I will decide that you will die in war. All of you will bow down to be killed. When I called, you did not answer. When I spoke, you did not listen. You did evil things in front of me. You chose to do things that I do not like."
+**12** Thus I will decide that you will die in war. All of you will bow down to your killers. When I called, you did not answer. When I spoke, you did not listen. You did evil things in front of me. You chose to do things that I do not like."
 
-**13** Thus the Lord GOD says this: "Look, my servants will eat, but you will be hungry. My servants will drink, but you will be thirsty. My servants will be happy, but you will be ashamed.
+**13** Thus the Lord GOD says this: "Look, my servants will eat, but you will be hungry. My servants will drink, but you will be thirsty. My servants will be happy, but you will feel shame.
 
-**14** My servants will sing with happy hearts. But you will cry with sad hearts. You will cry loudly because your spirit is broken.
+**14** My servants will sing with happy hearts. But you will cry with sad hearts. You will cry loudly because you have a broken spirit.
 
 **15** My chosen people will use your name as a curse. The Lord GOD will kill you. But he will give his servants another name.
 
@@ -2652,7 +2652,7 @@
 
 **18** Be happy and full of joy always because of the things that I make. Look, I will make Jerusalem a city of joy. I will make her people happy.
 
-**19** I will be happy with Jerusalem. I will be glad about my people. People will not hear the sound of crying in the city again.
+**19** I will be happy with Jerusalem. I will be glad about my people. People will not hear the sound of tears and sadness in the city again.
 
 **20** In that city no baby will die after only a few days. All old people will live a long life. A person who dies at 100 years old will seem young. A person who does not live 100 years will seem cursed.
 
@@ -2676,19 +2676,19 @@
 
 **4** Thus I will choose to punish them. I will bring on them the things that they fear. When I called, no person answered. When I spoke, they did not listen. They did evil things in front of me. They chose to do things that I do not like."
 
-**5** Hear the word of the LORD, you who respect his word with fear. "Your brothers hate you. They send you away because you are loyal to me. They say, 'Let the LORD show his glory. Then we will see your joy.' But they will be ashamed.
+**5** Hear the word of the LORD, you who respect his word with fear. "Your brothers hate you. They send you away because you are loyal to me. They say, 'Let the LORD show his glory. Then we will see your joy.' But they will feel shame.
 
 **6** Hear the loud noise from the city! Hear the sound from the temple! It is the sound of the LORD. He punishes his enemies for what they did.
 
 **7** Zion gave birth before she felt the pain of birth. Before the pain came, she gave birth to a son.
 
-**8** Who ever heard of a thing like this? Who ever saw things like these? Can a country be born in 1 day? Can a nation be born in 1 moment? But when Zion felt the pain of birth, she gave birth to her children at once.
+**8** Who ever heard of a thing like this? Who ever saw things like these? Can a country start in 1 day? Can a nation come to life in 1 moment? But when Zion felt the pain of birth, she gave birth to her children at once.
 
 **9** I start the birth of a child. Thus I will not stop the birth," says the LORD. "I cause the birth of a child. Thus I will not close the womb," says your God.
 
 **10** "Be happy with Jerusalem, all you who love her. Be glad with her. Be very happy with her, all you who were sad for her.
 
-**11** Then you will get comfort from her, as a baby gets milk from its mother. You will be satisfied. You will enjoy her great riches.
+**11** Then you will get comfort from her, as a baby gets milk from its mother. You will be content. You will enjoy her great riches.
 
 **12** The LORD says this: "Look, I will give Jerusalem peace that flows like a river. The riches of the nations will come to her like a stream that flows over its banks. You will be like a baby that its mother feeds. She will carry you in her arms. She will play with you on her knees.
 

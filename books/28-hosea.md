@@ -16,11 +16,11 @@
 
 **7** But I will show mercy to the people of Judah. I, the LORD their God, will save them. I will not save them with bows, swords, or battles. I will not save them with horses or men on horses."
 
-**8** Gomer stopped giving milk to Lo-ruhamah. Then Gomer became pregnant and gave birth to a son.
+**8** Lo-ruhamah stopped her diet of milk from Gomer. Then Gomer became pregnant again and gave birth to a son.
 
 **9** God said, "Give the son the name Lo-ammi, which means 'Not my people.' I say this because you are not my people. And I will not be your God.
 
-**10** But a day will come when the people of Israel will be as many as the grains of sand by the sea. Nobody can measure or count the sand. In the place where people said to them, 'You are not my people,' people will say to them, 'You are the sons of the living God.'
+**10** But a day will come. Then the people of Israel will be as many as the grains of sand by the sea. Nobody can measure or count the sand. People said to them in a place, 'You are not my people.' In that place people will say to them, 'You are the sons of the God who lives.'
 
 **11** The people of Judah and the people of Israel will come together again. They will choose 1 leader for themselves. They will come up out of the land. The day of Jezreel will be a great day."
 
@@ -60,7 +60,7 @@
 
 **17** I will remove the names of the Baals from her mouth. People will not remember their names again.
 
-**18** At that time I will make an agreement (covenant) for my people with the wild animals, the birds of the sky, and the animals that move on the ground. I will remove the bow, the sword, and war from the land. I will let my people sleep safely.
+**18** At that time I will make an agreement (covenant) for my people with the wild animals and the birds of the sky. It will include the animals that move on the ground. I will remove the bow, the sword, and war from the land. I will let my people sleep safely.
 
 **19** I will make you my wife for all time. I will make you my wife with righteousness and justice. I will make you my wife with love and mercy.
 
@@ -104,7 +104,7 @@
 
 **9** The people and the priests will get the same punishment. I will punish them for their ways. I will pay them back for what they did.
 
-**10** They will eat, but they will not have enough. They will have sex with prostitutes, but they will not have more children. They stopped obeying the LORD.
+**10** They will eat, but they will not have enough. They will have sex with prostitutes, but they will not have more children. They stopped their obedience to the LORD.
 
 **11** Prostitution, wine, and new wine take away the good judgment of my people.
 
@@ -112,7 +112,7 @@
 
 **13** They offer sacrifices on the tops of the mountains. They burn incense on the hills under oak trees, poplar trees, and other big trees, because the shade is good. Thus your daughters become prostitutes. Your daughters-in-law do adultery.
 
-**14** I will not punish your daughters when they become prostitutes. I will not punish your daughters-in-law when they do adultery. I will not punish them, because the men also go with prostitutes. The men offer sacrifices with temple prostitutes. People who do not understand will be destroyed.
+**14** I will not punish your daughters when they become prostitutes. I will not punish your daughters-in-law when they do adultery. I will not punish them, because the men also go with prostitutes. The men offer sacrifices with temple prostitutes. People who do not understand will fall.
 
 **15** Israel, you are not faithful, but Judah must not become guilty. Do not go to Gilgal. Do not go up to Beth-aven. Do not make a promise with the words, "As the LORD lives."
 
@@ -120,9 +120,9 @@
 
 **17** Ephraim joined with idols. Let Ephraim go its own way.
 
-**18** When their drinks are finished, they go to prostitutes. Their rulers love shameful things.
+**18** When their drinks are gone, they go to prostitutes. Their rulers love shameful things.
 
-**19** A wind will take them away. They will be ashamed of their sacrifices.
+**19** A wind will take them away. They will feel shame because of their sacrifices.
 
 ## Chapter 5
 
@@ -138,15 +138,15 @@
 
 **6** They will go with their flocks and their herds to look for the LORD. But they will not find him. He went away from them.
 
-**7** They were not faithful to the LORD. They had children who are not his. Now in 1 month they will be destroyed together with their fields.
+**7** They were not faithful to the LORD. They had children who are not his. Now in 1 month destruction will come on them and on their fields.
 
-**8** Blow the horn in Gibeah. Blow the trumpet in Ramah. Shout a warning at Beth-aven. Benjamin, the enemy is behind you.
+**8** Blow the horn in Gibeah. Blow the trumpet in Ramah. Shout loudly at Beth-aven to tell the danger. Benjamin, the enemy is behind you.
 
 **9** Ephraim will become empty on the day of punishment. I tell the tribes of Israel what will surely occur.
 
 **10** The leaders of Judah are like men who move the stones that show the borders of land. I will pour my anger on them like water.
 
-**11** Ephraim suffers. Ephraim is crushed by judgment, because Ephraim chose to follow idols.
+**11** Ephraim suffers. Judgment crushes Ephraim, because Ephraim chose to follow idols.
 
 **12** I will be like a moth to Ephraim. I will be like rot to the people of Judah.
 
@@ -196,7 +196,7 @@
 
 **7** All of them are hot like an oven. They kill their rulers. All their kings fall. Not one of them calls to me.
 
-**8** Ephraim mixes with the other nations. Ephraim is like bread that is cooked on only 1 side.
+**8** Ephraim mixes with the other nations. Ephraim is like bread that someone cooked on only 1 side.
 
 **9** Foreign people take away his strength, but he does not know it. His hair becomes gray, but he does not know it.
 
@@ -206,7 +206,7 @@
 
 **12** When they go, I will throw my net over them. I will pull them down like birds from the sky. I will punish them, as I told their assembly.
 
-**13** They will have much trouble, because they went away from me. They will be destroyed, because they rebelled against me. I wanted to save them, but they told lies about me.
+**13** They will have much trouble, because they went away from me. Destruction will come on them, because they rebelled against me. I wanted to save them, but they told lies about me.
 
 **14** They do not cry to me from their hearts. They cry loudly on their beds. They gather together for grain and new wine. But they turn away from me.
 
@@ -222,15 +222,15 @@
 
 **3** But Israel refused what is good. Thus an enemy will chase Israel.
 
-**4** They made kings, but I did not choose those kings. They chose leaders, but I did not approve the leaders. They used their silver and gold to make idols for themselves. Thus they will be destroyed.
+**4** They made kings, but I did not choose those kings. They chose leaders, but I did not approve the leaders. They used their silver and gold to make idols for themselves. Thus destruction will come on them.
 
 **5** Samaria, I refuse your calf idol. My anger burns against the people. How long will they continue to be guilty?
 
-**6** That calf comes from Israel. A worker made it, so it is not God. The calf of Samaria will be broken into pieces.
+**6** That calf comes from Israel. A worker made it, so it is not God. The calf of Samaria will break into pieces.
 
 **7** They plant the wind, and they will harvest a storm. The grain has no head, and it will make no flour. If it makes flour, foreign people will eat it.
 
-**8** Israel is swallowed up. Now Israel is among the nations like a pot that nobody wants.
+**8** Other nations swallow up Israel. Now Israel is among the nations like a pot that nobody wants.
 
 **9** They went up to Assyria, like a wild donkey that goes alone. Ephraim paid lovers to help him.
 
@@ -246,9 +246,9 @@
 
 ## Chapter 9
 
-**1** Israel, do not be happy. Do not celebrate like the other nations. You were not faithful to your God. You loved the pay of a prostitute on every threshing floor.
+**1** Israel, do not be happy. Do not celebrate like the other nations. You were not faithful to your God. You loved the pay of a prostitute on every floor where people beat grain.
 
-**2** The threshing floor and the winepress will not feed the people. The new wine will not be sufficient for them.
+**2** The floor where people beat grain and the winepress will not feed the people. The new wine will not be sufficient for them.
 
 **3** They will not stay in the land of the LORD. Ephraim will go back to Egypt. They will eat food that is not clean in Assyria.
 
@@ -264,7 +264,7 @@
 
 **9** The people did very bad crimes, as in the days of Gibeah. God will remember their sin. He will punish their sins.
 
-**10** "When I found Israel, it was like a discovery of grapes in the desert. When I saw your ancestors, it was like the first fruit on a fig tree. But they went to Baal-peor and gave themselves to that shameful idol. They became disgusting, like the idol that they loved.
+**10** "When I found Israel, it was like a discovery of grapes in the desert. When I saw your ancestors, it was like the first fruit on a fig tree. But they went to Baal-peor and gave themselves to that shameful idol. They became filthy, like the idol that they loved.
 
 **11** The glory of Ephraim will fly away like a bird. There will be no births, no pregnancies, and no conceptions.
 
@@ -292,11 +292,11 @@
 
 **5** The people who live in Samaria will be afraid for the calf idol of Beth-aven. Its people will cry for it. Its priests, who celebrated it, will also cry. They will cry because its glory goes away from it.
 
-**6** The enemy will carry the calf to Assyria as a gift for the great king. Ephraim will be ashamed. Israel will be ashamed of its idol.
+**6** The enemy will carry the calf to Assyria as a gift for the great king. Ephraim will feel shame. Israel will feel shame because of its idol.
 
-**7** The king of Samaria will be destroyed. He will be like a stick that floats away on the water.
+**7** The king of Samaria will come to an end. He will be like a stick that floats away on the water.
 
-**8** The high places of Aven will be destroyed. Those places are the sin of Israel. Thorns and weeds will grow on their altars. Then the people will say to the mountains, "Cover us." They will say to the hills, "Fall on us."
+**8** Someone will destroy the high places of Aven. Those places are the sin of Israel. Thorns and weeds will grow on their altars. Then the people will say to the mountains, "Cover us." They will say to the hills, "Fall on us."
 
 **9** "Israel, you sinned from the days of Gibeah. You did not change since that time. Will war not come to the evil people in Gibeah?
 
@@ -308,9 +308,9 @@
 
 **13** But you planted evil, and you harvested sin. You ate the fruit of lies. You trusted in your own way. You trusted in your many soldiers.
 
-**14** Thus the noise of war will start among your people. All your strong cities will be destroyed. Shalman destroyed Beth-arbel in the battle. There the enemy killed the mothers together with their children.
+**14** Thus the noise of war will start among your people. The enemy will destroy all your strong cities. Shalman destroyed Beth-arbel in the battle. There the enemy killed the mothers together with their children.
 
-**15** The same thing will occur to you, Bethel, because your evil is very large. At dawn the king of Israel will be destroyed completely."
+**15** The same thing will occur to you, Bethel, because your evil is very large. At dawn the king of Israel will come to a complete end."
 
 ## Chapter 11
 
@@ -326,7 +326,7 @@
 
 **6** War will go through their cities. The enemy will destroy the bars of their gates. The enemy will destroy them because of their bad plans.
 
-**7** My people are determined to go away from me. They call to the Most High God, but he will not lift them up.
+**7** My people continue to go away from me. They call to the Most High God, but he will not lift them up.
 
 **8** Ephraim, how can I give you up? Israel, how can I give you to your enemies? How can I make you like the city of Admah? How can I destroy you like Zeboim? My heart changes inside me. All my pity becomes strong.
 
@@ -374,7 +374,7 @@
 
 **2** Now the people sin more and more. They use their silver to make metal idols. They make idols with their own skill. Workers make all of these idols. The people say about the idols, "Offer human sacrifices and kiss the calf idols."
 
-**3** Thus the people will be like a morning cloud. They will be like the early dew that goes away quickly. They will be like the chaff that the wind blows from a threshing floor. They will be like smoke that goes out of a window.
+**3** Thus the people will be like a morning cloud. They will be like the early dew that goes away quickly. They will be like the chaff that the wind blows from a floor where people beat grain. They will be like smoke that goes out of a window.
 
 **4** "But I am the LORD your God, who brought you out of the land of Egypt. You must know no god but me. There is no Savior but me.
 
@@ -386,7 +386,7 @@
 
 **8** I will attack them like a bear that lost her cubs. I will tear open their chests. I will eat them like a lion. Like a wild animal, I will tear them into pieces.
 
-**9** Israel, you are destroyed because you are against me. I am your help.
+**9** Israel, you destroyed yourself because you are against me. I am your help.
 
 **10** Where is your king now? He cannot save you in all your cities. Where are your rulers? You said, 'Give us a king and leaders.'
 

@@ -42,25 +42,25 @@
 
 **2** He must bring it to the priests, the sons of Aaron. The priest must take a handful of the flour and oil, with all the frankincense. The priest must burn this part on the altar as a memorial portion. It is an offering by fire, and its smell pleases the LORD.
 
-**3** The remaining part of the grain offering is for Aaron and his sons. It is a most holy part of the offerings by fire to the LORD.
+**3** The rest of the grain offering is for Aaron and his sons. It is a most holy part of the offerings by fire to the LORD.
 
 **4** If you bring a grain offering that you bake in an oven, it must be fine flour without yeast. Bring thick loaves mixed with oil, or thin wafers with oil on them.
 
-**5** If your grain offering is cooked on a flat pan, it must be fine flour without yeast, mixed with oil.
+**5** If your grain offering comes from a flat pan, it must be fine flour without yeast, mixed with oil.
 
 **6** Break it into pieces and pour oil on it. It is a grain offering.
 
-**7** If your grain offering is cooked in a pot, make it from fine flour and oil.
+**7** If you cook your grain offering in a pot, make it from fine flour and oil.
 
 **8** Bring the grain offering that you make from these things to the LORD. Give it to the priest, and he must bring it to the altar.
 
 **9** The priest must take the memorial portion from the grain offering. He must burn it on the altar. It is an offering by fire, and its smell pleases the LORD.
 
-**10** The remaining part of the grain offering is for Aaron and his sons. It is a most holy part of the offerings by fire to the LORD.
+**10** The rest of the grain offering is for Aaron and his sons. It is a most holy part of the offerings by fire to the LORD.
 
 **11** Do not make with yeast any grain offering that you bring to the LORD. Do not burn yeast or honey in any offering by fire to the LORD.
 
-**12** You can offer yeast and honey to the LORD as an offering of the first crops. But do not burn them on the altar as an offering with a pleasing smell.
+**12** You can offer yeast and honey to the LORD as an offering of the first crops. But do not burn them on the altar as an offering with a sweet smell.
 
 **13** Put salt on each grain offering. Salt is a sign of the covenant with your God. Always put salt in your grain offerings. Offer salt with all your offerings.
 
@@ -120,7 +120,7 @@
 
 **6** The priest must put his finger in the blood. He must sprinkle some of the blood 7 times in front of the LORD, in front of the curtain of the holy place.
 
-**7** The priest must put some of the blood on the horns of the altar of sweet incense in front of the LORD. This altar is in the Tent of Meeting. He must pour out all the remaining blood of the bull at the bottom of the altar of burnt offering. This altar is at the entrance of the Tent of Meeting.
+**7** The priest must put some of the blood on the horns of the altar of sweet incense in front of the LORD. This altar is in the Tent of Meeting. He must pour out all the rest of the blood of the bull at the bottom of the altar of burnt offering. This altar is at the entrance of the Tent of Meeting.
 
 **8** He must remove all the fat from the bull of the sin offering. He must remove the fat that covers the inner organs and all the fat on them.
 
@@ -142,7 +142,7 @@
 
 **17** The priest must put his finger in the blood. He must sprinkle the blood 7 times in front of the LORD, in front of the curtain.
 
-**18** He must put some of the blood on the horns of the altar in front of the LORD in the Tent of Meeting. He must pour out all the remaining blood at the bottom of the altar of burnt offering. This altar is at the entrance of the Tent of Meeting.
+**18** He must put some of the blood on the horns of the altar in front of the LORD in the Tent of Meeting. He must pour out all the rest of the blood at the bottom of the altar of burnt offering. This altar is at the entrance of the Tent of Meeting.
 
 **19** He must remove all the fat from the bull and burn it on the altar.
 
@@ -156,7 +156,7 @@
 
 **24** He must put his hand on the head of the goat. He must kill it in front of the LORD, in the place where they kill the burnt offering. It is a sin offering.
 
-**25** The priest must put his finger in the blood of the sin offering. He must put some blood on the horns of the altar of burnt offering. He must pour out the remaining blood at the bottom of the altar of burnt offering.
+**25** The priest must put his finger in the blood of the sin offering. He must put some blood on the horns of the altar of burnt offering. He must pour out the rest of the blood at the bottom of the altar of burnt offering.
 
 **26** He must burn all the fat on the altar, the same as the fat of the peace offering. The priest must make atonement for the sin of the leader, and God will forgive him.
 
@@ -166,7 +166,7 @@
 
 **29** He must put his hand on the head of the sin offering. He must kill it in the place of the burnt offering.
 
-**30** The priest must put his finger in some of the blood. He must put the blood on the horns of the altar of burnt offering. He must pour out all the remaining blood at the bottom of the altar.
+**30** The priest must put his finger in some of the blood. He must put the blood on the horns of the altar of burnt offering. He must pour out all the rest of the blood at the bottom of the altar.
 
 **31** He must remove all the fat, as the priests remove the fat from the peace offering. The priest must burn it on the altar, and its smell will please the LORD. The priest must make atonement for him, and God will forgive him.
 
@@ -174,7 +174,7 @@
 
 **33** He must put his hand on the head of the sin offering. He must kill it as a sin offering in the place where they kill the burnt offering.
 
-**34** The priest must put his finger in some of the blood of the sin offering. He must put the blood on the horns of the altar of burnt offering. He must pour out all the remaining blood at the bottom of the altar.
+**34** The priest must put his finger in some of the blood of the sin offering. He must put the blood on the horns of the altar of burnt offering. He must pour out all the rest of the blood at the bottom of the altar.
 
 **35** He must remove all the fat, as the priests remove the fat of the lamb from the peace offering. The priest must burn it on the altar with the offerings by fire to the LORD. The priest must make atonement for the sin of the person, and God will forgive him.'"
 
@@ -196,7 +196,7 @@
 
 **8** He must bring them to the priest. The priest must offer the bird for the sin offering first. He must twist its head from its neck, but he must not remove the head.
 
-**9** He must sprinkle some of the blood of the sin offering on the side of the altar. He must drain the remaining blood at the bottom of the altar. It is a sin offering.
+**9** He must sprinkle some of the blood of the sin offering on the side of the altar. He must drain the rest of the blood at the bottom of the altar. It is a sin offering.
 
 **10** He must offer the second bird as a burnt offering, as the rules tell. The priest must make atonement for the sin of the person, and God will forgive him.
 
@@ -204,7 +204,7 @@
 
 **12** He must bring it to the priest. The priest must take a handful of it as a memorial portion. He must burn it on the altar with the offerings by fire to the LORD. It is a sin offering.
 
-**13** The priest must make atonement for the person for his sin, and God will forgive him. The remaining flour is for the priest, the same as a grain offering.'"
+**13** The priest must make atonement for the person for his sin, and God will forgive him. The rest of the flour is for the priest, the same as a grain offering.'"
 
 **14** The LORD spoke to Moses. He said,
 
@@ -226,7 +226,7 @@
 
 **3** He can find a lost thing and lie about it. He can make a false promise. A person can sin in any of these ways.
 
-**4** If he sins in this way and is guilty, he must give back the thing that he stole. He must give back the thing that he got by cheating. He must give back the thing that the neighbor gave him to keep, or the lost thing that he found.
+**4** If he sins in this way and is guilty, he must give back the thing that he stole. He must give back the thing that he got by a trick. He must give back the thing that the neighbor gave him to keep, or the lost thing that he found.
 
 **5** He must give back anything about which he made a false promise. He must pay the full value and add 1/5 to it. He must give it to the owner on the day that he brings his guilt offering.
 
@@ -250,7 +250,7 @@
 
 **15** The priest must take a handful of the flour and oil of the grain offering, with all the frankincense on it. He must burn it on the altar as the memorial portion. Its smell pleases the LORD.
 
-**16** Aaron and his sons must eat the remaining part. They must eat it without yeast in a holy place. They must eat it in the courtyard of the Tent of Meeting.
+**16** Aaron and his sons must eat the rest of it. They must eat it without yeast in a holy place. They must eat it in the courtyard of the Tent of Meeting.
 
 **17** Do not bake it with yeast. I give it to the priests as their part of my offerings by fire. It is most holy, the same as the sin offering and the guilt offering.
 
@@ -258,7 +258,7 @@
 
 **19** The LORD spoke to Moses. He said,
 
-**20** "This is the offering that Aaron and his sons must offer to the LORD on the day of the anointing of a priest. They must offer 1/10 of an ephah of fine flour as a regular grain offering. They must offer half of it in the morning and half of it in the evening.
+**20** "This is the offering that Aaron and his sons must offer to the LORD on the day when Moses anoints a priest. They must offer 1/10 of an ephah of fine flour as a regular grain offering. They must offer half of it in the morning and half of it in the evening.
 
 **21** Make it with oil on a flat pan. Mix it well and bring it in. Offer the grain offering in baked pieces. Its smell pleases the LORD.
 
@@ -278,7 +278,7 @@
 
 **29** All the males among the priests can eat it. It is most holy.
 
-**30** But if a priest brings any of the blood of a sin offering into the Tent of Meeting to make atonement in the holy place, no person must eat that offering. Burn it in the fire.'"
+**30** But a priest can bring some of the blood of a sin offering into the Tent of Meeting to make atonement in the holy place. Then no person must eat that offering. Burn it in the fire.'"
 
 ## Chapter 7
 
@@ -298,7 +298,7 @@
 
 **8** When a priest offers a burnt offering for a person, the skin of that animal is for the priest.
 
-**9** Each grain offering that a person bakes in an oven or cooks in a pot or on a flat pan is for the priest who offers it.
+**9** Each grain offering that a person bakes in an oven is for the priest who offers it. Each grain offering that a person cooks in a pot or on a flat pan is also for that priest.
 
 **10** Each grain offering, mixed with oil or dry, is for all the sons of Aaron. Each son must get an equal part.
 
@@ -312,17 +312,17 @@
 
 **15** The person must eat the meat of his peace offering of thanks on the day that he offers it. He must not keep any of it until the morning.
 
-**16** But his sacrifice can be for a promise (vow), or it can be a free offering. Then he must eat it on the day that he offers it. He can eat the remaining part on the next day.
+**16** But his sacrifice can be for a promise (vow), or it can be a free offering. Then he must eat it on the day that he offers it. He can eat the rest of it on the next day.
 
-**17** But on the third day, he must burn the remaining meat of the sacrifice.
+**17** But on the third day, he must burn the rest of the meat of the sacrifice.
 
-**18** If a person eats any of the meat of his peace offering on the third day, the LORD will not accept the offering. The offering will not help the person who offered it. The meat will be disgusting. The person who eats it will be responsible for his guilt.
+**18** If a person eats any of the meat of his peace offering on the third day, the LORD will not accept the offering. The offering will not help the person who offered it. The meat will be detestable. The person who eats it will be responsible for his guilt.
 
 **19** Do not eat meat that touches any unclean thing. Burn it. Any person who is clean can eat the other meat.
 
 **20** If a person is unclean and eats the meat of a peace offering for the LORD, remove that person from his people.
 
-**21** A person can touch an unclean thing. It can be an unclean thing from a human, an unclean animal, or any disgusting unclean thing. If that person eats the meat of a peace offering for the LORD, remove that person from his people.'"
+**21** A person can touch an unclean thing. It can be an unclean thing from a human, an unclean animal, or any detestable unclean thing. If that person eats the meat of a peace offering for the LORD, remove that person from his people.'"
 
 **22** The LORD spoke to Moses. He said,
 
@@ -362,7 +362,7 @@
 
 **1** The LORD spoke to Moses. He said,
 
-**2** "Bring Aaron and his sons. Bring the clothes, the anointing oil, the bull for the sin offering, the 2 rams, and the basket of bread without yeast.
+**2** "Bring Aaron and his sons. Bring the clothes, the holy oil, the bull for the sin offering, the 2 rams, and the basket of bread without yeast.
 
 **3** Gather all the community at the entrance of the Tent of Meeting."
 
@@ -378,17 +378,17 @@
 
 **9** He put the turban on the head of Aaron. On the front of the turban, he put the gold plate, the holy crown. Moses did as the LORD commanded him.
 
-**10** Moses took the anointing oil. He poured it on the tabernacle and on all the things in it, and he made them holy.
+**10** Moses took the holy oil. He poured it on the tabernacle and on all the things in it, and he made them holy.
 
 **11** He sprinkled some of the oil on the altar 7 times. He poured oil on the altar and all its equipment, and on the basin and its base, to make them holy.
 
-**12** He poured some of the anointing oil on the head of Aaron. He anointed Aaron to make him holy.
+**12** He poured some of the holy oil on the head of Aaron. He anointed Aaron to make him holy.
 
 **13** Moses brought the sons of Aaron. He put coats on them and tied sashes around them. He put caps on their heads. Moses did as the LORD commanded him.
 
 **14** Moses brought the bull for the sin offering. Aaron and his sons put their hands on the head of the bull.
 
-**15** Moses killed the bull. He took the blood and put it on all the horns of the altar with his finger. Thus, he made the altar pure. He poured out the remaining blood at the bottom of the altar. He made the altar holy, to make atonement for it.
+**15** Moses killed the bull. He took the blood and put it on all the horns of the altar with his finger. Thus, he made the altar pure. He poured out the rest of the blood at the bottom of the altar. He made the altar holy, to make atonement for it.
 
 **16** Moses took all the fat on the inner organs, the best part of the liver, and the 2 kidneys with their fat. He burned them on the altar.
 
@@ -406,7 +406,7 @@
 
 **23** Moses killed the ram. He took some of its blood and put it on the bottom of the right ear of Aaron. He put blood on the thumb of his right hand and on the big toe of his right foot.
 
-**24** Moses brought the sons of Aaron. He put some of the blood on the bottom of their right ears. He put blood on the thumbs of their right hands and on the big toes of their right feet. Moses sprinkled the remaining blood on all sides of the altar.
+**24** Moses brought the sons of Aaron. He put some of the blood on the bottom of their right ears. He put blood on the thumbs of their right hands and on the big toes of their right feet. Moses sprinkled the rest of the blood on all sides of the altar.
 
 **25** He took the fat, the fat tail, and all the fat on the inner organs. He took the best part of the liver, the 2 kidneys with their fat, and the right thigh.
 
@@ -418,11 +418,11 @@
 
 **29** Moses took the breast and waved it in front of the LORD as a wave offering. It was the part of the ram of ordination for Moses, as the LORD commanded him.
 
-**30** Moses took some of the anointing oil and some of the blood on the altar. He sprinkled it on Aaron and his clothes, and on his sons and their clothes. Thus, he made Aaron, his sons, and their clothes holy.
+**30** Moses took some of the holy oil and some of the blood on the altar. He sprinkled it on Aaron and his clothes, and on his sons and their clothes. Thus, he made Aaron, his sons, and their clothes holy.
 
 **31** Moses said to Aaron and his sons, "Boil the meat at the entrance of the Tent of Meeting. Eat it there with the bread in the basket of the ordination offerings. I commanded, 'Aaron and his sons must eat it.'
 
-**32** Burn the remaining meat and bread.
+**32** Burn the rest of the meat and bread.
 
 **33** Do not go out of the entrance of the Tent of Meeting for 7 days, until the days of your ordination are complete. Your ordination will continue for 7 days.
 
@@ -450,7 +450,7 @@
 
 **8** Thus, Aaron went to the altar. He killed the calf as the sin offering for himself.
 
-**9** The sons of Aaron brought the blood to him. He put his finger in the blood and put it on the horns of the altar. He poured out the remaining blood at the bottom of the altar.
+**9** The sons of Aaron brought the blood to him. He put his finger in the blood and put it on the horns of the altar. He poured out the rest of the blood at the bottom of the altar.
 
 **10** He burned the fat, the kidneys, and the best part of the liver from the sin offering on the altar. He did as the LORD commanded Moses.
 
@@ -496,7 +496,7 @@
 
 **6** Moses said to Aaron and to his sons Eleazar and Ithamar, "Do not let your hair hang loose. Do not tear your clothes. If you do these things, you will die, and the LORD will be angry with all the community. But your relatives, all the people of Israel, can cry for the people that the LORD burned.
 
-**7** Do not go out of the entrance of the Tent of Meeting. If you go out, you will die. The anointing oil of the LORD is on you." Thus, they did what Moses said.
+**7** Do not go out of the entrance of the Tent of Meeting. If you go out, you will die. The holy oil of the LORD is on you." Thus, they did what Moses said.
 
 **8** The LORD spoke to Aaron. He said,
 
@@ -506,7 +506,7 @@
 
 **11** You must teach the people of Israel all the laws that the LORD gave them through Moses."
 
-**12** Moses spoke to Aaron and to his 2 remaining sons, Eleazar and Ithamar. He said, "Take the remaining part of the grain offering from the offerings by fire to the LORD. Eat it without yeast next to the altar, because it is most holy.
+**12** Moses spoke to Aaron and to the 2 sons of Aaron who were still alive, Eleazar and Ithamar. He said, "Take the rest of the grain offering from the offerings by fire to the LORD. Eat it without yeast next to the altar, because it is most holy.
 
 **13** Eat it in a holy place. It is your part and the part of your sons from the offerings by fire to the LORD. The LORD commanded me to tell you this.
 
@@ -514,15 +514,15 @@
 
 **15** The people must bring the thigh and the breast with the fat for the offerings by fire. The priest must wave them in front of the LORD as a wave offering. These parts are for you and your sons. This is a permanent law, as the LORD commanded."
 
-**16** Moses looked carefully for the goat of the sin offering. He found that the priests burned it. He was angry with Eleazar and Ithamar, the remaining sons of Aaron. He said,
+**16** Moses looked carefully for the goat of the sin offering. He found that the priests burned it. He was angry with Eleazar and Ithamar, the sons of Aaron who were still alive. He said,
 
 **17** "Why did you not eat the sin offering in the holy place? It is most holy. God gave it to you to remove the guilt of the community. You must make atonement for them in front of the LORD.
 
 **18** Look, you did not bring its blood into the holy place. Thus, you had to eat the meat in the holy place, as I commanded."
 
-**19** Aaron said to Moses, "Today my sons offered their sin offering and their burnt offering in front of the LORD. But these bad things happened to me. If I ate the sin offering today, would the LORD be pleased?"
+**19** Aaron said to Moses, "Today my sons offered their sin offering and their burnt offering in front of the LORD. But these bad things happened to me. If I ate the sin offering today, will the LORD accept it?"
 
-**20** When Moses heard this, he was satisfied.
+**20** When Moses heard this, he was content.
 
 ## Chapter 11
 
@@ -544,13 +544,13 @@
 
 **9** From all the animals in the water, you can eat these animals. You can eat each animal in the seas and in the rivers that has fins and scales.
 
-**10** But some animals in the seas and rivers do not have fins and scales. These include all the small animals and all the other animals in the water. These animals are disgusting to you.
+**10** But some animals in the seas and rivers do not have fins and scales. These include all the small animals and all the other animals in the water. These animals are detestable to you.
 
-**11** They are disgusting to you. Do not eat their meat. Think of their dead bodies as disgusting.
+**11** They are detestable to you. Do not eat their meat. Think of their dead bodies as detestable.
 
-**12** Each animal in the water that does not have fins and scales is disgusting to you.
+**12** Each animal in the water that does not have fins and scales is detestable to you.
 
-**13** These are the birds that you must think of as disgusting. Do not eat them, because they are disgusting. Do not eat the eagle, the vulture, or the black vulture.
+**13** These are the birds that you must think of as detestable. Do not eat them, because they are detestable. Do not eat the eagle, the vulture, or the black vulture.
 
 **14** Do not eat the kite or any type of falcon.
 
@@ -564,13 +564,13 @@
 
 **19** Do not eat the stork, any type of heron, the hoopoe, or the bat.
 
-**20** All insects with wings that walk on 4 legs are disgusting to you.
+**20** All insects with wings that walk on 4 legs are detestable to you.
 
-**21** But you can eat some insects with wings that walk on 4 legs. You can eat the insects that have jointed legs to jump on the ground.
+**21** But you can eat some insects with wings that walk on 4 legs. You can eat the insects that have legs with joints to jump on the ground.
 
 **22** You can eat any type of locust, bald locust, cricket, or grasshopper.
 
-**23** But all other insects with wings and 4 legs are disgusting to you.
+**23** But all other insects with wings and 4 legs are detestable to you.
 
 **24** These animals will make you unclean. Each person who touches their dead bodies will be unclean until the evening.
 
@@ -594,11 +594,11 @@
 
 **34** If water from that pot touches any food, the food will be unclean. Any drink in that pot will be unclean.
 
-**35** If any part of a dead body of these animals falls on a thing, that thing will be unclean. Break an oven or a cooking pot that becomes unclean. These things are unclean, and you must think of them as unclean.
+**35** If any part of a dead body of these animals falls on a thing, that thing will be unclean. Break an oven or a pot for food that becomes unclean. These things are unclean, and you must think of them as unclean.
 
 **36** But a spring or a well with water will stay clean. But a person who touches the dead body will be unclean.
 
-**37** If any part of a dead body falls on seeds for planting, the seeds will stay clean.
+**37** If any part of a dead body falls on seeds that a person will plant, the seeds will stay clean.
 
 **38** But if a person puts water on the seeds and a part of a dead body falls on them, they are unclean for you.
 
@@ -606,11 +606,11 @@
 
 **40** A person who eats some of the dead body must wash his clothes. He will be unclean until the evening. A person who carries the dead body must wash his clothes. He will be unclean until the evening.
 
-**41** Each small animal that moves on the ground is disgusting. Do not eat it.
+**41** Each small animal that moves on the ground is detestable. Do not eat it.
 
-**42** Do not eat any small animal that moves on the ground. Do not eat an animal that moves on its stomach, on 4 legs, or on many legs. These animals are disgusting.
+**42** Do not eat any small animal that moves on the ground. Do not eat an animal that moves on its stomach, on 4 legs, or on many legs. These animals are detestable.
 
-**43** Do not make yourselves disgusting with any small animal that moves on the ground. Do not make yourselves unclean with these animals.
+**43** Do not make yourselves detestable with any small animal that moves on the ground. Do not make yourselves unclean with these animals.
 
 **44** I am the LORD your God. Make yourselves holy and be holy, because I am holy. Do not make yourselves unclean with any small animal that moves on the ground.
 
@@ -628,13 +628,13 @@
 
 **3** On the eighth day, circumcise the boy.
 
-**4** Then the woman must wait 33 days to become pure from her bleeding. She must not touch any holy thing. She must not go into the holy place until her time of purification is complete.
+**4** Then the woman must wait 33 days to become pure from her flow of blood. She must not touch any holy thing. She must not go into the holy place until her time of purification is complete.
 
-**5** If she gives birth to a girl, she will be unclean for 2 weeks, the same as during her monthly period. Then she must wait 66 days to become pure from her bleeding.
+**5** If she gives birth to a girl, she will be unclean for 2 weeks, the same as during her monthly period. Then she must wait 66 days to become pure from her flow of blood.
 
 **6** After the birth of a son or a daughter, her time of purification will be complete. Then she must bring a lamb 1 year old for a burnt offering. She must bring a young pigeon or a dove for a sin offering. She must bring them to the priest at the entrance of the Tent of Meeting.
 
-**7** The priest must offer them in front of the LORD and make atonement for her. Then she will be clean from her bleeding. This is the law for a woman who gives birth to a boy or a girl.
+**7** The priest must offer them in front of the LORD and make atonement for her. Then she will be clean from her flow of blood. This is the law for a woman who gives birth to a boy or a girl.
 
 **8** If she does not have sufficient money for a lamb, she must bring 2 doves or 2 young pigeons. She must bring 1 bird for the burnt offering and 1 bird for a sin offering. The priest must make atonement for her, and she will be clean.'"
 
@@ -642,7 +642,7 @@
 
 **1** The LORD spoke to Moses and Aaron. He said,
 
-**2** "A person can have a swelling, a scab, or a bright spot on his skin. It can look like a serious skin disease (leprosy). Then bring the person to Aaron the priest or to one of his sons, the priests.
+**2** "A person can have a lump, a scab, or a bright spot on his skin. It can look like a serious skin disease (leprosy). Then bring the person to Aaron the priest or to one of his sons, the priests.
 
 **3** The priest must examine the sore on the skin. If the hair in the sore is white and the sore goes deeper than the skin, it is leprosy. After the priest examines him, he must say that the person is unclean.
 
@@ -658,7 +658,7 @@
 
 **9** When a person has leprosy, bring him to the priest.
 
-**10** The priest must examine him. There can be a white swelling on the skin that makes the hair white. There can be raw flesh in the swelling.
+**10** The priest must examine him. There can be a white lump on the skin that makes the hair white. There can be raw flesh in the lump.
 
 **11** Then it is a chronic leprosy on his skin. The priest must say that the person is unclean. The priest must not isolate him, because he is already unclean.
 
@@ -676,11 +676,11 @@
 
 **18** A person can have a boil on his skin, and the boil can heal.
 
-**19** In the place of the boil, a white swelling or a bright, red-white spot can appear. Then the person must show it to the priest.
+**19** In the place of the boil, a white lump or a bright, red-white spot can appear. Then the person must show it to the priest.
 
 **20** The priest must examine it. If it is deeper than the skin and the hair in it is white, the priest must say that the person is unclean. It is leprosy that started in the boil.
 
-**21** But if the priest examines it and there are no white hairs in it, and it is not deeper than the skin and is less bright, the priest must isolate the person for 7 days.
+**21** But the priest can examine it and see that there are no white hairs in it. It can be not deeper than the skin and less bright. Then the priest must isolate the person for 7 days.
 
 **22** If it spreads on the skin, the priest must say that the person is unclean. It is a disease.
 
@@ -690,17 +690,17 @@
 
 **25** Then the priest must examine it. If the hair in the bright spot is white and the spot is deeper than the skin, it is leprosy that started in the burn. The priest must say that the person is unclean. It is leprosy.
 
-**26** But if the priest examines it and there is no white hair in the bright spot, and it is not deeper than the skin and is less bright, the priest must isolate the person for 7 days.
+**26** But the priest can examine it and see that there is no white hair in the bright spot. It can be not deeper than the skin and less bright. Then the priest must isolate the person for 7 days.
 
 **27** On the seventh day, the priest must examine him. If it spreads on the skin, the priest must say that the person is unclean. It is leprosy.
 
-**28** But if the bright spot stays in its place, does not spread, and is less bright, it is a swelling from the burn. The priest must say that the person is clean, because it is only the scar of the burn.
+**28** But if the bright spot stays in its place, does not spread, and is less bright, it is a lump from the burn. The priest must say that the person is clean, because it is only the scar of the burn.
 
 **29** A man or a woman can have a sore on the head or on the chin.
 
 **30** Then the priest must examine the sore. If it is deeper than the skin and has thin yellow hair in it, the priest must say that the person is unclean. It is an itch, a leprosy of the head or the chin.
 
-**31** But if the priest examines the itch and it is not deeper than the skin, and there is no black hair in it, the priest must isolate the person for 7 days.
+**31** But the priest can examine the itch and see that it is not deeper than the skin. There can be no black hair in it. Then the priest must isolate the person for 7 days.
 
 **32** On the seventh day, the priest must examine the sore. The itch can stay the same and have no yellow hair in it. It can stay not deeper than the skin.
 
@@ -712,7 +712,7 @@
 
 **36** Then the priest must examine him. If the itch spreads on the skin, the priest does not need to look for yellow hair. The person is unclean.
 
-**37** But if the itch stays the same and black hair grows in it, the itch is healed. The person is clean, and the priest must say that he is clean.
+**37** But if the itch stays the same and black hair grows in it, the itch is gone. The person is clean, and the priest must say that he is clean.
 
 **38** A man or a woman can have bright spots on the skin, white bright spots.
 
@@ -724,7 +724,7 @@
 
 **42** But a red-white sore can appear on his bald head or on his bald forehead. Then it is leprosy that started there.
 
-**43** The priest must examine him. The swelling of the sore can be red-white on his bald head or forehead. It can look like leprosy on the skin.
+**43** The priest must examine him. The lump of the sore can be red-white on his bald head or forehead. It can look like leprosy on the skin.
 
 **44** Then the man has leprosy, and he is unclean. The priest must say that he is unclean, because of the sore on his head.
 
@@ -748,11 +748,11 @@
 
 **54** then the priest must command the people to wash the item with the mold. He must isolate it for 7 more days.
 
-**55** After the washing, the priest must examine the item. If the mold does not change its color, the item is unclean, even if the mold does not spread. Burn the item in the fire. The mold eats into the item, on the inside or the outside.
+**55** After someone washes the item, the priest must examine it. If the mold does not change its color, the item is unclean, even if the mold does not spread. Burn the item in the fire. The mold eats into the item, on the inside or the outside.
 
-**56** But if the priest examines it and the mold is less bright after the washing, he must tear that part out of the garment, leather, or material.
+**56** But the priest can examine it after someone washes it, and the mold can be less bright. Then he must tear that part out of the garment, leather, or material.
 
-**57** If the mold appears again in the garment, material, or leather, it is spreading. Burn the item with the mold.
+**57** If the mold appears again in the garment, material, or leather, it spreads. Burn the item with the mold.
 
 **58** But you can wash the garment, material, or leather item, and the mold can go away. Then wash it a second time, and it will be clean.
 
@@ -764,7 +764,7 @@
 
 **2** "This is the law for a person with leprosy on the day that he becomes clean. Bring him to the priest.
 
-**3** The priest must go outside the camp and examine the person. The leprosy of the person can be healed.
+**3** The priest must go outside the camp and examine the person. The leprosy of the person can be gone.
 
 **4** Then the priest must command people to bring 2 clean, live birds for the person. They must also bring cedar wood, red yarn, and hyssop.
 
@@ -792,19 +792,19 @@
 
 **16** The priest must put his right finger into the oil in his left hand. He must sprinkle some of the oil with his finger 7 times in front of the LORD.
 
-**17** The priest must put some of the remaining oil in his hand on the bottom of the right ear of the person who becomes clean. He must put it on the thumb of his right hand and on the big toe of his right foot. He must put the oil on top of the blood of the guilt offering.
+**17** The priest must take some of the rest of the oil in his hand. He must put it on the bottom of the right ear of the person who becomes clean. He must put it on the thumb of his right hand and on the big toe of his right foot. He must put the oil on top of the blood of the guilt offering.
 
-**18** The priest must pour the remaining oil in his hand on the head of the person who becomes clean. The priest must make atonement for him in front of the LORD.
+**18** The priest must pour the rest of the oil in his hand on the head of the person who becomes clean. The priest must make atonement for him in front of the LORD.
 
 **19** The priest must offer the sin offering and make atonement for the person who becomes clean from his uncleanness. After that, he must kill the burnt offering.
 
 **20** The priest must offer the burnt offering and the grain offering on the altar. The priest must make atonement for him, and he will be clean.
 
-**21** But if the person is poor and does not have sufficient money, he must take 1 male lamb as a guilt offering to wave, to make atonement for him. He must take 1/10 of an ephah of fine flour mixed with oil as a grain offering. He must take 1 log of oil.
+**21** But the person can be poor and not have sufficient money. Then he must take 1 male lamb as a guilt offering to wave, to make atonement for him. He must take 1/10 of an ephah of fine flour mixed with oil as a grain offering. He must take 1 log of oil.
 
 **22** He must also take 2 doves or 2 young pigeons, as he can buy. 1 bird is for a sin offering, and 1 bird is for a burnt offering.
 
-**23** On the eighth day, he must bring them to the priest for his cleansing. He must bring them to the entrance of the Tent of Meeting, in front of the LORD.
+**23** On the eighth day, he must bring them to the priest to make himself clean. He must bring them to the entrance of the Tent of Meeting, in front of the LORD.
 
 **24** The priest must take the lamb of the guilt offering and the log of oil. The priest must wave them in front of the LORD as a wave offering.
 
@@ -816,13 +816,13 @@
 
 **28** The priest must put some of the oil in his hand on the bottom of the right ear of the person who becomes clean. He must put it on the thumb of his right hand and on the big toe of his right foot. He must put it on the same place as the blood of the guilt offering.
 
-**29** The priest must put the remaining oil in his hand on the head of the person who becomes clean. This makes atonement for him in front of the LORD.
+**29** The priest must put the rest of the oil in his hand on the head of the person who becomes clean. This makes atonement for him in front of the LORD.
 
 **30** Then he must offer 1 of the doves or young pigeons, as the person can buy.
 
 **31** He must offer 1 bird as a sin offering and 1 bird as a burnt offering, with the grain offering. The priest must make atonement in front of the LORD for the person who becomes clean.
 
-**32** This is the law for a person who has leprosy and does not have sufficient money for the usual offerings for his cleansing."
+**32** This is the law for a person who has leprosy and does not have sufficient money for the usual offerings to make himself clean."
 
 **33** The LORD spoke to Moses and Aaron. He said,
 
@@ -850,7 +850,7 @@
 
 **45** People must break down the house, its stones, its wood, and all its plaster. They must carry these materials out of the city to an unclean place.
 
-**46** Each person who goes into the house while it is closed will be unclean until the evening.
+**46** Each person who goes into the house while the priest keeps it closed will be unclean until the evening.
 
 **47** Each person who sleeps in the house must wash his clothes. Each person who eats in the house must wash his clothes.
 
@@ -862,7 +862,7 @@
 
 **51** He must take the cedar wood, the hyssop, the red yarn, and the live bird. He must put them into the blood of the dead bird and into the fresh water. He must sprinkle the house 7 times.
 
-**52** He must make the house clean with the blood of the bird, the fresh water, the live bird, the cedar wood, the hyssop, and the red yarn.
+**52** He must make the house clean with the blood of the bird and the fresh water. He must also use the live bird, the cedar wood, the hyssop, and the red yarn.
 
 **53** But he must release the live bird outside the city into the open fields. Thus, he makes atonement for the house, and it will be clean.
 
@@ -870,7 +870,7 @@
 
 **55** It is the law for mold in a garment or in a house.
 
-**56** It is the law for a swelling, a rash, or a bright spot.
+**56** It is the law for a lump, a rash, or a bright spot.
 
 **57** This law shows when a thing is unclean and when a thing is clean. This is the law about leprosy."
 
@@ -880,7 +880,7 @@
 
 **2** "Speak to the people of Israel. Tell them, 'If a man has a discharge from his body, the discharge makes him unclean.
 
-**3** This is how his discharge makes him unclean. His body can continue to flow with the discharge, or the discharge can be blocked. In both conditions, he is unclean.
+**3** This is how his discharge makes him unclean. His body can continue to flow with the discharge, or the discharge can stop. In both conditions, he is unclean.
 
 **4** Each bed where the man with the discharge lies is unclean. Each thing where he sits is unclean.
 
@@ -896,11 +896,11 @@
 
 **10** Each person who touches any thing that was under him will be unclean until the evening. Each person who carries those things must wash his clothes and wash with water. He will be unclean until the evening.
 
-**11** The man with the discharge can touch a person without washing his hands with water first. Then that person must wash his clothes and wash with water. He will be unclean until the evening.
+**11** The man with the discharge can touch a person, and not wash his hands with water first. Then that person must wash his clothes and wash with water. He will be unclean until the evening.
 
 **12** If the man with the discharge touches a clay pot, break the pot. If he touches a wood item, wash the item with water.
 
-**13** When the discharge of the man stops, he must count 7 days for his cleansing. He must wash his clothes and wash his body in fresh water. Then he will be clean.
+**13** When the discharge of the man stops, he must count 7 days to become clean. He must wash his clothes and wash his body in fresh water. Then he will be clean.
 
 **14** On the eighth day, he must take 2 doves or 2 young pigeons. He must come in front of the LORD to the entrance of the Tent of Meeting. He must give the birds to the priest.
 
@@ -966,7 +966,7 @@
 
 **11** Aaron must bring the bull of the sin offering for himself. He must make atonement for himself and for his family. He must kill the bull as the sin offering for himself.
 
-**12** He must take an incense pan full of burning coals from the altar in front of the LORD. He must take 2 handfuls of sweet incense, crushed fine. He must bring them behind the curtain.
+**12** He must take an incense pan full of hot coals from the altar in front of the LORD. He must take 2 handfuls of sweet incense, crushed fine. He must bring them behind the curtain.
 
 **13** He must put the incense on the fire in front of the LORD. Then the smoke of the incense will cover the mercy seat above the testimony. If he does not do this, he will die.
 
@@ -1006,7 +1006,7 @@
 
 **31** It is a Sabbath of full rest for you. You must make yourselves humble. This is a permanent law.
 
-**32** The priest who is anointed and ordained to serve as priest after his father must make the atonement. He must put on the holy linen clothes.
+**32** Someone will anoint a priest and ordain him to serve as priest after his father. That priest must make the atonement. He must put on the holy linen clothes.
 
 **33** He must make atonement for the most holy place, for the Tent of Meeting, and for the altar. He must make atonement for the priests and for all the people of the community.
 
@@ -1030,7 +1030,7 @@
 
 **8** Tell them, 'A man of Israel or a foreigner who lives among you can offer a burnt offering or a sacrifice.
 
-**9** If he does not bring it to the entrance of the Tent of Meeting to offer it to the LORD, remove that man from his people.
+**9** He can fail to bring it to the entrance of the Tent of Meeting to offer it to the LORD. Then remove that man from his people.
 
 **10** A man of Israel or a foreigner who lives among you can eat blood. I will be against that person. I will remove him from his people.
 
@@ -1038,7 +1038,7 @@
 
 **12** Thus, I tell the people of Israel, "No person among you must eat blood. No foreigner who lives among you must eat blood."
 
-**13** A man of Israel or a foreigner who lives among you can hunt an animal or a bird that is permitted for food. He must pour out its blood and cover the blood with soil.
+**13** A man of Israel or a foreigner who lives among you can hunt an animal or a bird that people can eat. He must pour out its blood and cover the blood with soil.
 
 **14** The life of each animal is its blood. Thus, I tell the people of Israel, "Do not eat the blood of any animal, because the life of each animal is its blood. Remove each person who eats blood."
 
@@ -1064,7 +1064,7 @@
 
 **8** Do not have sex with the wife of your father. That dishonors your father.
 
-**9** Do not have sex with your sister. She can be the daughter of your father or the daughter of your mother. She can be born in your home or in another place.
+**9** Do not have sex with your sister. She can be the daughter of your father or the daughter of your mother. Her mother can give birth to her in your home or in another place.
 
 **10** Do not have sex with the daughter of your son or the daughter of your daughter. That dishonors you.
 
@@ -1090,7 +1090,7 @@
 
 **21** Do not give any of your children as a sacrifice to Molech by fire. Do not dishonor the name of your God. I am the LORD.
 
-**22** A man must not have sex with a man as with a woman. That is disgusting.
+**22** A man must not have sex with a man as with a woman. That is detestable.
 
 **23** A man must not have sex with any animal. That makes him unclean. A woman must not offer herself to an animal for sex. That is a perversion.
 
@@ -1098,15 +1098,15 @@
 
 **25** Their land became unclean. Thus, I punish the land for its sin, and the land throws out its people.
 
-**26** You must keep my laws and my rules. Do not do any of these disgusting things. This law is for the people of Israel and for the foreigners who live among you.
+**26** You must keep my laws and my rules. Do not do any of these detestable things. This law is for the people of Israel and for the foreigners who live among you.
 
-**27** The people who lived in the land before you did all these disgusting things. Thus, the land became unclean.
+**27** The people who lived in the land before you did all these detestable things. Thus, the land became unclean.
 
 **28** If you make the land unclean, the land will throw you out. It will do the same as it did to the nations before you.
 
-**29** Remove from their people all the persons who do any of these disgusting things.
+**29** Remove from their people all the persons who do any of these detestable things.
 
-**30** Thus, obey my commands. Do not do any of the disgusting customs that the people did before you. Do not make yourselves unclean with these customs. I am the LORD your God.'"
+**30** Thus, obey my commands. Do not do any of the detestable customs that the people did before you. Do not make yourselves unclean with these customs. I am the LORD your God.'"
 
 ## Chapter 19
 
@@ -1122,7 +1122,7 @@
 
 **6** Eat it on the day that you offer it or on the next day. If some of it remains until the third day, burn it.
 
-**7** If a person eats any of it on the third day, it is disgusting. The LORD will not accept it.
+**7** If a person eats any of it on the third day, it is detestable. The LORD will not accept it.
 
 **8** Each person who eats it will be responsible for his guilt. He dishonors a holy thing of the LORD. Remove that person from his people.
 
@@ -1148,7 +1148,7 @@
 
 **19** Obey my laws. Do not let 2 different types of animals breed together. Do not plant 2 types of seed in your field. Do not wear clothes made of 2 types of material.
 
-**20** A man can have sex with a female slave who is promised to another man. Her owner did not set her free or pay to make her free. Then there must be a punishment. But do not kill them, because she was not free.
+**20** A man can have sex with a female slave who has a promise of marriage to another man. Her owner did not set her free or pay to make her free. Then there must be a punishment. But do not kill them, because she was not free.
 
 **21** The man must bring a ram as his guilt offering to the LORD. He must bring it to the entrance of the Tent of Meeting.
 
@@ -1166,7 +1166,7 @@
 
 **28** Do not cut your bodies for the dead. Do not put tattoos on yourselves. I am the LORD.
 
-**29** Do not dishonor your daughter by making her a prostitute. If you do, the land will become full of prostitution and evil.
+**29** Do not dishonor your daughter. Do not make her a prostitute. If you do, the land will become full of prostitution and evil.
 
 **30** Keep my Sabbaths. Respect my holy place. I am the LORD.
 
@@ -1176,7 +1176,7 @@
 
 **33** When a foreigner lives with you in your land, do not treat him badly.
 
-**34** Treat the foreigner who lives with you as a person who was born among you. Love him as you love yourself. You were foreigners in the land of Egypt. I am the LORD your God.
+**34** Treat the foreigner who lives with you as a person from your own people. Love him as you love yourself. You were foreigners in the land of Egypt. I am the LORD your God.
 
 **35** Do not cheat when you measure length, weight, or quantity.
 
@@ -1210,7 +1210,7 @@
 
 **12** A man can have sex with his daughter-in-law. Kill both of them. They did a perversion. They are responsible for their own deaths.
 
-**13** A man can have sex with another man as with a woman. Both of them did a disgusting thing. Kill both of them. They are responsible for their own deaths.
+**13** A man can have sex with another man as with a woman. Both of them did a detestable thing. Kill both of them. They are responsible for their own deaths.
 
 **14** A man can marry a woman and her mother. That is evil. Burn him and the 2 women with fire. Then there will be no evil among you.
 
@@ -1234,7 +1234,7 @@
 
 **24** I told you, "You will receive their land. I will give it to you as your property. It is a land that has much milk and honey." I am the LORD your God. I made you separate from other people.
 
-**25** Thus, you must know the difference between clean and unclean animals and between unclean and clean birds. Do not make yourselves disgusting with any animal, bird, or small animal on the ground. I showed you that these animals are unclean.
+**25** Thus, you must know the difference between clean and unclean animals and between unclean and clean birds. Do not make yourselves detestable with any animal, bird, or small animal on the ground. I showed you that these animals are unclean.
 
 **26** Be holy to me, because I, the LORD, am holy. I made you separate from other people. You are my people.
 
@@ -1260,11 +1260,11 @@
 
 **9** If the daughter of a priest dishonors herself by prostitution, she dishonors her father. Burn her with fire.
 
-**10** The high priest is the most important priest among his brothers. The anointing oil is on his head. He is ordained to wear the holy clothes. He must not let the hair of his head hang loose. He must not tear his clothes.
+**10** The high priest is the most important priest among his brothers. Moses poured the holy oil on his head. Moses ordained him to wear the holy clothes. He must not let the hair of his head hang loose. He must not tear his clothes.
 
 **11** He must not go near a dead body. He must not make himself unclean, even for his father or his mother.
 
-**12** He must not leave the holy place. He must not dishonor the holy place of his God. The anointing oil of his God is on him as a crown. I am the LORD.
+**12** He must not leave the holy place. He must not dishonor the holy place of his God. The holy oil of his God is on him as a crown. I am the LORD.
 
 **13** The high priest must marry a virgin.
 
@@ -1274,7 +1274,7 @@
 
 **16** The LORD spoke to Moses. He said,
 
-**17** "Speak to Aaron. Tell him, 'In all future generations, any of your descendants who has a physical defect must not come near to offer the food of his God.
+**17** "Speak to Aaron. Tell him, 'In all future generations, some of your descendants can have a physical defect. That person must not come near to offer the food of his God.
 
 **18** No man with a defect must come near. A man who is blind or lame must not come near. A man with a damaged face or a deformed body must not come near.
 
@@ -1312,7 +1312,7 @@
 
 **10** A person who is not from the family of a priest must not eat the holy food. A guest of the priest or a hired worker must not eat the holy food.
 
-**11** But a priest can buy a slave with his money. That slave can eat the holy food. Slaves that are born in his house can also eat his food.
+**11** But a priest can buy a slave with his money. That slave can eat the holy food. Slaves that his slave women give birth to in his house can also eat his food.
 
 **12** If the daughter of a priest marries a man who is not a priest, she must not eat the holy offerings.
 
@@ -1328,7 +1328,7 @@
 
 **18** "Speak to Aaron, to his sons and to all the people of Israel. Tell them, 'An Israelite or a foreigner in Israel can bring a burnt offering to the LORD. He can give it to complete a promise (vow) or as a gift that he wants to give (freewill offering).
 
-**19** To be accepted, you must give a male animal with no defect. It must come from the cattle, the sheep or the goats.
+**19** For the LORD to accept it, you must give a male animal with no defect. It must come from the cattle, the sheep or the goats.
 
 **20** Do not offer an animal that has a defect. The LORD will not accept it from you.
 
@@ -1344,7 +1344,7 @@
 
 **26** The LORD spoke to Moses. He said,
 
-**27** "When a calf, a lamb or a young goat is born, it must stay with its mother for 7 days. From the 8th day, the LORD will accept it as an offering by fire.
+**27** "When a cow, a sheep or a goat gives birth to its young, the young animal must stay with its mother for 7 days. From the 8th day, the LORD will accept it as an offering by fire.
 
 **28** Do not kill a cow or a sheep and its young on the same day.
 
@@ -1364,7 +1364,7 @@
 
 **2** "Speak to the people of Israel. Tell them, 'These are the festivals of the LORD. You must announce them as holy meetings. They are my festivals.
 
-**3** You can work for 6 days. But the 7th day is a Sabbath of full rest. It is a holy meeting. Do not do any work on that day. It is a Sabbath to the LORD in all your homes.
+**3** You can work for 6 days. But the 7th day is a Sabbath of full rest. It is a holy assembly. Do not do any work on that day. It is a Sabbath to the LORD in all your homes.
 
 **4** These are the festivals of the LORD. They are holy meetings. You must announce them at their correct times.
 
@@ -1372,9 +1372,9 @@
 
 **6** On the 15th day of the same month, the Festival of Bread Without Yeast to the LORD starts. For 7 days you must eat bread without yeast.
 
-**7** On the 1st day, you must have a holy meeting. Do not do your usual work on that day.
+**7** On the 1st day, you must have a holy assembly. Do not do your usual work on that day.
 
-**8** For 7 days you must give an offering by fire to the LORD. On the 7th day, you must have a holy meeting. Do not do your usual work on that day.'"
+**8** For 7 days you must give an offering by fire to the LORD. On the 7th day, you must have a holy assembly. Do not do your usual work on that day.'"
 
 **9** The LORD spoke to Moses. He said,
 
@@ -1400,23 +1400,23 @@
 
 **20** The priest must lift up the 2 lambs and the bread of the first part of the harvest. They are a wave offering in front of the LORD. They are holy to the LORD and they are for the priest.
 
-**21** On that same day, announce a holy meeting. Do not do your usual work on that day. This is a permanent rule in all your homes for all your generations.
+**21** On that same day, announce a holy assembly. Do not do your usual work on that day. This is a permanent rule in all your homes for all your generations.
 
 **22** When you cut the grain in your land, do not cut the grain at the edges of your field. Do not pick up the grain that falls. Leave it for the poor people and for the foreigners. I am the LORD your God.'"
 
 **23** The LORD spoke to Moses. He said,
 
-**24** "Speak to the people of Israel. Tell them, 'The 1st day of the 7th month is a day of rest for you. You must blow trumpets to remember it. It is a holy meeting.
+**24** "Speak to the people of Israel. Tell them, 'The 1st day of the 7th month is a day of rest for you. You must blow trumpets to remember it. It is a holy assembly.
 
 **25** Do not do your usual work on that day. Give an offering by fire to the LORD.'"
 
 **26** The LORD spoke to Moses. He said,
 
-**27** "The 10th day of this 7th month is the Day of Atonement. On that day the priest removes the guilt of your sins (atonement). It is a holy meeting for you. You must not eat food on that day, and you must offer an offering by fire to the LORD.
+**27** "The 10th day of this 7th month is the Day of Atonement. On that day the priest removes the guilt of your sins (atonement). It is a holy assembly for you. You must not eat food on that day, and you must offer an offering by fire to the LORD.
 
 **28** Do not do any work on that day. It is the Day of Atonement. On that day the priest makes atonement for you in front of the LORD your God.
 
-**29** A person who eats food on that day must be removed from his people.
+**29** Remove from his people a person who eats food on that day.
 
 **30** If a person does any work on that day, I will destroy that person from among his people.
 
@@ -1428,9 +1428,9 @@
 
 **34** "Speak to the people of Israel. Tell them, 'On the 15th day of this 7th month, the Festival of Shelters starts. It continues for 7 days for the LORD.
 
-**35** On the 1st day there is a holy meeting. Do not do your usual work on that day.
+**35** On the 1st day there is a holy assembly. Do not do your usual work on that day.
 
-**36** For 7 days you must give an offering by fire to the LORD. On the 8th day you must have a holy meeting. Give an offering by fire to the LORD. It is a special meeting. Do not do your usual work on that day.
+**36** For 7 days you must give an offering by fire to the LORD. On the 8th day you must have a holy assembly. Give an offering by fire to the LORD. It is a special assembly. Do not do your usual work on that day.
 
 **37** These are the festivals of the LORD. You must announce them as holy meetings. At these festivals you must give offerings by fire to the LORD. Give burnt offerings, grain offerings, sacrifices and drink offerings. Give each offering on its correct day.
 
@@ -1442,7 +1442,7 @@
 
 **41** Keep this festival to the LORD for 7 days each year. This is a permanent rule for all your generations. Keep it in the 7th month.
 
-**42** Live in shelters for 7 days. All the people who are born in Israel must live in shelters.
+**42** Live in shelters for 7 days. All the people who are Israelites by birth must live in shelters.
 
 **43** Then your descendants will know that I made the people of Israel live in shelters. I did this when I brought them out of the land of Egypt. I am the LORD your God.'"
 
@@ -1454,7 +1454,7 @@
 
 **2** "Tell the people of Israel to bring you pure olive oil from crushed olives. The oil is for the light, so that the lamps always burn.
 
-**3** In the Tent of Meeting, outside the curtain in front of the box of the Testimony, Aaron must keep the lamps burning. They must burn in front of the LORD from evening until morning. This is a permanent rule for all your generations.
+**3** In the Tent of Meeting, outside the curtain in front of the box of the Testimony, Aaron must keep the lamps lit. They must burn in front of the LORD from evening until morning. This is a permanent rule for all your generations.
 
 **4** Aaron must always keep the lamps on the pure gold lampstand in front of the LORD.
 
@@ -1550,7 +1550,7 @@
 
 **26** A man can have no relative to buy back the land. But later he can become rich and have sufficient money to buy it back himself.
 
-**27** Then he must count the years after the sale. He must pay the remaining value to the man who bought the land. Then he can go back to his land.
+**27** Then he must count the years after the sale. He must pay the value of the rest of the years to the man who bought the land. Then he can go back to his land.
 
 **28** If he does not have sufficient money to buy it back, the buyer keeps the land until the year of Jubilee. In the Jubilee the land goes back to the seller. Then the seller can go back to his land.
 
@@ -1564,7 +1564,7 @@
 
 **33** A Levite can sell a house in a Levite city and not buy it back. That house will go back to him in the Jubilee. The houses in the cities of the Levites are their property among the people of Israel.
 
-**34** The fields around the Levite cities must not be sold. They are the permanent property of the Levites.
+**34** No one must sell the fields around the Levite cities. They are the permanent property of the Levites.
 
 **35** Your fellow Israelite can become poor and unable to support himself. Then you must help him. Help him as you help a foreigner or a guest, so that he can continue to live near you.
 
@@ -1580,13 +1580,13 @@
 
 **41** Then he and his children can leave you. He will go back to his family and to the land of his ancestors.
 
-**42** The people of Israel are my servants. I brought them out of the land of Egypt. Thus they must not be sold as slaves.
+**42** The people of Israel are my servants. I brought them out of the land of Egypt. Thus no one must sell them as slaves.
 
 **43** Do not be cruel to him. Respect your God.
 
 **44** You can buy male and female slaves from the nations around you.
 
-**45** You can also buy slaves from the foreigners who live among you. You can buy them from their families who are born in your land. They can become your property.
+**45** You can also buy slaves from the foreigners who live among you. You can buy them from their families that they had in your land. They can become your property.
 
 **46** You can give them to your children after you as permanent property. They can be your slaves permanently. But do not be cruel to your fellow Israelites.
 
@@ -1602,7 +1602,7 @@
 
 **52** If only a few years remain until the Jubilee, he must count them. He must pay the price for his freedom from the number of years.
 
-**53** He must be with the buyer as a worker that is hired each year. Make sure that the buyer is not cruel to him.
+**53** He must be with the buyer as a worker whom the buyer pays each year. Make sure that the buyer is not cruel to him.
 
 **54** If no one buys him back in these ways, he and his children will go free in the year of Jubilee.
 
@@ -1672,7 +1672,7 @@
 
 **31** I will make your cities into ruins. I will destroy your holy places. I will not accept the pleasant smell of your offerings.
 
-**32** I will destroy the land. Your enemies who come to live there will be shocked at it.
+**32** I will destroy the land. Your enemies who come to live there will feel great surprise at it.
 
 **33** I will send you away among the nations. I will pull out my sword and chase you. Your land will be empty and your cities will be ruins.
 
@@ -1744,7 +1744,7 @@
 
 **20** But he can fail to buy back the field, or he can sell the field to a different man. Then he cannot buy it back again.
 
-**21** When the field becomes free in the Jubilee, it will be holy to the LORD. It will be a field that is given permanently to the LORD. It will become the property of the priests.
+**21** When the field becomes free in the Jubilee, it will be holy to the LORD. It will be a field that a man gives permanently to the LORD. It will become the property of the priests.
 
 **22** A man can give to the LORD a field that he bought, which is not part of the land of his family.
 
@@ -1758,9 +1758,9 @@
 
 **27** If the firstborn is from an unclean animal, the man can buy it back. He must pay its value and add 1/5. If he does not buy it back, the priest must sell it for its value.
 
-**28** But a man can give a thing permanently to the LORD. It can be a person, an animal or a field from his family land. No one can sell it or buy it back. All things that are given permanently are most holy to the LORD.
+**28** But a man can give a thing permanently to the LORD. It can be a person, an animal or a field from his family land. No one can sell it or buy it back. All things that people give permanently are most holy to the LORD.
 
-**29** A person who is given permanently for destruction must not be bought back. That person must die.
+**29** No one must buy back a person that people give permanently for destruction. That person must die.
 
 **30** 1/10 (the tithe) of all the crops of the land is the LORD's. This includes the grain of the fields and the fruit of the trees. It is holy to the LORD.
 

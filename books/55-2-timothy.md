@@ -16,7 +16,7 @@
 
 **7** God did not give us a spirit of fear. God gave us a spirit of power, of love, and of self-control.
 
-**8** Thus do not be ashamed to tell about our Lord. Do not be ashamed of me, because I am his prisoner. With the power of God, accept your part of the suffering for the gospel.
+**8** Thus do not feel shame to tell about our Lord. Do not feel shame because of me, his prisoner. With the power of God, accept your part of the pain for the gospel.
 
 **9** God saved us and called us to a holy life. He did not do this because of our works. He did this because of his own purpose and grace. God gave us this grace in Christ Jesus before time started.
 
@@ -24,7 +24,7 @@
 
 **11** God chose me to preach this gospel. He made me an apostle and a teacher of the Gentiles.
 
-**12** For this reason I also suffer these things. But I am not ashamed. I know the person that I believe in. I am sure that he can keep safe what I gave to him until that day.
+**12** For this reason I also suffer these things. But I do not feel shame. I know the person that I believe in. I am sure that he can keep safe what I gave to him until that day.
 
 **13** Keep the pattern of the correct words that you heard from me. Keep them with the faith and love that are in Christ Jesus.
 
@@ -32,7 +32,7 @@
 
 **15** You know that all the people in Asia turned away from me. Phygelus and Hermogenes are 2 of those people.
 
-**16** I pray that the Lord will give mercy to the family of Onesiphorus. Onesiphorus often gave me new strength. He was not ashamed of my chain.
+**16** I pray that the Lord will give mercy to the family of Onesiphorus. Onesiphorus often gave me new strength. He did not feel shame because of my chain.
 
 **17** When he was in Rome, he looked for me very carefully, and he found me.
 
@@ -52,7 +52,7 @@
 
 **6** The farmer who works hard must be the first to get a part of the crops.
 
-**7** Think about what I tell you. The Lord will give you understanding in all things.
+**7** Think about what I tell you. The Lord will help you to understand all things.
 
 **8** Remember Jesus Christ. He came from the family of David. God made him alive again after his death. This is the gospel that I preach.
 
@@ -68,11 +68,11 @@
 
 **14** Tell the people these things again. In front of the Lord, warn them not to argue about words. Such arguments do not help. They destroy the people who hear them.
 
-**15** Work hard to show yourself as a worker that God accepts. Be a worker who has no reason to be ashamed. Teach the word of truth correctly.
+**15** Work hard to show yourself as a worker that God accepts. Be a worker who has no reason to feel shame. Teach the word of truth correctly.
 
 **16** Do not take part in foolish talk that is not holy. Such talk causes people to go more and more away from God.
 
-**17** Their teaching will spread like a disease that eats the body. Hymenaeus and Philetus are 2 of these teachers.
+**17** Their words will spread like a disease that eats the body. Hymenaeus and Philetus are 2 of these teachers.
 
 **18** These men went away from the truth. They say that the resurrection from the dead already occurred. Thus they destroy the faith of some people.
 
@@ -112,9 +112,9 @@
 
 **9** But they will not go much farther. All people will see their foolishness clearly, as the people saw the foolishness of Jannes and Jambres.
 
-**10** But you know my teaching, my way of life, and my purpose. You know my faith, my patience, my love, and my endurance.
+**10** But you know my lessons, my way of life, and my purpose. You know my faith, my patience, my love, and my endurance.
 
-**11** You know about my persecutions and my suffering. You know what occurred to me in Antioch, in Iconium, and in Lystra. I endured much persecution, but the Lord saved me from all of it.
+**11** You know about my persecutions and my pain. You know what occurred to me in Antioch, in Iconium, and in Lystra. I endured much persecution, but the Lord saved me from all of it.
 
 **12** All people who want to live a holy life in Christ Jesus will suffer persecution.
 
@@ -130,15 +130,15 @@
 
 ## Chapter 4
 
-**1** God and the Lord Jesus Christ see me. Christ will judge the living and the dead people when he comes and starts to rule as king. Thus I give you this order:
+**1** God and the Lord Jesus Christ see me. Christ will judge the people who live and the dead people when he comes and starts to rule as king. Thus I give you this order:
 
-**2** Preach the word. Be ready at all times. Correct people, warn them, and encourage them. Do this with much patience and careful teaching.
+**2** Preach the word. Be ready at all times. Correct people, warn them, and encourage them. Do this with much patience and careful instruction.
 
-**3** A time will come when people will not accept correct teaching. They will want to hear new things. Thus they will get many teachers who say what the people want.
+**3** A time will come when people will not accept correct lessons. They will want to hear new things. Thus they will get many teachers who say what the people want.
 
-**4** They will stop hearing the truth. They will turn to stories that are not true.
+**4** They will stop their ears to the truth. They will turn to stories that are not true.
 
-**5** But you must think clearly in all things. Accept suffering. Do the work of an evangelist. Do all the tasks of your ministry.
+**5** But you must think clearly in all things. Accept pain and trouble. Do the work of an evangelist. Do all the tasks of your ministry.
 
 **6** My life is now like an offering that a priest pours out. The time for me to die is near.
 

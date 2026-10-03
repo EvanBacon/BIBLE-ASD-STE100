@@ -34,7 +34,7 @@
 
 **9** You will break them with an iron rod. You will break them into pieces like a clay pot."
 
-**10** Thus, you kings, be wise. Learn from this warning, you rulers of the earth.
+**10** Thus, you kings, be wise. Learn from this, you rulers of the earth.
 
 **11** Serve the LORD with fear. Be glad, but shake with fear.
 
@@ -114,11 +114,11 @@
 
 **5** Dead people do not remember you. In the grave, no person thanks you.
 
-**6** I am tired because I cry with pain. All night my bed is wet with my tears. I make my bed wet with my crying.
+**6** I am weak because I cry with pain. All night my bed is wet with my tears. I make my bed wet when I cry.
 
 **7** My eyes become weak because of sorrow. They become weak because of all my enemies.
 
-**8** Go away from me, all you people who do evil! The LORD hears the sound of my crying.
+**8** Go away from me, all you people who do evil! The LORD hears the sound when I cry.
 
 **9** The LORD hears my request for help. The LORD accepts my prayer.
 
@@ -150,7 +150,7 @@
 
 **12** If a person does not change, then God will make his sword sharp. God bends his bow and prepares it.
 
-**13** God prepares his deadly weapons. He makes his arrows into burning arrows.
+**13** God prepares his deadly weapons. He makes his arrows into arrows of fire.
 
 **14** Look, the wicked man plans evil. He thinks of trouble and causes lies.
 
@@ -210,13 +210,13 @@
 
 **14** Then I will praise you at the gates of Zion. I will be glad because you save me.
 
-**15** The nations fell into the pit that they dug. Their feet are caught in the net that they hid.
+**15** The nations fell into the pit that they dug. The net that they hid catches their feet.
 
-**16** The LORD is known by his justice. The wicked are trapped by their own work. Higgaion. Selah.
+**16** The LORD shows who he is by his justice. The work of the wicked traps them. Higgaion. Selah.
 
 **17** The wicked will go to the place of the dead (Sheol). All the nations that forget God will go there.
 
-**18** God will not always forget the people in need. The hope of the poor will not be lost for all time.
+**18** God will not always forget the people in need. The hope of the poor will not go away for all time.
 
 **19** Stand up, LORD! Do not let man win. Judge the nations in front of you.
 
@@ -226,7 +226,7 @@
 
 **1** LORD, why do you stand far away? Why do you hide in times of trouble?
 
-**2** In his pride, the wicked man chases the poor. Let the wicked be caught in the plans that they make.
+**2** In his pride, the wicked man chases the poor. Let the plans that the wicked make catch them.
 
 **3** The wicked man boasts about the things that his heart wants. He blesses greedy people, but the LORD hates them.
 
@@ -266,13 +266,13 @@
 
 **2** Look, the wicked bend their bows. They put their arrows on the string. They prepare to shoot from the darkness at people with honest hearts.
 
-**3** If the foundations are destroyed, what can the righteous do?
+**3** If someone destroys the foundations, what can the righteous do?
 
 **4** The LORD is in his holy temple. The throne of the LORD is in heaven. His eyes watch all people. He examines them.
 
 **5** The LORD examines the righteous and the wicked. He hates the person who loves violence.
 
-**6** He will send hot coals, fire and sulfur on the wicked like rain. A burning wind will be their punishment.
+**6** He will send hot coals, fire and sulfur on the wicked like rain. A hot wind will be their punishment.
 
 **7** The LORD is righteous, and he loves righteous actions. Honest people will see his face.
 
@@ -390,7 +390,7 @@
 
 **14** LORD, save me with your hand from such men. Their reward is only in this life. You fill their stomachs with your treasure. Their sons have much food, and they leave their wealth to their children.
 
-**15** But I will see your face because I am righteous. When I wake up, I will be satisfied because I see you.
+**15** But I will see your face because I am righteous. When I wake up, I will be happy because I see you.
 
 ## Chapter 18
 
@@ -418,7 +418,7 @@
 
 **12** From the brightness in front of him, his thick clouds came out with hail and coals of fire.
 
-**13** The LORD thundered in the sky. The voice of the Most High was heard among hail and coals of fire.
+**13** The LORD thundered in the sky. The Most High made his voice loud among hail and coals of fire.
 
 **14** He shot his arrows and scattered his enemies. He sent much lightning and made them confused.
 
@@ -448,7 +448,7 @@
 
 **27** You save humble people. But you bring down people with proud eyes.
 
-**28** You keep my lamp burning. The LORD my God makes my darkness light.
+**28** You keep my lamp bright. The LORD my God makes my darkness light.
 
 **29** With your help I can attack an army. With my God I can climb over a wall.
 
@@ -592,7 +592,7 @@
 
 **9** But you brought me out of the womb. You caused me to trust you when I was a baby with my mother.
 
-**10** I depended on you from my birth. You were my God from the time that I was born.
+**10** I depended on you from my birth. You were my God from the time that my mother gave birth to me.
 
 **11** Do not be far from me, because trouble is near. No person is here to help me.
 
@@ -620,11 +620,11 @@
 
 **23** You people who respect the LORD with fear, praise him! All you descendants of Jacob, give him honor! All you descendants of Israel, respect him with fear!
 
-**24** He does not hate or ignore the suffering of the person who suffers. He does not hide his face from him. When that person cries to him for help, the LORD hears him.
+**24** He does not hate or ignore the pain of the person who suffers. He does not hide his face from him. When that person cries to him for help, the LORD hears him.
 
 **25** I will praise you in the great assembly. I will keep my promises in front of the people who respect him with fear.
 
-**26** The poor will eat and be satisfied. The people who look for the LORD will praise him. Let your hearts live for all time.
+**26** The poor will eat and be full. The people who look for the LORD will praise him. Let your hearts live for all time.
 
 **27** All the farthest parts of the earth will remember and turn to the LORD. All the families of the nations will bow down in front of you.
 
@@ -676,9 +676,9 @@
 
 **1** LORD, I give my soul to you.
 
-**2** My God, I trust you. Do not let me be ashamed. Do not let my enemies win against me.
+**2** My God, I trust you. Do not let me feel shame. Do not let my enemies win against me.
 
-**3** No person who waits for you will be ashamed. But the people who do wrong without a reason will be ashamed.
+**3** No person who waits for you will feel shame. But the people who do wrong without a reason will feel shame.
 
 **4** LORD, show me your ways. Teach me your paths.
 
@@ -708,11 +708,11 @@
 
 **17** The troubles of my heart become larger. Bring me out of my distress.
 
-**18** Look at my suffering and my pain. Forgive all my sins.
+**18** Look at my trouble and my pain. Forgive all my sins.
 
 **19** Look at my enemies. There are many enemies. They hate me with a cruel hate.
 
-**20** Keep my soul safe and save me. Do not let me be ashamed, because I trust you.
+**20** Keep my soul safe and save me. Do not let me feel shame, because I trust you.
 
 **21** Let honesty and good conduct keep me safe, because I wait for you.
 
@@ -840,13 +840,13 @@
 
 **10** LORD, hear me and be kind to me. LORD, help me.
 
-**11** You changed my sorrow into dancing. You took off my clothes of sorrow and you gave me joy.
+**11** You changed my sorrow into a dance. You took off my clothes of sorrow and you gave me joy.
 
 **12** Thus I will sing praise to you and not be silent. LORD my God, I will thank you always.
 
 ## Chapter 31
 
-**1** LORD, I trust you. Do not let me be ashamed. Save me because you are righteous.
+**1** LORD, I trust you. Do not let me feel shame. Save me because you are righteous.
 
 **2** Listen to me. Save me quickly. Be my strong rock and a strong fort that keeps me safe.
 
@@ -878,7 +878,7 @@
 
 **16** Let your face shine on your servant. Save me because of your mercy.
 
-**17** LORD, do not let me be ashamed, because I called to you. Let the wicked people be ashamed. Let them be silent in the grave.
+**17** LORD, do not let me feel shame, because I called to you. Let the wicked people feel shame. Let them be silent in the grave.
 
 **18** Make the lying lips silent. They speak proud and cruel words against the righteous people.
 
@@ -908,7 +908,7 @@
 
 **6** Thus all godly people must pray to you while they can find you. Then the floods of great water will not come near them.
 
-**7** You are my hiding place. You will keep me safe from trouble. You will put songs of rescue around me. Selah.
+**7** You are my place of safety. You will keep me safe from trouble. You will put songs of rescue around me. Selah.
 
 **8** The LORD says, "I will teach you and show you the way that you must go. I will guide you and watch you."
 
@@ -1018,7 +1018,7 @@
 
 **3** Lift your spear and stop the people who chase me. Tell my soul, "I will save you."
 
-**4** Let the people who try to kill me be ashamed. Let the people who plan to hurt me go back in confusion.
+**4** Let the people who try to kill me feel shame. Let the people who plan to hurt me go back in confusion.
 
 **5** Let them be like chaff that the wind blows away. Let the angel of the LORD push them away.
 
@@ -1062,9 +1062,9 @@
 
 **25** Do not let them say in their hearts, "Good! We have what we want." Do not let them say, "We destroyed him."
 
-**26** Let all the people who are happy about my pain be ashamed and confused. Let shame and dishonor cover the people who are proud against me.
+**26** Let all the people who are happy about my pain feel shame and confusion. Let shame and dishonor cover the people who are proud against me.
 
-**27** Let the people who want me to win shout with joy and be glad. Let them always say, "The LORD is great. He is pleased when his servant has peace."
+**27** Let the people who want me to win shout with joy and be glad. Let them always say, "The LORD is great. He is happy when his servant has peace."
 
 **28** Then my tongue will speak about your righteousness. I will praise you all day long.
 
@@ -1132,15 +1132,15 @@
 
 **18** The LORD knows the lives of the honest people. What they get from him will stay always.
 
-**19** In bad times they will not be ashamed. In times of famine they will have sufficient food.
+**19** In bad times they will not feel shame. In times of famine they will have sufficient food.
 
 **20** But the wicked people will die. The enemies of the LORD will be like flowers of the fields. They will disappear like smoke.
 
 **21** The wicked person borrows money and does not pay it back. But the righteous person is kind and gives.
 
-**22** The people that the LORD blesses will get the land. The people that he curses will be destroyed.
+**22** The people that the LORD blesses will get the land. The people that he curses will die.
 
-**23** The LORD makes the steps of a good man firm. He is pleased with the life of that man.
+**23** The LORD makes the steps of a good man firm. He is happy with the life of that man.
 
 **24** The good man can fall, but he will not stay down. The LORD holds him with his hand.
 
@@ -1186,11 +1186,11 @@
 
 **4** My sins are higher than my head. They are like a heavy load that is too heavy for me.
 
-**5** My wounds smell bad and are infected because of my foolish acts.
+**5** My wounds smell bad and are full of disease because of my foolish acts.
 
 **6** I am bent over and very low. I am sad all day long.
 
-**7** My back is full of burning pain. My body is sick.
+**7** My back is full of hot pain. My body is sick.
 
 **8** I am weak and completely broken. I cry out because my heart has no peace.
 
@@ -1278,9 +1278,9 @@
 
 **13** LORD, please save me. LORD, come quickly and help me.
 
-**14** Let the people who want to kill me be ashamed and confused. Let the people who want to hurt me go back in shame.
+**14** Let the people who want to kill me feel shame and confusion. Let the people who want to hurt me go back in shame.
 
-**15** Let the people who say "Aha! Aha!" to me be shocked because of their shame.
+**15** Let the people who say "Aha! Aha!" to me feel shock because of their shame.
 
 **16** Let all the people who look for you be happy and glad in you. Let the people who love your salvation always say, "The LORD is great!"
 
@@ -1308,7 +1308,7 @@
 
 **10** But LORD, be kind to me. Lift me up so that I can pay them back.
 
-**11** I know that you are pleased with me, because my enemy does not win against me.
+**11** I know that you are happy with me, because my enemy does not win against me.
 
 **12** You hold me safe because I am honest. You keep me near you always.
 
@@ -1318,7 +1318,7 @@
 
 **1** A deer wants to drink from the streams of water. My soul wants you in the same way, God.
 
-**2** My soul is thirsty for God, the living God. When can I come to God and stand in front of him?
+**2** My soul is thirsty for God, the God who lives. When can I come to God and stand in front of him?
 
 **3** I cry day and night, and my tears are my food. All day, people say to me, "Where is your God?"
 
@@ -1494,7 +1494,7 @@
 
 **4** Look! The kings came together. They came to attack the city.
 
-**5** They saw the city and they were surprised. They were afraid and they ran away quickly.
+**5** They saw the city and they felt surprise. They were afraid and they ran away quickly.
 
 **6** Fear took hold of them there. They felt pain like a woman when she gives birth.
 
@@ -1504,7 +1504,7 @@
 
 **9** God, we think about your love while we are in your temple.
 
-**10** God, your name is known in all the earth. Thus people praise you to the ends of the earth. Your right hand is full of righteousness.
+**10** God, all the earth knows your name. Thus people praise you to the ends of the earth. Your right hand is full of righteousness.
 
 **11** Let the people of Mount Zion be happy. Let the towns of Judah be glad because of your judgments.
 
@@ -1520,7 +1520,7 @@
 
 **2** Listen, poor people and important people, rich people and poor people.
 
-**3** My mouth will speak wisdom. The thoughts of my heart will give understanding.
+**3** My mouth will speak wisdom. The thoughts of my heart will give knowledge.
 
 **4** I will listen to a proverb. I will explain my puzzle while I play the harp.
 
@@ -1554,7 +1554,7 @@
 
 **19** But he will die and go to his ancestors. They will never see the light again.
 
-**20** A man who has wealth but no understanding is like the animals that die.
+**20** A man who has wealth but no good sense is like the animals that die.
 
 ## Chapter 50
 
@@ -1628,7 +1628,7 @@
 
 **11** Do not send me away from you. Do not take your Holy Spirit from me.
 
-**12** Give me again the joy that comes when you save me. Give me a willing spirit that keeps me strong.
+**12** Give me again the joy that comes when you save me. Give me a spirit that wants to obey you and keeps me strong.
 
 **13** Then I will teach your ways to sinners. Sinners will come back to you.
 
@@ -1636,13 +1636,13 @@
 
 **15** Lord, open my lips. Then my mouth will praise you.
 
-**16** You do not want a sacrifice. If you want one, I will give it. You are not pleased with burnt offerings.
+**16** You do not want a sacrifice. If you want one, I will give it. Burnt offerings do not make you happy.
 
-**17** The sacrifice that God wants is a broken spirit. God, you will not refuse a heart that is broken and sorry.
+**17** The sacrifice that God wants is a humble spirit. God, you will not refuse a heart that is humble and sorry.
 
 **18** Be good to Zion because it pleases you. Build the walls of Jerusalem again.
 
-**19** Then you will be pleased with the correct sacrifices. You will be pleased with burnt offerings and with whole burnt offerings. Then people will give bulls on your altar.
+**19** Then the correct sacrifices will make you happy. Burnt offerings and whole burnt offerings will make you happy. Then people will give bulls on your altar.
 
 ## Chapter 52
 
@@ -1654,7 +1654,7 @@
 
 **4** You love all words that hurt people. You have a tongue that tells lies.
 
-**5** But God will destroy you always. He will take you and pull you out of your tent. He will remove you from the land of the living. Selah.
+**5** But God will destroy you always. He will take you and pull you out of your tent. He will remove you from the land of people who live. Selah.
 
 **6** The righteous people will see this and they will fear. They will laugh at him. They will say,
 
@@ -1704,7 +1704,7 @@
 
 **4** My heart has much pain inside me. The fear of death fell on me.
 
-**5** Fear and shaking come on me. Horror covers me.
+**5** Fear comes on me, and my body shakes. Horror covers me.
 
 **6** I said, "I want wings like a dove. Then I can fly away and be at rest.
 
@@ -1800,7 +1800,7 @@
 
 **2** No! In your hearts you plan evil. Your hands do violence in the land.
 
-**3** The wicked people go away from God from the time of their birth. They tell lies from the time that they are born.
+**3** The wicked people go away from God from the time of their birth. They tell lies from the time that their mothers give birth to them.
 
 **4** Their poison is like the poison of a snake. They are like a deaf cobra that closes its ears.
 
@@ -1962,7 +1962,7 @@
 
 **6** They plan crimes and they say, "We made a perfect plan!" The mind and the heart of man are very deep.
 
-**7** But God will shoot his arrows at them. Suddenly they will be wounded.
+**7** But God will shoot his arrows at them. Suddenly the arrows will wound them.
 
 **8** Their own words will cause their destruction. All people who see them will shake their heads.
 
@@ -2082,7 +2082,7 @@
 
 **12** "The kings of the armies run away quickly!" The women at home divide the things that the army took.
 
-**13** You stay among the sheep pens. But the wings of a dove are covered with silver. Its feathers are covered with yellow gold.
+**13** You stay among the sheep pens. But you will be like the wings of a dove with silver on them. Its feathers have yellow gold on them.
 
 **14** The Almighty scattered the kings in the land. It was like snow that falls on Mount Zalmon.
 
@@ -2134,13 +2134,13 @@
 
 **2** I go down into deep mud. I have no place to stand. I am in deep water. The flood goes over me.
 
-**3** I am tired of my cries for help. My throat is dry. My eyes are tired because I wait for my God.
+**3** I cried for help until I have no strength. My throat is dry. My eyes become weak because I wait for my God.
 
 **4** The people who hate me without a reason are more than the hairs on my head. Strong people want to destroy me with lies. They make me give back things that I did not steal.
 
 **5** God, you know my foolish acts. You see all my sins.
 
-**6** Lord GOD of armies, do not let the people who hope in you be ashamed because of me. God of Israel, do not let the people who look for you be ashamed because of me.
+**6** Lord GOD of armies, do not let the people who hope in you feel shame because of me. God of Israel, do not let the people who look for you feel shame because of me.
 
 **7** People insult me because of you. Shame covers my face.
 
@@ -2206,7 +2206,7 @@
 
 **1** God, come quickly and save me. LORD, come quickly and help me.
 
-**2** Let the people who want to kill me be ashamed and confused. Let the people who want to hurt me go back in shame.
+**2** Let the people who want to kill me feel shame and confusion. Let the people who want to hurt me go back in shame.
 
 **3** Let the people who say "Aha! Aha!" go back because of their shame.
 
@@ -2216,7 +2216,7 @@
 
 ## Chapter 71
 
-**1** LORD, I trust you. Do not let me be ashamed.
+**1** LORD, I trust you. Do not let me feel shame.
 
 **2** Save me and rescue me, because you are righteous. Listen to me and save me.
 
@@ -2240,7 +2240,7 @@
 
 **12** God, do not be far from me. My God, come quickly and help me.
 
-**13** Let my enemies be ashamed and destroyed. Let insults and shame cover the people who want to hurt me.
+**13** Let my enemies feel shame. Let them come to an end. Let insults and shame cover the people who want to hurt me.
 
 **14** But I will always hope. I will praise you more and more.
 
@@ -2262,7 +2262,7 @@
 
 **23** My lips will shout with joy when I sing praises to you. My soul, which you saved, will shout with joy.
 
-**24** All day long my tongue will speak about your righteousness. The people who wanted to hurt me are ashamed and confused.
+**24** All day long my tongue will speak about your righteousness. The people who wanted to hurt me feel shame and confusion.
 
 ## Chapter 72
 
@@ -2344,7 +2344,7 @@
 
 **18** Truly, you put them in slippery places. You throw them down to destruction.
 
-**19** They are destroyed very quickly! Terrible things destroy them completely.
+**19** Suddenly they come to ruin! Terrible things destroy them completely.
 
 **20** Lord, they are like a dream that a person forgets when he wakes up. When you stand up, you will forget them.
 
@@ -2372,7 +2372,7 @@
 
 **3** Walk through the places that are always destroyed. The enemy destroyed all the things in your holy place.
 
-**4** Your enemies shouted in your meeting place. They put up their flags as signs of victory.
+**4** Your enemies shouted in the place where your people come together. They put up their flags as signs of victory.
 
 **5** They were like men who cut a forest with axes.
 
@@ -2380,7 +2380,7 @@
 
 **7** They burned your holy place. They destroyed the home of your name and threw it to the ground.
 
-**8** They said in their hearts, "We will destroy all of them." They burned all the meeting places of God in the land.
+**8** They said in their hearts, "We will destroy all of them." They burned all the places in the land where people came together to worship God.
 
 **9** We do not see signs from God. There are no more prophets. No person among us knows how long this will continue.
 
@@ -2454,7 +2454,7 @@
 
 **9** God, you stood up to judge. You stood up to save all the humble people of the earth. Selah.
 
-**10** The anger of men will cause people to praise you. You will stop the remaining anger.
+**10** The anger of men will cause people to praise you. You will stop the anger that remains.
 
 **11** Make promises to the LORD your God, and do what you promised. All the nations around him must bring gifts to God, who causes fear.
 
@@ -2466,7 +2466,7 @@
 
 **2** When I was in trouble, I looked for the Lord. At night I lifted my hands and prayed. My soul did not let anything comfort me.
 
-**3** I remembered God, and I was troubled. I thought about it, and my spirit became weak. Selah.
+**3** I remembered God, and I felt pain in my heart. I thought about it, and my spirit became weak. Selah.
 
 **4** You kept my eyes open. I was so troubled that I could not speak.
 
@@ -2504,7 +2504,7 @@
 
 ## Chapter 78
 
-**1** My people, listen to my teaching. Hear the words of my mouth.
+**1** My people, listen to my law. Hear the words of my mouth.
 
 **2** I will speak a story to you. I will tell you the secrets from long ago.
 
@@ -2514,7 +2514,7 @@
 
 **5** He gave a law to Jacob. He gave instructions to Israel. He told our ancestors to teach them to their children.
 
-**6** Then the next generation will know them, the children who are not born yet. Then they will teach them to their own children.
+**6** Then the next generation will know them, and also the children who will come in the future. Then they will tell them to their own children.
 
 **7** Then they will hope in God. They will not forget the works of God. They will obey his commands.
 
@@ -2744,15 +2744,15 @@
 
 **13** I want my people to listen to me! I want Israel to live in my ways!
 
-**14** Then I would quickly defeat their enemies. I would turn my hand against their attackers.
+**14** Then I will quickly defeat their enemies. I will turn my hand against their attackers.
 
-**15** The people who hate the LORD would bow down to him in fear. Their punishment would continue for all time.
+**15** The people who hate the LORD will bow down to him in fear. Their punishment will continue for all time.
 
-**16** But I would feed Israel with the best wheat. I would satisfy you with honey from the rock."
+**16** I will feed Israel with the best wheat. I will give you honey from the rock until you are full."
 
 ## Chapter 82
 
-**1** God stands in the meeting of the mighty. He judges among the gods.
+**1** God stands in the assembly of the mighty. He judges among the gods.
 
 **2** "How long will you judge without justice? How long will you show favor to the wicked?" Selah.
 
@@ -2810,7 +2810,7 @@
 
 **1** LORD of armies, the place where you live is very beautiful!
 
-**2** My soul wants to be in the courtyards of the LORD. My soul becomes weak with this wish. My heart and my body shout with joy to the living God.
+**2** My soul wants to be in the courtyards of the LORD. My soul becomes weak with this wish. My heart and my body shout with joy to the God who lives.
 
 **3** The sparrow finds a home there. The swallow makes a nest for her young near your altars. LORD of armies, you are my King and my God.
 
@@ -2904,11 +2904,11 @@
 
 **3** City of God, people say glorious things about you. Selah.
 
-**4** "I will name Egypt (Rahab) and Babylon among the people who know me. Look at Philistia, Tyre and Ethiopia. People will say, 'This man was born in Zion.'"
+**4** "I will name Egypt (Rahab) and Babylon among the people who know me. Look at Philistia, Tyre and Ethiopia. People will say, 'This man came from Zion.'"
 
-**5** People will say about Zion, "This man and that man were born in Zion." The Most High himself will make Zion strong.
+**5** People will say about Zion, "This man and that man came from Zion." The Most High himself will make Zion strong.
 
-**6** The LORD will write a list of the peoples. He will write, "This man was born in Zion." Selah.
+**6** The LORD will write a list of the peoples. He will write, "This man came from Zion." Selah.
 
 **7** The singers and the musicians will say, "All my springs of joy are in you."
 
@@ -2922,7 +2922,7 @@
 
 **4** People count me with those who go down into the pit. I am like a man with no strength.
 
-**5** People leave me among the dead. I am like the dead bodies that lie in the grave. You do not remember them. They are separated from your help.
+**5** People leave me among the dead. I am like the dead bodies that lie in the grave. You do not remember them. Your help does not come to them.
 
 **6** You put me in the deepest pit. You put me in dark and deep places.
 
@@ -2964,7 +2964,7 @@
 
 **6** No person in the skies is equal to the LORD. No person among the heavenly beings is the same as the LORD.
 
-**7** In the meeting of the holy ones, people fear God very much. He is more terrible than all the beings around him.
+**7** In the assembly of the holy ones, people fear God very much. He is more terrible than all the beings around him.
 
 **8** LORD God of armies, no person is as strong as you, LORD. Your faithfulness is all around you.
 
@@ -3060,7 +3060,7 @@
 
 **1** Lord, you were our home for all generations.
 
-**2** You were God before the mountains were born. You were God before you made the earth and the world. You are God from all time past to all time in the future.
+**2** You were God before the mountains came into existence. You were God before you made the earth and the world. You are God from all time past to all time in the future.
 
 **3** You turn people back to dust. You say, "Go back, children of men."
 
@@ -3204,7 +3204,7 @@
 
 **16** Who will stand up for me against the wicked? Who will help me against the people who do evil?
 
-**17** If the LORD did not help me, I would soon be in the silent grave.
+**17** The LORD helped me. Because of this, I did not go down to the silent grave.
 
 **18** I said, "My foot slips." But LORD, your mercy held me up.
 
@@ -3358,7 +3358,7 @@
 
 **4** I will keep a dishonest heart far from me. I will have no part in evil.
 
-**5** A person may secretly say bad things about his neighbor. I will destroy that person. I will not permit a person with proud eyes and a proud heart.
+**5** Possibly a person secretly says bad things about his neighbor. I will destroy that person. I will not permit a person with proud eyes and a proud heart.
 
 **6** I will look with favor on the faithful people of the land. They will live with me. The person who lives with no fault will serve me.
 
@@ -3520,7 +3520,7 @@
 
 **24** LORD, you made very many things! You made all of them with wisdom. The earth is full of the things that you made.
 
-**25** Look at the sea. It is very large and wide. It is full of animals that cannot be counted, small and large.
+**25** Look at the sea. It is very large and wide. It is full of animals. They are too many to count, small and large.
 
 **26** The ships move on the sea. The Leviathan that you made plays in the sea.
 
@@ -3632,7 +3632,7 @@
 
 **44** He gave them the lands of the nations. They got the things that other peoples worked for.
 
-**45** He did this so that they would obey his rules and keep his laws. Praise the LORD!
+**45** He did this so that they will obey his rules and keep his laws. Praise the LORD!
 
 ## Chapter 106
 
@@ -3680,15 +3680,15 @@
 
 **22** He did wonderful works in the land of Ham. He did terrible things at the Red Sea.
 
-**23** Thus he said that he would destroy them. But Moses, the man that he chose, stood in front of him. Moses stopped God's anger, so that God did not destroy them.
+**23** Thus he said that he will destroy them. But Moses, the man that he chose, stood in front of him. Moses stopped God's anger, so that God did not destroy them.
 
 **24** Then they refused the pleasant land. They did not believe his promise.
 
 **25** They complained in their tents. They did not obey the voice of the LORD.
 
-**26** Thus he lifted his hand and made a promise against them. He said that he would make them die in the desert.
+**26** Thus he lifted his hand and made a promise against them. He said that he will make them die in the desert.
 
-**27** He said that he would make their descendants die among the nations. He said that he would send them into many lands.
+**27** He said that he will make their descendants die among the nations. He said that he will send them into many lands.
 
 **28** They joined in the worship of Baal at Peor. They ate sacrifices that people gave to dead gods.
 
@@ -3722,7 +3722,7 @@
 
 **43** Many times he saved them. But they went against him with their plans. They became weak because of their sin.
 
-**44** But he saw their suffering when he heard their cry.
+**44** But he saw their pain when he heard their cry.
 
 **45** He remembered his agreement with them. Because of his great love, he did not punish them.
 
@@ -3796,7 +3796,7 @@
 
 **31** People must praise the LORD for his love. They must praise him for his wonderful works for people.
 
-**32** Let them praise him in the meeting of the people. Let them praise him in the council of the leaders.
+**32** Let them praise him in the assembly of the people. Let them praise him in the council of the leaders.
 
 **33** He changes rivers into a desert. He changes springs of water into dry ground.
 
@@ -3814,7 +3814,7 @@
 
 **40** He shows contempt for rulers. He makes them walk in a desert with no road.
 
-**41** But he lifts the poor people up out of their suffering. He makes their families increase like a flock of sheep.
+**41** But he lifts the poor people up out of their pain. He makes their families increase like a flock of sheep.
 
 **42** Honest people see this and are happy. All wicked people become silent.
 
@@ -3930,7 +3930,7 @@
 
 ## Chapter 111
 
-**1** Praise the LORD! I will give thanks to the LORD with all my heart. I will do this in the meeting of honest people and in the group of his people.
+**1** Praise the LORD! I will give thanks to the LORD with all my heart. I will do this in the assembly of honest people and in the group of his people.
 
 **2** The works of the LORD are great. All the people who like his works think about them.
 
@@ -3948,7 +3948,7 @@
 
 **9** He set his people free. He made his agreement with them for all time. His name is holy and terrible.
 
-**10** The fear of the LORD is the start of wisdom. All the people who obey his laws have good understanding. His praise continues for all time.
+**10** The fear of the LORD is the start of wisdom. All the people who obey his laws have good sense. His praise continues for all time.
 
 ## Chapter 112
 
@@ -4066,7 +4066,7 @@
 
 **8** LORD, you saved my life from death. You stopped the tears from my eyes. You kept my feet from a fall.
 
-**9** I will live in front of the LORD in the land of the living.
+**9** I will live in front of the LORD in the land of the people who live.
 
 **10** I believed, thus I spoke. I said, "I suffer very much."
 
@@ -4126,7 +4126,7 @@
 
 **15** Shouts of joy and victory are in the tents of good people. The right hand of the LORD does powerful things.
 
-**16** The right hand of the LORD is lifted high. The right hand of the LORD does powerful things.
+**16** The right hand of the LORD is high. The right hand of the LORD does powerful things.
 
 **17** I will not die. I will live, and I will tell about the works of the LORD.
 
@@ -4338,7 +4338,7 @@
 
 **91** All things continue today because of your laws. All things are your servants.
 
-**92** If your law did not make me happy, I would die in my suffering.
+**92** Your law made me happy. Because of this, I did not die in my pain.
 
 **93** I will never forget your rules, because you give me life with them.
 
@@ -4352,7 +4352,7 @@
 
 **98** Your commands make me wiser than my enemies, because your commands are always with me.
 
-**99** I have more understanding than all my teachers, because I think about your laws.
+**99** I have more wisdom than all my teachers, because I think about your laws.
 
 **100** I understand more than the old men, because I obey your rules.
 
@@ -4362,7 +4362,7 @@
 
 **103** Your words are very sweet to me. They are sweeter than honey in my mouth!
 
-**104** I get understanding from your rules. Thus I hate all false ways.
+**104** I get wisdom from your rules. Thus I hate all false ways.
 
 **105** Your word is a lamp for my feet. It is a light on my path.
 
@@ -4414,7 +4414,7 @@
 
 **129** Your laws are wonderful. Thus I obey them.
 
-**130** When your words come into the mind, they give light. They give understanding to simple people.
+**130** When your words come into the mind, they give light. They give wisdom to simple people.
 
 **131** I open my mouth and breathe quickly, because I want your commands.
 
@@ -4460,7 +4460,7 @@
 
 **152** A long time ago I learned from your laws. I know that you made them firm for all time.
 
-**153** Look at my suffering and save me, because I do not forget your law.
+**153** Look at my pain and save me, because I do not forget your law.
 
 **154** Defend me and save me. Give me new life, as you promised.
 
@@ -4548,7 +4548,7 @@
 
 **2** Jerusalem, our feet stand inside your gates.
 
-**3** Jerusalem is built as a city. All its parts join closely together.
+**3** Jerusalem is a city that people built well. All its parts join closely together.
 
 **4** The tribes go up to Jerusalem, the tribes of the LORD. They give thanks to the name of the LORD, as the law of Israel tells them.
 
@@ -4578,11 +4578,11 @@
 
 **2** if the LORD was not on our side when men attacked us,
 
-**3** then they would swallow us alive. Their anger burned against us.
+**3** then they will swallow us alive. Their anger burned against us.
 
-**4** Then the flood would cover us. The river would go over us.
+**4** Then the flood will cover us. The river will go over us.
 
-**5** Then the angry waters would go over us."
+**5** Then the angry waters will go over us."
 
 **6** Praise the LORD! He did not let their teeth tear us apart.
 
@@ -4688,7 +4688,7 @@
 
 ## Chapter 132
 
-**1** LORD, remember David and all his suffering.
+**1** LORD, remember David and all his troubles.
 
 **2** He made a promise to the LORD. He made a promise to the Mighty One of Jacob.
 
@@ -4720,7 +4720,7 @@
 
 **16** I will make her priests wear salvation like clothes. Her loyal people will shout with joy.
 
-**17** There I will make a strong king grow from the family of David. I will keep a lamp burning for the king that I chose.
+**17** There I will make a strong king grow from the family of David. I will keep a lamp lit for the king that I chose.
 
 **18** I will cover his enemies with shame. But his crown will shine on his head."
 
@@ -4834,7 +4834,7 @@
 
 **24** He made us free from our enemies. His love continues for all time.
 
-**25** He gives food to all living things. His love continues for all time.
+**25** He gives food to all creatures. His love continues for all time.
 
 **26** Give thanks to the God of heaven. His love continues for all time.
 
@@ -4854,7 +4854,7 @@
 
 **7** LORD, remember what the people of Edom did on the day that Jerusalem fell. They said, "Destroy the city. Destroy it to its foundations."
 
-**8** People of Babylon, you will be destroyed. The man who pays you back for what you did to us will be happy.
+**8** People of Babylon, someone will destroy you. The man who pays you back for what you did to us will be happy.
 
 **9** The man who takes your children and throws them against the rocks will be happy.
 
@@ -4946,7 +4946,7 @@
 
 **9** My enemies are all around me. Let the evil that they speak fall back on their own heads.
 
-**10** Let burning coals fall on them. Throw them into the fire. Throw them into deep holes, so that they cannot get out again.
+**10** Let hot coals fall on them. Throw them into the fire. Throw them into deep holes, so that they cannot get out again.
 
 **11** Do not let liars become strong in the land. Let evil hunt the violent man and destroy him.
 
@@ -4966,9 +4966,9 @@
 
 **5** If a good man hits me, it is a kindness. If he corrects me, it is like good oil on my head. My head will not refuse it. I will always pray against the evil things that wicked people do.
 
-**6** Their leaders will be thrown down from the rocks. Then the people will hear my words and know that my words are pleasant.
+**6** People will throw their leaders down from the rocks. Then the people will hear my words and know that my words are pleasant.
 
-**7** Our bones are scattered at the opening of the grave. They are like wood that a man cuts and breaks on the ground.
+**7** Our bones lie in all directions at the mouth of the grave. They are like wood that a man cuts and breaks on the ground.
 
 **8** But GOD the Lord, I look to you. I trust in you. Do not leave me without help.
 
@@ -4986,7 +4986,7 @@
 
 **4** I looked to my right side, but no person knew me. I had no safe place. No person cared about me.
 
-**5** LORD, I called to you. I said, "You are my safe place. You are all that I have in the land of the living."
+**5** LORD, I called to you. I said, "You are my safe place. You are all that I have in the land of the people who live."
 
 **6** Listen to my call, because I am very weak. Save me from the people who attack me, because they are stronger than I am.
 
@@ -4996,7 +4996,7 @@
 
 **1** LORD, hear my prayer. Listen to my calls for help. Answer me, because you are faithful and good.
 
-**2** Do not judge your servant, because no living person is good in your eyes.
+**2** Do not judge your servant, because no person who lives is good in your eyes.
 
 **3** The enemy attacked me. He pushed my life down to the ground. He made me live in darkness, like people who died a long time ago.
 
@@ -5080,9 +5080,9 @@
 
 **14** The LORD helps all the people who fall. He lifts up all the people who are bent down.
 
-**15** The eyes of all living things look to you. You give them their food at the correct time.
+**15** The eyes of all creatures look to you. You give them their food at the correct time.
 
-**16** You open your hand. You give every living thing what it wants.
+**16** You open your hand. You give every creature what it wants.
 
 **17** The LORD is fair in all his ways. He is holy in all his works.
 
@@ -5120,7 +5120,7 @@
 
 **1** Praise the LORD. It is good to sing praises to our God. It gives pleasure, and praise is correct.
 
-**2** The LORD builds Jerusalem again. He brings back the people of Israel who were sent away.
+**2** The LORD builds Jerusalem again. He brings back the people of Israel whom their enemies sent away.
 
 **3** He heals the people with broken hearts. He puts bandages on their wounds.
 
@@ -5220,4 +5220,4 @@
 
 **5** Praise him with loud cymbals. Praise him with very loud cymbals.
 
-**6** Let all living things that have breath praise the LORD. Praise the LORD.
+**6** Let all things that have breath praise the LORD. Praise the LORD.

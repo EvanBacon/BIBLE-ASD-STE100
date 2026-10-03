@@ -78,7 +78,7 @@
 
 **9** Maybe God will change his mind. Maybe he will stop his strong anger. Then we will not die."
 
-**10** God saw what the people did. He saw that they stopped their evil actions. Thus God changed his mind. He did not cause the disaster that he said he would cause.
+**10** God saw what the people did. He saw that they stopped their evil actions. Thus God changed his mind. He did not cause the disaster that he said he will cause.
 
 ## Chapter 4
 
@@ -90,7 +90,7 @@
 
 **4** The LORD said, "Is it right for you to be angry?"
 
-**5** Jonah went out of the city and sat down at the east side of the city. There he made a shelter. He sat under the shelter in the shade. He waited to see what would happen to the city.
+**5** Jonah went out of the city and sat down at the east side of the city. There he made a shelter. He sat under the shelter in the shade. He waited to see what will happen to the city.
 
 **6** The LORD God prepared a vine. The LORD God made the vine grow up over Jonah. The vine gave shade over his head and made him feel better. Jonah was very happy about the vine.
 

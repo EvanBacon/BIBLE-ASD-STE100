@@ -16,7 +16,7 @@
 
 **7** In Christ, God bought us back to be free through the blood of Christ. God forgave our sins because his grace is very rich.
 
-**8** God gave us much grace. He also gave us all wisdom and understanding.
+**8** God gave us much grace. He also gave us all wisdom and good judgment.
 
 **9** God told us the secret of his will. He did this because of his good pleasure. He decided on this plan in himself.
 
@@ -194,7 +194,7 @@
 
 **27** Do not give the devil a chance to work.
 
-**28** The person who stole must stop stealing. He must work hard with his hands and do good things. Then he will have something to give to people who need help.
+**28** The person who stole must not steal again. He must work hard with his hands and do good things. Then he will have something to give to people who need help.
 
 **29** Do not speak bad words. Only say good things that help other people grow. Then your words will help the people who hear them.
 
@@ -256,7 +256,7 @@
 
 **25** Husbands, love your wives as Christ loved the church. Christ gave himself for the church.
 
-**26** He did this to make the church holy. He made the church clean with the washing of water through the word.
+**26** He did this to make the church holy. He made the church clean with water through the word.
 
 **27** He did this to put the church in front of himself as a glorious church. The church will have no spot and no wrinkle or other fault. The church will be holy and without fault.
 
@@ -304,7 +304,7 @@
 
 **15** Put on the readiness of the gospel of peace like shoes on your feet.
 
-**16** Also, take faith as a shield. With this shield, you can stop all the burning arrows of the evil one.
+**16** Also, take faith as a shield. With this shield, you can stop all the arrows of fire of the evil one.
 
 **17** Take salvation as a helmet. Take the sword of the Spirit, which is the word of God.
 
